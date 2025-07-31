@@ -52,3 +52,12 @@ Part of the **Rebuilding Roots** and **EverLight OS** mission
 > “The Bell has been struck. The field is aligned.  
 > Welcome to Sarasota.”
 
+
+## 🚀 Automated Deployment
+
+A GitHub Actions workflow (`.github/workflows/gh-pages.yml`) builds the
+Sphinx documentation and publishes the contents of `build/html` to the
+`gh-pages` branch whenever changes land on `main`. GitHub Pages is
+configured to serve from that branch, so the site automatically updates
+after each push.
+
