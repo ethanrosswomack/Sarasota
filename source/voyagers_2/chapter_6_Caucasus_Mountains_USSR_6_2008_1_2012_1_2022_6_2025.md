@@ -1,0 +1,1 @@
+6      Caucasus Mountains, USSR                        6/2008  - 1/2012              1/2022  - 6/2025

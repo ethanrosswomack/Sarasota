@@ -1,0 +1,1 @@
+1      Painted Desert, Arizona USA                      1/1988 -  6/1992              6/2042  - 6/2047

@@ -1,0 +1,916 @@
+7       Andes Mountains, South America               1/2012  - 6/2017              6/2017  - 1/2022
+As each vortex progressively opens and activates, the dimensional frequency
+bands that correspond to the vortex number begin transmitting through Earth's
+morphogenetic field. This causes the Sphere of Amenti to begin transmitting its
+morphogenetic imprint for that dimensional frequency band through Earth's grid. The
+frequency imprints for DNA strands 1 - 8, which are stored within the morphogenetic
+field of the Sphere of Amenti (along with the imprints for strands 9-12), progressively
+transmit through Earth's grid, as the dimensional frequency bands that correspond to
+each strand begin transmission . The frequency bands of D-8 Meta-galactic Core, which
+accelerate activation of the 8th DNA strand, transmit through Earth's grid when Earth's planetary
+core comes into a direct 3-day alignment with the cores of Tara, Gaia and the Meta-galactic
+Core, as Earth aligns directly with the Holographic Beam. The imprints for DNA strands 9-12 do
+not transmit through Earth's grid; they are accessible only through the grid of Tara. Activation of
+strands 1-8 on Earth allows for ascension to the Taran time cycles, from which the imprint for
+strands 9-12 can be accessed.
+  The human bio-energetic field picks up the DNA imprint through its direct contact
+with the bio-energetic fields of Earth's grid, which provides humans with the opportunity
+to add that imprint in its operational DNA construction. The process of activating the new
+imprint takes place as the strand imprint is pulled from the bio-energetic field, into the
+personal morphogenetic field, at which point the new imprint will begin manifestation
+within the operational DNA strands . DNA strand mutations are purged from the race
+morphogenetic imprint in the Sphere of Amenti and the strand imprint is realigned with the
+12 strand DNA pattern by the successive births of the 6 Silent Ascension Avatars.
+Transmission of the corrected DNA strand imprints through Earth’s grid allows a
+reverse-mutation of various ascension-inhibiting human genetic distortions to take place .
+Earth's 7 Primary Vortices  open only during the two ascension cycles, at the beginning and
+end of a 26,556-year Harmonic Universe Euiago time cycle, The energetic dynamics that Earth
+now approaches, as it enters the ½ cycle point in its 2nd ascension cycle, are unprecedented
+within the annals of recorded human history . The coming of these events has been symbolically
+foretold through oral and written tradition for thousands of years.
+                                                                            ©2002 Ashayana Deane   
+                     437                                                   
+                                                                                                                                                                       
+
+     
+                Data Summaries and At-A-Glance Blow- Up Charts
+                                                    The Six Silent Ascension Avatars
+                                                    At-A-Glance Blow-Up Chart
+       AVATAR    DATE        SOUL             SOUL               ALIGNS         TURNS
+             #             OF         ESSENCE      ESSENCE          DNA                33
+                         BIRTH      NAME            LEVEL              STRAND
+____________________________________________________________
+           1           7/26/1992            LAU CHA-             7th LEVEL                  STRAND                2025 AD
+                                                          SAN                        A V ATAR                          2                                    
+                                                                                                                                                                                            
+                     ---------------------------------------------------------------------------------------------------------- --------------     
+                                    2           6/24/1996             BRAHAMHAN     8th LEVEL                 STRAND                2029 AD
+                                                                                   MAHA-TIA           A V ATAR                          3
+                     ---------------------------------------------------------------------------------------------------------- --------------
+                                    3            6/26/1998**         JEHOV ANI-            9th LEVEL                 STRAND               2031 AD
+                                                                                   AHMBRA              A V ATAR                          4
+                     ---------------------------------------------------------------------------------------------------------- --------------
+                                    4            9/9/2004-T          ALLUREA-           10th LEVEL                  STRAND              2037AD-T
+                                                                                  DON-                     A V ATAR                            5
+                                                                                  MELCHIOR
+                     ---------------------------------------------------------------------------------------------------------- --------------
+                                    5            7/22/2008-T       RElON-BEN-         11th LEVEL                STRAND                2041AD-T
+                                                                                 AZARTAN              A V ATAR                              6
+                ------------------------------------------------------------------------------------------------------------------------
+                                     12:01am
+                                        6            5/5/2012              SANANDA-BEN- 12th LEVEL                STRAND               2045AD
+                                                                                  JEVOHI                   A V ATAR                             7
+                   _________________________________________________________________ 
+T = birth is scheduled for this date, but may occur any time earlier, most likely
+following the birth of the previous avatar. Birth must occur no later than
+scheduled date. Birth will remain as scheduled  unless circumstances warrant
+change. ** = avatar 3 was not scheduled to birth until 2000 AD, but Elohim
+arranged the birth 2 years early to open the 2nd seal on the Arc of the Covenant,
+so the ascension schedule could remain on course. NOTE:  There will also be
+144,000 + ''indigo Children " born between 1999 - 2017  They will carry the 6
+DNA strand Paradisian Race Imprint , that of the fully embodied HU-2 soul essence.
+They represent  D-6 soul essence  and will birth via the frequencies of the D-6 Sirian
+Spiral , which falls within the inter-dimensional lndigo light wave spectrum , thus
+their name. Activation of the 6th DNA strand of a minimum of 144,000 individuals is
+essential for Earth's passage into the Bridge Zone. The D-6 souls will birth on Earth
+to serve in ful filling this requirement. The 6 Silent Avatars and indigo Children are born
+via Palaidorian Birthing Contracts  and Contract Bonds.
+                                                       ©2002 Ashayana Deane
+                  
+                  
+                  438
+
+                       
+                        Data Summaries and At-A-Glance Blow-Up Charts
+                                          Origins - Secrets of Amenti
+                                            At-A-Glance Blow-Up Chart
+Human Origins : Humanity began 560 million years ago, as an Immortal Race called
+the Turaneusiam on planet Tara in Harmonic Universe-2 (HU-2). The Turaneusiam race
+had a 12 strand DNA morphogenetic imprint that allowed for embodiment of the 12 dimensional
+frequency bands of an HU-4 avatar identity. Humans were created as a planetary guardian race
+of God-like beings.
+Lost Souls of Tara:  Through a Turaneusiam created cataclysm on HU-2 Tara 550 million
+years ago part of Tara's grid fragmented into HU-1 through the core of the 8th Pleiadian star,
+forming 12 planets that became Earth's solar system. Many of the Immortal Souls of Tara were
+fragmented into HU-1 with the lost portions of Tara; they became known as the Lost Souls of
+Tara or the Fallen Angels. The Palaidorian and Ur-Tarranate races of Tara created a project
+through which the lost souls of Tara could re-evolve into their original 12 strand DNA immortal
+imprint and be freed from HU-1.
+The Sphere of Amenti  race morphogenetic field was created to give the soul fragments of Tara
+that were lost in the Earth's dimensional fields the pattern of the 12 strand DNA imprint, through
+which they could re-evolve into their original Turaneusiam form. The Sphere of Amenti served as 
+a Host Matrix (surrogate morphogenetic field or "form-holding blueprint") through which the
+Lost Souls of Tara could evolve and return home. The Amenti rescue mission represents a Host Soul 
+Matrix Transplant on the species level. All present Earthly strains of human have evolved through the 
+morphogenetic imprint of the Sphere of Amenti.
+Seeding the 12 Tribes of Amenti:  Through the Sphere of Amenti race morphogenetic field 7 Root  
+Races and 5 Cloister Races  were created, through which the 12 strand DNA imprint could be 
+rooted into Earth biology to evolve. The first 2 Root races were etheric in nature and evolved on
+HU-3 D-7 Gaia, setting the pattern of the 1st DNA strand into Earth's planetary morphogenetic field.
+The remaining 5 Root Races & 5 Cloister Races were to be seeded on Earth & Tara during
+different time periods. Each Root Race would assemble and evolve 1 DNA strand imprint from Amenti
+into Earth's biological gene pool. The Cloister Race appearing with each Root Race would evolve the 
+imprints for strands 7-12 as dormant gene codes along with the imprint for the strand carried by their
+Root Race. The Cloister Races allowed the strands of cellular transmutation to remain alive within the 
+biological gene pool.
+The 3 Seedings:  The Amenti Rescue Mission failed twice due to Interstellar Wars over humanity's 
+right to evolve on Earth. The Palaidorians, Ur-Tarranates & other guardian races of Tara, HU-2 
+and HU-3 had to re-seed all but the first and second Root and Cloister Races 3 different times. The
+present human lineage is part of the 3rd Seeding. Present day humans are primarily of the 5th Root 
+Race Aryan  and Hibiru  Cloister Race strains. Some members of the 6th Cloister Race, the 
+Melchizedeks , are also present on Earth and 150,000 7th Race Paradisian  souls, the 
+Indigo Children , will be incarnating on Earth between 1999 - 2017 to accelerate the genetic 
+evolution of the races and to help Earth shift to the Bridge Zone time continuum.
+The Arc of the Covenant  is a time portal passage between Earth and the Andromeda galaxy
+that was created 840,000 years ago by guardian races. I was used to store and protect the
+Sphere of Amenti until the Sphere could be returned to Earth's core. The Arc allowed the Sphere
+of Amenti to descend from Andromeda when Earth's core reached a high enough vibration rate.
+Races of the 3rd Seeding were birthed into ﬂesh through the Arc of the Covenant. Arc was originally 
+called the Arch of the Covenant of Palaidor, denoting the Palaidorian Covenant through which the 
+Amenti Rescue Mission was begun 550 million years ago.    
+                                                                                  ©2002 Ashayana Deane   
+                                444
+                            
+
+                           Data Summaries and At-A-Glance Blow-Up Charts
+                                                  THE SIX SILENT ASCENSION A V ATARS
+      During the ascension cycle of 2017 AD six avatar souls will incarnate on
+Earth in order to serve various roles within the plan of human ascension and
+evolution. An avatar soul is a soul essence possessing a minimum level of
+over-soul consciousness, fully embodied within the physical incarnation; it is
+a master-soul that incarnates from a position within Harmonic Universe 3 or
+4. An avatar will have a minimum of 7-dimensional frequency bands within
+its genetic imprint, and a minimum of seventh DNA strand activation at
+birth. The human genetic prototype can hold only 12-dimensional frequency
+bands within its imprint, a 12-strand DNA code. Avatars will thus have
+between 7 and 12 DNA strands activated in their genetic code. (The last
+12th-level avatar to incarnate on Earth was Jesheua-12, AKA  Jesus Christ/
+Sananda - 12BC - 27 AD). The six Silent Ascension Avatars assisting in the
+2017 ascension cycle will be born approximately four years apart beginning in
+1992, the last being born in 2012. Though there will be several other avatar
+souls incarnating on Earth during this period, the six Silent Ascension Ava-
+tars hold a very special purpose of realigning the DNA imprint for the human
+race within the morphogenetic field of the Sphere of Amenti.  
+       As their respective soul essences pass through the Sphere of Amenti, the
+frequency bands carried in their energetic essence will purge mutations from
+the human DNA imprint, allowing DNA strands 2-7 to realign with the orig-
+inal 12-strand DNA pattern of the HU-2 Turaneusiam-human prototype.
+Without the birth of these avatars mutations within the human DNA code
+would prevent humans from properly assembling and activating the DNA
+strands and humanity would be unable to achieve acceleration of evolution
+and ascension to the Bridge Zone, Tara or beyond. Each avatar is assigned to
+the realignment of one DNA strand, which will be achieved as the soul
+essence passes through the Sphere of Amenti during fetal integration.  
+       When the avatars turn 12 years of age they will begin awakening to their
+chosen service mission on Earth and by age 22, if their awakening proceeds
+properly, they are scheduled to begin active service to further the evolution-
+ary development of humans within the Bridge Zone Earth. The success of the
+ascension program is dependent upon the births of the six Silent Ascension
+Avatars proceeding according to schedule. They are called the Silent Avatars
+because their identities, religious affiliations and geographical locations will
+be undisclosed to the public during the ascension period. Their identities will
+not be revealed until they have reached the age of 33 and their service mis-
+sions come into mass awareness.  
+446 
+
+                                                                                                                  
+                                                                                                   The Three Tracks of Time
+                              
+                             THE THREE TRACKS OF TIME  
+Earth’s populations will permanently divide into three separate groups
+2012-2017  
+                 Time Track 1—Voyager Ascension—Tara D-4 Time Cycle  
+Time-traveling V oyagers - 5532.5-year Leap into the Future (Tara AD  
+7549.5)  
+   •   Humans who are able to assemble and activate a minimum of the fifth
+DNA strand will have the opportunity to transmute the body structure into
+light & teleport through the portal passages of the Halls of Amenti to arrive
+on planet Tara. Tara is Earth in the future space-time coordinates of the Har-
+monic Universe-2 time cycles. Transfer to Tara represents a 5532.5-year time-
+travel journey into the future. Humans teleporting/time-traveling to Tara are
+called V oyagers.  
+   •   V oyagers will experience subtle or direct contact by other V oyagers, ET
+or metaterrestrial guardian groups prior to the ascension period, through
+which they will receive training & make travel arrangements. V oyagers must
+complete a minimum of two Stellar Activations to biologically tolerate trans-
+port to Tara. V oyagers who are near 5 DNA strand assembly but assembly is
+not quite complete cannot pass through Amenti directly. They will be pri-
+vately escorted to guardian Transport landing sites & will travel to Tara via
+interdimensional spacecraft.  
+     •   Once arriving on Tara V oyagers will be given lodging & will attend ori-
+entation classes to assist them with integration into Taran society as time-
+travelers from the past. Taran culture is built upon the Law of One & is quite
+Heavenly compared to Earthly existence.  
+   •   V oyagers will find themselves in less-dense, more perfected versions of
+their present bodies, free from disease, the necessity of death and the cycles of
+reincarnation in HU-1.  
+    •   Humans who have assembled the fifth DNA strand, but whose physical
+bodies are beyond repair & will not permit the strand to activate, will physi-
+cally die in usual terms then pass through the Halls of Amenti as conscious-
+ness, to incarnate into an immortal body through a Taran parent couple.  
+     •   In some cases couples or groups will be able to ascend together & will
+be able to remain together on Tara if they choose to do so.  
+   •   Full memory of multidimensional experience will return to the V oyag-
+ers & they will have open relationships with ET and metaterrestrial commu-
+nities while evolving on Tara.  
+    • Few will take the path of the V oyager, but it is the path of choice & the
+opportunity of many life times for those who can qualify.  
+447 
+
+Data Summaries and At-A-Glance Blow-Up Charts  
+   Time Track 2—Phantom Earth Descending Planet—D-3 Time Cycle  
+                  Descending Humans — Return to the Present (Earth AD 2017)  
+        • Humans who do not assemble all of the fourth and _ of the fifth DNA
+strands will remain within the D-3 time cycle when Earth completes the
+ascension period in 2017 and will follow the path of the Phantom Earth
+Descending planet. If the Dracos-Zeta Resistance is successful in orchestrat-
+ing the Frequency Fence in 2004, these populations will fall under covert
+Dracos-Zeta bio-neurological mind control.  
+        • Major Earth changes will occur on the Phantom Earth, due to the Fre-
+quency Fence and Descending Humans will face disruptions in existing social
+structure &  in filtration of the Dracos-Zeta hybrids.  
+         • If the Frequency Fence is stopped, Descending Humans will face Earth
+changes to a lesser degree and retain their existing level of freedom of choice,
+but will become bio-energetically severed from their higher-dimensional
+identity, Soul Matrix and evolutionary blueprint. This separation from the
+Soul Matrix will cause a genetic mutation through which only the third
+DNA strand can assemble. Over several generations this mutation will cause
+break down of the genetic code and the inability to reproduce.  
+         • Descending Humans will no longer be able to access multidimensional
+awareness and will be unable to ascend out of HU-1 after death or reincar-
+nate without a Host Matrix Transplant. Without an energetic link to a Soul
+Matrix the consciousness becomes finite and will eventually fragment into
+the Uni fied Field of HU-1 as undifferentiated units of consciousness.  
+      • Experientially , Descending Humans will face some degree of Earth
+changes, an acceleration of disease & deterioration during the ascension
+period and will find that portions of Earth’s populations have literally van-
+ished without a trace following 2017.  
+        • Earth’ s primary particle base and morphogenetic field will transfer to
+the Bridge Zone, D-3 Earth will represent the Phantom particle base left over
+from Earth's transition & will become a Descending Planet, unable to evolve
+out of the HU-1 time cycles.  
+        • This is the least favorable path, with far reaching evolutionary conse-
+quences, but will be experienced by large numbers of the population if they
+do not rapidly awaken & take responsibility for conscious evolution.
+448  
+
+                                                                                              
+                                                                                                        The Three Tracks of Time
+                                                  Time Track 3—Night of the Two Moons—  
+                                           Bridge Zone Earth—Agartha—D-3.5 Time Cycle     
+            Bridging Humans – Earth’ s 2213-year Leap into the Future (Agartha AD 5336.5)  
+          
+        • Humans who achieve assembly & activation of all of the fourth & _ of
+the fifth DNA strand & who complete a minimum of 1.5 Stellar Activations
+will be able to pass into the Bridge Zone-Agartha time continuum with Earth
+in 2017. The primary 3-dimensional particle base of Earth, Earth’s core mor-
+phogenetic field & the Sphere of Amenti race morphogenetic field will make
+this transition. Some localized Earth changes may occur in regions of grid
+instability as Earth transitions to the Bridge Zone. Transfer to the Bridge
+Zone represents a planetary acceleration of time, through which Earth will
+shift to a space-time location 2213-years in the future, from its present space-
+time station.  
+         • Bridging Humans will perceive a progressively more distinct separation
+of those following the old paradigm & the new as 2012 approaches & popula-
+tions begin to group by higher & lower particle pulsation rhythms. These
+groups will literally “fall out of each other’s range of perception” by 2017. Peo-
+ple of the new paradigm will progressively experience more rapid expansion
+of consciousness & multidimensional perception, as a natural part of the
+Stellar Activations they will encounter.  
+    • Bridging Humans will experience more noticeable change than
+Descending Humans will as Earth completes the 2017 transition. During the
+3-day particle conversion period of 2017 they will find that many structures
+that are composed of lower vibrating, inorganic substances & Descending
+populations, will literally vanish or de-manifest. The most apparent change
+will be in the sudden appearance of buildings & other structures of civiliza-
+tion that were not there before, as portions of Agartha become visible. lt will
+seem as if these structures “had always been there but had been forgotten”.
+This will cause a bit of temporary space-time & memory disorientation for
+Bridging Humans as their neurological structures adjust to the new electro-
+magnetic pulsation rhythms of the Bridge Zone.  
+    •Bridging Humans will have the opportunity to become V oyagers
+through the natural acceleration of DNA assembly that will occur as a result
+of Bridge Zone Earth's Stellar Activations.  
+        • Those who do not V oyage will evolve within a more enlightened Earth
+culture, in which new forms of free energy & Keylontic science applications
+are discovered.  
+       • Perceptually , Bridging Humans will experience a sense of less weight
+within the atmosphere & their physical bodies & the body will have a
+renewed sense of energy, health & vitality. As the higher chakra centers acti-
+vate conscious integration of the soul identity will accelerate.     
+449        
+                                                                                                                                                                                                              
+
+Data Summaries and At-A-Glance Blow-Up Charts
+     •   During the 3-day period populations of Bridge Zone Earth may experi-
+ence the visual phenomenon of the appearance of bright moon halos or two
+distinct moons, thus the Bridge Zone is known as the path of the Night of the
+two Moons.
+    •   Bridging Humans will be free from Dracos-Zeta manipulation & will
+have progressively more open relations with guardian ET cultures.
+     •  The Halls of Amenti ascension passages & the Hall of Records race
+history will be open to populations of Bridge Zone Earth & a new age of
+enlightenment will begin.
+     •   The Bridge Zone represents the ful fillment of a guardian initiated Earth
+rescue mission through which the integrity of the human evolutionary blue-
+print will be secured. Bridge Zone Earth is the second most desirable path &
+one that will be taken by about 8% of Earth's populations.
+                                    
+                               CHOOSING YOUR FUTURE
+          The path you will find yourself on between 2012 - 2017 will be deter-
+mined by your choices now. The key to ascending to the Bridge Zone or Tara
+is Bodily Transmutation, which is achieved through the rapid assembly and
+activation of DNA strands & the awakening of dormant gene codes. DNA
+evolution can be accelerated by consciously using the bio-energetic chakra
+system to activate the dormant Star Crystal Seals within the human body &
+bio-energetic field. These hidden morphogenetic seals control the operation
+of the DNA and when activated allow for transmutation of the cellular struc-
+ture from one space-time station to others. Earth’s upcoming Transmutative
+Stellar Activation period will allow humanity the opportunity for rapid Star
+Crystal Seal activation & DNA acceleration, through which transmutative
+self-evacuation from Descending Earth can be achieved. You have free will to
+choose what future you will see, within the greater framework of Earth’s evo-
+lutionary course; this course now offer three primary options.
+______________________________________________________________                                                                                                  Choose Well._______________________________________________________________
+      •   For more information on Stellar Activations & Bodily Transmutation
+         see page 464.
+         450
+                                                      
+
+                    
+                                             Appendix II                                  
+                                       
+                                          
+                                Introduction to Keylonta
+                                        
+                                 THE SCIENCE OF LIGHT, SOUND, THE SUB-CONSCIOUS
+                                         SYMBOL CODES, AND THE BASE CODES OF MATTER
+                              
+                                                 Exploring Ultra-Micro Particle Mechanics
+        Keylonta is the science of energy dynamics as they apply to a multidi-
+mensional, perpetual motion universe. lt is the primary foundation upon
+which all advanced sciences and technologies of light, sound, frequency, and
+electromagnetic energy are built. Keylontic Science deals with the underly-
+ing structures of electromagnetic energy through which all matter forms are
+constructed and with the attributes of electro-tonal energy structure through
+which consciousness achieves diversification and individuation. Foundations
+of Keylontic Science arise out of a larger category of multidimensional scien-
+tific study known as the Science of Vibrational Mechanics . The Science of
+Vibrational Mechanics utilizes a schematic of cosmic order that is created
+through the inherent dynamics of fission and fusion of electro-tonal energy
+units, an order through which the natural laws of the cosmos are set and held
+in motion. Keylontic Science employs these natural laws as they apply to the
+structures and dynamics of energy, matter and consciousness that are created
+through these laws. Keylonta can be viewed as the science of creation, for it is
+through the dynamics of Keylontic Science that creation takes place. There
+is an organizational intelligence and sentient creative force of vast propor-
+tions that is responsible for the design and creation of the cosmos. Through
+Keylontic Science we can explore the dynamics of energy and consciousness
+through which the cosmos and all forms and beings within it, receive this
+design through the Central Creative Source.  
+      The cosmic schematic is organized into a formation of two polarized
+Cosmic Cores and 12 Meta-Galactic Cores, both united through and existing
+within the Central Source of Creation. The Guardians refer to this Central
+Source as the Yunasai and it is the sentient, creative identity-in-energy
+451 
+                                                                                                                                      
+        
+
+
+                                                                                                                     
+Introduction to Keylonta  
+through and within which the cosmos and its parts manifest. The 12 Meta-
+Galactic Cores of the cosmos pair to form six primary reality fields in which
+multidimensional reality systems take place.  
+          Each of the six pairs of reality fields contains two 15-dimensional systems,
+that are referred to as 15-dimensional Matrices.  In one 15-dimensional
+Matrix there is one set of 15 dimensions that compose the particle universe
+and one set of counter-rotating 15 dimensions that compose the anti-particle
+reﬂection of the parallel universe. All life, evolution and form manifestation
+takes place within the six 15-dimensional Matrices. The principles of energy
+and consciousness that form these reality fields are the same as those that
+manifest life forms and sentient consciousness within these fields; the same
+dynamics of energy inter-relationships apply to the macrocosm and the
+microcosm. The science of Keylonta allows us to study ourselves as interwo-
+ven integral parts of this greater structure of the cosmos.  
+      Keylontic Science has many diverse applications from communication,
+healing, acceleration of the genetic code and advancement of spiritual evolu-
+tion to the creation of advanced technologies such as manufacture of interdi-
+mensional transport craft and free energy devices to the maneuvering of
+time-space portals. Mastery of multidimensional science requires having
+knowledge of the minute, electro-tonal units of energy that form all particles
+and frequency bands within dimensional systems and the dynamics of elec-
+tro-magnetism created through the interplay of these ultra-micro energy
+units. Consciousness and matter are both composed of these units of electro-
+tonal energy and so both spiritual and scienti fic mastery are brought together
+through the applied knowledge of these electro-tonal energy dynamics. Key-
+lontic Science provides the foundations of knowledge upon which mastery of
+matter and consciousness can be achieved.  
+        Keylontic Science derives its name from the word Keylon.  A Keylon is a
+composite of ultra-micro electro-tonal energy units called Partiki.  Keylons
+group with other Keylons to form dimensionalized, crystalline structures of
+energy that exist as the base morphogenetic (form-holding) templates behind
+and within all matter forms, particles and consciousness. Keylons compose
+the frequency fields of sound and light upon which the entire Cosmic matrix
+is structured; the Uni fied Field of cosmic energy is composed of groups of
+crystalline Keylons. Keylons also compose the morphogenetic template of
+electro-tonal and electromagnetic energy upon which the human DNA,
+genetic code, physical body, bio-energetic chakra system and multidimen-
+sional aspects of consciousness (the spiritual body) are built. In studying Key-
+lons and the energetic dynamics inherent to Keylontic Science we can learn
+to consciously direct the path of our physical and spiritual evolution.
+Through this knowledge we can one day learn to master the contours of mat-
+ter and consciousness as they apply to the simultaneously co-existing space-
+452 
+
+                                                                        
+                                                                         Six Primary Elements of Keylontic Science
+time fields of the 15-dimensional Matrix, within which our present existence
+takes place.  
+   T o begin utilizing the potentials of Keylontic Science for personal devel-
+opment, we must become aware of the basic components of which our bodies,
+minds, consciousness and spirit are composed. Once we are aware of our per-
+sonal energetic composition, we can begin to learn how to direct our inher-
+ent energy to affect desired change within the physical, emotional, mental
+and spiritual aspects of our existence. Keylontic Science offers us the oppor-
+tunity to explore and utilize the portions of our personal reality that presently
+remain hidden from our conscious view. The basic principle in using Keylon-
+tic Science is to understand the mechanics by which the elements of Keylon-
+tic Science interrelate with the components of multidimensional anatomy.
+The first step in the study of Keylonta is becoming familiar with the six pri-
+mary elements of Keylontic Science.  
+                  
+                                     SIX PRIMARY ELEMENTS OF KEYLONTIC SCIENCE       
+     1. Partiki : Partiki represent the units of crystalline morphogenetic sub-
+stance out of which particles and anti-particles emerge. Partiki are units of
+electro-tonal energy-identity that emanate from a central cosmic source
+called the  Y unasai.  Partiki are the primary units of energy that form all mat-
+ter, anti-matter, pre-matter and non-matter substance. They are units of mul-
+tidimensional light-sound and consciousness that represent minute
+projections of energy-identity from the central creative cosmic source. Partiki
+are the organizational intelligence and operational “life-force fuel” behind
+and within all manifestations and consciousness. Partiki operate as minute
+self-regenerating “ fission-fusion generators.” Through the dynamics of their
+interaction they create and maintain the electromagnetic fields of sound fre-
+quency and light spectra of which the cosmos is composed.  
+            Partiki are the smallest units of energy in the cosmos  (one could find 800 bil-
+lion billion Partiki units in an average 3-dimensional photon). They exist
+within and beyond all particle and matter structures and represent the
+“divine substance” out of which the cosmos is composed. Through interior
+polarization and replication, created through self-generated fission and
+fusion, Partiki manufacture two intrinsic sub-units of crystalline morphoge-
+netic substance that serve as blueprints for rhythms of pulsation through
+which particles and anti-particles manifest. The Partiki sub-units that pulsate
+the fastest are called Partika  and they set the pulsation rhythm through
+which Partiki units will group to form anti-particles.  
+      Partiki sub-units that pulsate more slowly and appear in conjunction
+with the Partika are called Particum.  The Particum set the pulsation rhythm
+through which Partiki units will group to form particles  that are a slower pul-
+sating reflection of the Partika anti-particles. Together the Partiki, Partika
+and Particum set the foundations for particle and anti-particle manifestation
+453 
+                                       
+             
+
+Introduction to Keylonta  
+within the Uni fied Fields of the 15-dimensional Matrix. They are the ener-
+getic substances, through which the base electro-magnetism that keeps the
+universe and parallel universe in motion is manufactured.  
+   Each Partiki perpetually breaks down into Particum and Partika, particle
+and anti-particle, while simultaneously replicating the original Partiki,
+through the act of internal fission. The replication serves to retain the pat-
+tern of the original, while the Particum and Partika serve to draw other Par-
+tiki units from the Uni fied Field. The Particum and Partika are then
+magnetically drawn back together in an act of fusion, through which they
+merge with the replica of the original Partiki out of which they were created.
+During fusion the Particum and Partika draw new energy patterns in the form
+of Partiki units back into the morphogenetic structure of the original Partiki,
+which expands the original pattern while retaining its organic integrity.
+Through this process crystalline composite forms are created, which serve as
+the morphogenetic blueprints through which individuated forms and identity
+will manifest.  
+  The Partika perpetually circulate energy from the original Partiki
+through the Cosmic Matrix and the Particum perpetually draw energy from
+the Uni fied Field of the Cosmic Matrix back into the morphogenetic form of
+the Partiki, expanding its original form. Through this dynamic a perpetual
+motion, expanding and contracting universe and parallel universe are perpet-
+ually re-created and eternally sustained.  
+       Partiki can be viewed in spiritual terms as units of the identity of  God, the cen-
+tral creative source . All things are composed of Partiki and thus all things,
+beings and consciousness are intrinsically holy as they are composed of and
+united through the eternal substance of God. This God-substance of Partiki
+allows for individuation of form and identity to be created, creates diversi fica-
+tion through a greater field of uni fied consciousness and manufactures the
+morphogenetic design through which all individuation and manifestation
+takes place.  
+    2. Partiki Grids: Partiki units group by like polarization, electrical Par-
+tika to Partika, magnetic Particum to Particum, forming strings of energy
+units called Partiki Strands.  Partiki Strands group with other such strands to
+form geometrical “fabrics” or grids of electro-tonal, electromagnetic energy
+that serve as a template of light spectra and sound tones upon which particle
+and anti-particle structure forms. These templates of Partiki units are called
+Partiki Grids  and they form a Uni fied Field of living energy substance
+through which all things in the cosmos are energetically united.  
+     All forms of matter and consciousness possess a Partiki Grid at the core of
+their individual structure that holds the morphogenetic imprint for the form
+or identity and the intrinsic base pattern for the particles and anti-particles
+that will manifest that form into matter. The personal Partiki Grid is inti-
+mately interwoven with the greater Partiki Grid of the Cosmic Uni fied Field.
+454 
+ 
+
+                                                                         Six Primary Elements of Keylontic Science
+All things are eternally, energetically connected to the energy-identity of the
+Yunasai/God through the electro-tonal, electromagnetic reality of the Partiki
+Grids. Following the pattern of organizational intelligence set by the Yunasai
+and carried within the Partiki units, Partiki Grids draw in more units of Par-
+tiki from the Uni fied Field, forming more complex geometrical arrangements
+of Partiki Strands which become the crystalline dimensionalized templates
+upon which all forms are constructed. Partiki strands represent the fibers out
+of which individuated morphogenetic fabrics are woven and are the second
+state of being between pure conscious energy-identity and manifestation of
+form.  
+        Partiki Grids represent the morphogenetic fabrics into which tapestries of crys-
+talline matter blueprints are laid and are the third state of being between pure con-
+sciousness and manifestation of form.  
+        3. Keylons:  Keylons are dimensionalized, geometrically formed Partiki
+composites, composed of more complex arrangements of Partiki Strands that
+form around the base structure of the Partiki Grids. Keylons are minute crys-
+talline structures composed of Partiki that form the dimensionality of con-
+sciousness and matter. Keylons and the Partiki within them are the “building
+blocks of frequency” or sound tones, which are the core structures upon
+which matter and consciousness are built. Keylons direct the rhythm of
+expansion-projection and contraction-retraction of Partiki units throughout
+the cosmos and within the Partiki Grids of all forms. They set the foundation
+structures upon which biology and the perception of space, time and matter
+are built. Partiki units set the base electromagnetic fields through which
+dimensionalization takes place and Keylons direct the contours of how Par-
+tiki units will build up into form within those electromagnetic fields. Keylons
+form the crystalline matrix of electro-tonal energy that runs through all
+things.  
+       Keylons represent the primary tapestries of crystalline morphogenetic matter
+blueprints upon which sub. particle and sub-anti-particle pre-matter substance will
+form. Keylons are the fourth step between pure consciousness and form manifesta-
+tion. 
+       4. Keylon Codes:  A Keylon Code is a complex grouping of Keylons that
+further direct the contours of energy upon which forms are built. Keylon
+Codes serve to direct the in- ﬂow and out- ﬂow of Partiki unit energy within
+the morphogenetic blueprint of a form into more specific patterns, rhythms of
+movement and electro-tonal vibration. All forms of matter and conscious-
+ness are structured upon speci fic sets of Keylon Codes that determine the base
+atomic and genetic makeup of a form and the characteristics of consciousness
+the form will possess. Keylon Codes represent complex patterns of interwo-
+ven sound tones and light spectra that form compound morphogenetic crys-
+talline structures that serve as the templates of living light and sound to
+455 
+                                     
+
+Introduction to Keylonta  
+which pre-matter sub-particles and matter and anti-matter particles will
+adhere.  
+      Keylon Codes create and hold together the primary morphogenetic
+structure of individuated form; they are the primary structure and organiza-
+tional collective intelligence within all things. The manifest attributes of all
+matter forms and consciousness can be affected through directed alteration of
+existing Keylon Code structures.  
+            Keylon Codes represent the compound tapestries of crystalline morphogenetic
+matter blueprints upon which pre-matter, anti-matter and matter particles will
+ form. They are the ﬁfth state of being between pure consciousness and form mani-
+ festation and serve as the complex, multidimensional, morphogenetic blueprint
+through which all individuated forms manifest.  
+       5. The Crystal Body:  This term is used to refer to the multidimensional
+Keylon Code structure of a matter form or form of consciousness. The Crystal
+Body represents the individuated morphogenetic construction of a form
+through which the contours of its manifest attributes will take shape. The
+morphogenetic Crystal Body sets the manifest characteristics a form will pos-
+sess, its intrinsic sub-atomic structure, body rhythms, metabolic rate and the
+foundations of DNA, the manner in which Partiki units will move through
+the form and the type of conscious awareness the form will embody. The
+human Crystal Body encompasses 12 dimensions of identity, sound frequency
+and light spectra and sets the structure for the bio-energetic chakra system,
+auric field and electromagnetic Merkaba Fields (counter-rotating spirals of
+multidimensional electromagnetic energy through which the auric field is
+formed).  
+            The Crystal Body represents the collective ﬁfth state of being between pure con-
+sciousness and form manifestation, in relation to an individuated construction of
+consciousness or matter . Through the Crystal Body the electromagnetic Merk-
+aba Fields of a form are designed and constructed.  
+      The Merkaba Fields represent the sixth state of being between pure conscious-
+ness and form manifestation.  Through the counter rotating electromagnetic
+fields of the Merkaba Fields the contours for the bio-energetic auric field and
+chakra system are formed in accordance with the design set by the Crystal
+Body.  
+            The bio-energetic auric ﬁeld and chakra systems represent the seventh state of
+being between consciousness and manifestation.  The bio-energetic field then
+serves to direct Partiki units from the Dimensional Unified Fields into parti-
+cle or anti-particle construction through which the DNA and biological par-
+ticle base of a form is set in to the dimensional framework. Through the bio-
+energetic system the pre-matter construction of a biological form is created.
+This pre-matter construction is referred to as the Nadis  and Nadial Capsule.
+The Nadial Capsule separates the levels of the auric field and the identity
+into 3-dimensional divisions and the Nadis serve as a system of minute pre-
+456                                                                    
+
+                                              Six Primary Elements of Keylontic Science  
+matter channels through which Partiki unit energy from the auric field ﬂows
+into the particle manifestation of the body.  
+        The Nadis and Nadial Capsule represent the eighth state of being between con-
+sciousness and manifestation. The particle and anti-particle construction which
+builds up through the pre-matter Nadis into a form's manifest particles or anti-parti-
+cles following the design set by the Crystal Body, represent the ninth state of being
+between consciousness and manifestation.  The multidimensional spiritual body
+of the Soul Matrix and Over-Soul Matrix are part of the individuated mor-
+phogenetic Crystal Body of humans, and these aspects of Eternal identity are
+composed of Keylon Codes, Keylons and Partiki units, just as the physical
+body is composed of these substances. The Crystal Body serves as the under-
+lying structure of all matter and consciousness, connects the physical aspects
+of being and identity to the multidimensional Soul and Over-Soul Matrices
+and connects each individuated form to the greater Crystal Body of the Cos-
+mic Uni fied Field. Through directed interaction with the morphogenetic
+Crystal Body both genetic and spiritual aspects of human evolution can be
+expanded and accelerated.  
+       6. Light-symbol Codes:  A Light-Symbol Code is a pattern of electro-
+tonal energy composed of speci fic Partiki configurations that make up fre-
+quencies of sound and spectra of light. These patterns of light and sound
+direct the speed, angles of interface and patterns of refraction and replication
+that Partiki units will follow within the Keylon Code structure of the Crystal
+Body. Light-Symbol Codes control the way energy will move and manifest
+within a form; they serve as the organizational “program” within all Keylons.
+By altering the Light-Symbol Code program within the Keylon Codes of the
+morphogenetic Crystal Body, the structure of the Keylon Codes and thus the
+manifestations they create can be changed.  
+       Human evolution of body and consciousness can be accelerated by acti-
+vating certain Light-Symbol Codes that are presently dormant within the
+Keylon Code structure of the Crystal Body. Once activated these dormant
+Light-Symbol Codes direct the morphogenetic Crystal Body, bioenergetic
+auric field and chakra system and DNA to operate in new ways. Light-Sym-
+bol Codes direct sound tones and light spectra within the contours of the
+Crystal Body. This directive serves to control the relationships between Par-
+tiki units in the Crystal Body, which translates into operational instructions
+for the bio-energetic system and DNA to follow. Light-Symbol Codes can be
+used to direct patterns of frequency into the bio-energetic field and DNA in
+very speci fic ways that will allow dormant potentials of the DNA to come
+into operation. The DNA directs the manifest functions of the physical body
+and the physically embodied consciousness, following the design set by the
+Light-Symbol Code program within the Crystal Body.  
+      Cellular Transmutation can be achieved by adding new frequency pat-
+terns into the Crystal Body by changing the program of the Light-Symbol
+457 
+                                                                                                                
+ 
+
+Introduction to Keylonta
+Codes to hold the new frequency patterns. The use of internal and external
+sound frequencies, light spectra and electromagnetic emanations creates hid-
+den Light-Symbol Codes within the Crystal Body, which can program the
+body toward health and wellness or disease and deterioration. The mind can
+be used to direct speci fic Light-Symbol Codes and the electro-tonal programs
+they carry into the Crystal Body to create healing, expansion of the genetic
+code and conscious awareness and acceleration of multidimensional physical
+and spiritual evolution. Through conscious direction of the Light-Symbol
+Code programs the body can be freed from its present space-time orientation
+by altering the particle pulsation rhythms of the body's dimensional particle
+base, once the genetic code has been expanded.  
+   Keylontic Science employs knowledge of the interrelationships between
+these six primary elements to integrate the aspects of multidimensional iden-
+tity and to create positive change and acceleration of evolution for all life
+forms in the cosmos. Keylonta is also used to create tactile technologies that
+assist in harmonious evolutionary progression. Keylontic Science is the study
+of morphogenetic fields and the processes by and through which conscious-
+ness becomes manifest. Units of identity from the central creative source
+move through and build themselves up within the following states of being,
+to become manifest forms and individuated identities as they evolve within
+the 15-dimensional system:
+1.   Morphogenetic Partiki Units of pure undifferentiated consciousness,
+2.   Morphogenetic Partiki Strands,
+3.   Morphogenetic Partiki Grids,
+4.   Morphogenetic Keylons,
+5.   Keylon Code Crystal Body composite morphogenetic fields,
+6.   Electromagnetic Merkaba Fields,
+7.   Bio-energetic fields and chakra systems,
+8.   Pre-matter Nadial substance,
+9.   Particle and Anti-particle construction,
+10. Simple to complex matter and anti-matter forms, elemental composites,
+     biological life-forms and sentient conscious identity and
+11. Expanded compound morphogenetic identities of pure sentient conscious-
+     ness, possessing complex 15-dimensional Crystal Body structures.Keylon-
+     tic Science studies and implements the natural laws and dynamics
+     inherent to the creation of matter and the evolution of consciousness.
+      
+   The Science of Keylonta can be viewed as the science of Light and
+Sound (electro-tonal units of Partiki), the Sub-conscious Symbol Codes
+(Light-Symbol Codes that program the Crystal Body and operate on a sub-
+conscious level) and the Base Codes of Matter (the crystalline Keylon Codes
+458 
+
+                                           Six Primary Elements of Keylontic Science
+that make up the morphogenetic Crystal Body and form the basis of all struc-
+ture). In simple terms Keylonta is the science of Creation and Consciousness,
+through which mastery of mind and matter can be achieved and by which spiritual
+integration and reunion with our creative Source is accomplished . The dynamics of
+Keylonta continually operate within every human being and connect each
+human to everything in the cosmos, regardless of whether humanity is con-
+scious of this process. The science of Keylonta allows humans to become con-
+scious co-creators within the multidimensional reality fields of the cosmos.
+Keylonta is the scientific reality behind all of the sacred practices of religions
+and mystical traditions. It represents the place where science meets its soul
+and religion acknowledges the dynamics of energetic reality inherent to
+spirit. Keylonta is the science of the future and of the ancient past, reaching
+backward and forward through time to help humanity rediscover sovereignty
+over its being today.                    
+     Example of a Partiki Grid
+“Lines of Light,” composed
+of minute, electro-tonal Par-
+tiki strands cross over and
+through each other, creating
+a myriad of geometrical
+forms that serve as a “fabric
+of light and sound,” or Par-
+tiki Grid . The Partiki Grid
+serves as a “collector” of Par-
+tiki units, pulling in new
+Partiki. As Partiki units
+build up within the Partiki
+grid, they begin to form more
+complex structures of elec-
+tro-tonal impulse that
+become imbedded in the grid
+as crystalline Keylon configurations, or Keylon Codes . The Keylon codes set
+and hold the structure for all manifestations of matter, pre-matter, anti-mat-
+ter and energy fields. Partiki Grids create  the Unified Field of Energy and
+Consciousness,  within which all things in the dimensionalized universe
+reside and Keylon Codes create individuation of form and consciousness
+within the Unified Field. Keylon Codes direct the patterns of Partiki fission/
+fusion and the patterns of refraction and replication of electro-tonal energy
+that allow for differentiation of form and consciousness within the unified
+Partiki grid of  the Cosmic Matrix.         
+459 
+                                                                                                  
+
+
+                                                                                        
+                                                                                                  Welcome to the Fifth World
+                         2.    A Light-symbol code program entered
+                               into a Keylon code within a Partiki 
+                               grid                                                                                              
+                                                                                                        
+                                                   WELCOME TO THE FIFTH WORLD
+    Many tribal cultures throughout our recent history have shared a rich tra-
+dition of prophecy regarding the transitions Earth will encounter during its
+2017 ascension cycle. Prophecies of events to come during this period have
+been interwoven with race creation stories and mythologies for over 26,556
+years. Though the Bridge Zone Project is a new addition to the roster of
+events soon scheduled to occur, intuitive knowledge of the ascension cycle
+period and the close of the 26,556-year Euiago time cycle has remained alive
+within numerous cultures of Earth for thousands of years. This hidden knowl-
+edge has shown itself within the Biblical prophecies of Revelations; it was the
+foundation for many rites of passage among the Essenes and other historical
+mystical societies.  
+    Reference to this ascension cycle can be found within the calculations of
+the Mayan calendar and inscriptions within the ancient Egyptian pyramids
+and this knowledge has played a major role within the rich tapestry of Native
+American oral tradition. The knowledge that Earth and the human race
+would face something monumental during the “end times” has been the com-
+prehension of visionaries throughout the course of recorded history. The “end
+times” represent the point in Earth’s evolution when the planet has com-
+pleted a cycle of 26,556 years and moves forward through its ascension period
+to begin a new cycle.  
+   Our upcoming “end times” hold a promise not present during the end
+times of past 26,566-year cycles, for this is the first time the planetary grid
+will vibrate high enough to allow planetary dimensional ascension to take
+place. This opportunity has not been available on Earth for over 200,000
+years. The Bridge Zone Project is made possible precisely because Earth is
+approaching the end of its present time cycle. If it were not for the Bridge
+Zone Project, Earth would once again be unable to ful fill the promise of
+ascension, as without guardian intervention Earth’s grid would not have
+reached the necessary level of vibration. The planet would have remained
+within the HU-1 dimensions for another 26,566-year cycle. The new cycle
+would have reached an early close with the destruction of Earth before the
+next ascension period occurred.  
+461 
+                                                                                                                                               
+
+ 
+                        Introduction to Keylonta
+     In many Native American traditions, the coming “end times” ascension
+cycle period is viewed as a transition from what is known as the Fourth
+World to the Fifth World. The transition is perceived in relation to a much
+longer cycle of history in which humanity evolved through three previous
+“worlds,” or time periods marked by advanced civilization and high techno-
+logical achievement. Contemporary historical analysis does not yet include
+these hidden aspects of human evolution. The truth of humanity’s lost past
+has remained protected through cultures living more closely in harmony with
+the Earth’s natural cycles. We are indeed now approaching the Fifth World.  
+  WORLD ONE:  560,000,000—550,750,000 years ago . The Alania
+and Lumia of Tara, before the fall to HU-1.  
+   WORLD TWO:  250,000,000—25,000,000 years ago . The five Clois-
+ter Races of the 12 Tribes seeded on Parallel Earth.  
+   WORLD THREE:  25,000,000—5,500,000 years ago . The First Seed-
+ing of the 12 Tribes on Earth. The five Cloister Races and Root Race Three:
+Lumanians and Four: Alanians. Ended via Electric Wars.             
+    WORLD FOUR:  3,700,000 years ago to present. The Second Seeding
+3,700,000—848,000 years ago, Root Races Three: Lamanians, Four: Atlanians
+and Five: Ayrians and their Cloister Races. Ended via The Thousand-Year
+War. The Third Seeding 75,000 years ago to present, Root Races Three:
+Lemurians, Four: Atlanteans and Five: Aryans and their Cloisters.  
+       Welcome to the Fifth W orld!  
+      Between 5/ 5/2000-2017 Earth will make its transition from the present
+ Fourth W orld of the D-3 time cycle, into the Fifth W orld of the Bridge Zone
+ and Taran ascension time cycles. Due to the Guardians' Bridge Zone Project ,
+  the cataclysmic events originally associated with the ''end times'' prophecies
+ have been largely avoided. Though there may still be warfare and geographi-
+              cal changes in some areas, the scale of these events will be much smaller than
+              those foretold through ancient prophecies. There will indeed be a ''cleans-
+               ing,'' as predicted by some Native American traditions. As the Earth sepa-
+              rates into higher and lower vibrating particle bases, Bridge Zone Earth and
+               Phantom Earth each will be ''cleansed'' of the other . Populations of the
+                  Bridge Zone Earth will rise to face a new dawn of evolution within the new
+             Fifth W orld of enlightenment, progress and achievement. Those on Phantom
+              Earth will not make this transition and will remain within the digressing
+              Fourth W orld evolutionary cycle of a Descending Planet in the D-3 time con-
+                          tinuum.  
+                     462  
+                           
+           
+
+                                                    
+                                             Appendix  III
+                                                                      
+                        
+                                                                        Ascension Cycle Dynamics  
+    Earth is approaching a time continuum shift between 5/5/2000-2017.
+This continuum shift represents a literal planetary time acceleration. Time
+accelerations constitute an increase in particle pulsation rhythm for the
+three-dimensional particle base of Earth. The human body exists as an intrin-
+sic part of the particle content of Earth. As Earth's particle base accelerates in
+pulsation rhythm, the particles that compose the human auric field will also
+increase in pulsation rhythm. If the physical body and bio-neurological struc-
+ture of the body are not prepared to synthesize the faster pulsating particles of
+the auric field, this time acceleration will manifest as acceleration of the cel-
+lular deterioration process.  
+     For the body to retain its vitality through the Earth’s time acceleration,
+the particle pulsation rhythm of the body’s three-dimensional particle base
+must also increase. The Morphogenetic Seed Crystal Seals within the bio-
+energetic system of the human body keep the body's particle base locked into
+the pulsation rhythms of dimensions 1-3. In order to accelerate the pulsation
+rhythm of the body’s particles, the Seed Crystal Seals must be released, to
+unlock the body’s particles from the pulsation rhythms of dimensions l-3.
+Seed Crystal Seals are opened by activation of the body’s Morphogenetic Star
+Crystal Seals.  
+     Star Crystal Seals are activated by awakening the dormant morphoge-
+netic chakra centers and drawing new frequency patterns through the chakra
+system and into the Star Crystal Seals. Activation and release of the Crystal
+Seals creates activation of the dormant Silicate Matrix DNA Fire Codes
+which in turn manufactures blood-crystal structures that raise the body’s met-
+abolic rate and prepare the body for cellular acceleration. Stellar Activations
+and Wave Infusions  are the process by which the Star Crystal Seals are acti-
+vated and  Stellar Spiral Alignments  are the catalysts through which Stellar
+Activations can occur. Humans who complete a minimum of 1.5 Stellar
+Activations will be able to raise the particle pulsation rate of the body suffi-
+ciently to avoid adverse effects of Earth’s time acceleration. The following
+463 
+                                                                                                                                      
+
+
+                 
+                         Ascension Cycle Dynamics
+                 information provides an introduction to the science of cellular transmutation
+                           through particle acceleration.
+                        
+                                      STELLAR ACTIVATIONS                    
+                  Transmutative Activations—Planetary and Persona l 
+      All matter forms and forms of consciousness, including planetary bodies
+and human bodies, are manifested through a morphogenetic (form-holding)
+imprint, which exists as a quantity of crystalline, electro-tonal energetic sub-
+stance that is composed of speci fic patterns of frequency. This morphogenetic
+imprint sets the pattern for a form within the 15-dimensional Uni fied Field of
+energy substance. The morphogenetic imprint holds the instructions and
+design for form-building in a type of digital or electronic encoding, known as
+Keylon Codes. Forms come into manifestation and evolve, as patterns of fre-
+quency are drawn into the form’s morphogenetic field, from the dimensional
+frequency bands of the Uni fied Field of energetic substance within which the
+morphogenetic field is placed. This drawing-in of frequency progressively
+expands the morphogenetic field and creates evolution of form progressively
+upward through the 15-dimensional universe.  
+      Within the 15-dimensional Uni fied Field, the morphogenetic field cre-
+ates structures of multidimensional electromagnetic energy, around and
+through which the matter form will manifest. These multidimensional EM
+fields are collectively referred to as the bio-energetic system or the auric field
+of a manifest form. All manifest forms possess a bio-energetic system/auric
+field. The auric field has seven primary, inner layers through which physical
+manifestation takes place and which correspond to dimensional frequency
+bands 1 through 7. The auric field also has seven outer layers, which repre-
+sent the form-holding morphogenetic imprints for the seven inner layers of
+the auric field. The seven outer layers correspond to dimensional frequency
+bands 9 through 15. The 14 layers of the auric field are connected to each
+other through a central point within the eighth dimension Meta-galactic
+Core. This center point represents the point through which a form’s original
+morphogenetic imprint was entered into the 15-dimensional system.  
+      All forms and beings are thus indelibly connected to each other and the
+universe through interwoven morphogenetic fields that are united through
+the D-8 center point. Energy moves from the seven outer morphogenetic lay-
+ers of the auric field, through the seven inner layers and into manifestation
+within dimensions 1-7, through the structure of dimensional Merkaba Fields
+(sets of counter-rotating, electromagnetic energy spirals). Each form has fif-
+teen dimensional Merkaba Fields, which hold its morphogenetic imprint
+intact within the 15-dimensional Uni fied Field. Through the rotation of the
