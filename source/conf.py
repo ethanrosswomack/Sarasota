@@ -35,7 +35,13 @@ source_suffix = {
     '.md': 'markdown',
 }
 templates_path = ['_templates']
-exclude_patterns = ['_build', 'Thumbs.db', '.DS_Store', '**/.ipynb_checkpoints/*']
+# Exclude the large collection of individual fragments used during the
+# conversion of Voyagers Volume II.  Without this exclusion Sphinx will
+# treat each fragment as an orphan page, which can slow down the build
+# and clutter the output.  We refer to the volume via a single
+# chaptered document instead.
+exclude_patterns = ['_build', 'Thumbs.db', '.DS_Store', '**/.ipynb_checkpoints/*',
+                    'voyagers_2/*']
 
 
 
@@ -50,4 +56,3 @@ html_theme_options = {
 }
 
 html_static_path = ['_static']
-exclude_patterns = ['_build', 'Thumbs.db', '.DS_Store', '**/.ipynb_checkpoints/*']
