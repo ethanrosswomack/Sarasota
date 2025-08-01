@@ -16,6 +16,8 @@ release = '2025'
 
 extensions = ['myst_parser', 'sphinx.ext.autodoc']
 
+html_baseurl = "https://sphinxguardian.com/"
+
 myst_enable_extensions = [
     "colon_fence",
     "deflist",
