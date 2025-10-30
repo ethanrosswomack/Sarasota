@@ -66,5 +66,4 @@ externalPort = 3000
 [deployment]
 deploymentTarget = "autoscale"
 run = ["bash", "-c", "cd build/html && python -m http.server 5000 --bind 0.0.0.0 & python chatbot_api.py"]
-publicDir = "build"
 build = ["sphinx-build", "-b", "html", "source", "build/html"]
