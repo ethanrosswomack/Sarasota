@@ -59,19 +59,24 @@ make html
 - Base URL is set to https://sphinxguardian.com/
 
 ## Recent Changes
-- 2025-10-30: Cleaned and fixed Volume 2 formatting issues
+- 2025-10-30: MAJOR REBUILD - Clean PDF extraction and custom mystical theme
+  - **Extracted clean text directly from PDFs** using PyMuPDF with intelligent processing
+  - Fixed hyphenation issues (no more "dimen-sional" breaks)
+  - Proper paragraph reflow for smooth, readable prose
+  - **Custom dark purple/green theme** with mystical aesthetic:
+    - Dark purple backgrounds (#1a0f2e, #2a1b3d)
+    - Green accents and headings (#7cd992, #9fe6ad)
+    - Subtle glow effects on headings
+    - Animated gradient background
+    - Custom scrollbars and hover effects
+  - **PDF download links** on homepage for both volumes
+  - Volume 2: 21 chapters extracted with proper boundaries
+  - All changes verified via screenshots
+  
+- 2025-10-30: Initial cleanup attempts (superseded by PDF extraction)
   - Removed Table of Contents headers from all chapters
   - Removed PDF watermarks and transaction information
-  - Removed page numbers and formatting artifacts
-  - Cleaned up excessive whitespace
-  - All 22 files (21 chapters + appendices) now render cleanly
-  - Created cleaning scripts: `clean_vol2_chapters.py` and `clean_vol2_aggressive.py`
-  
-- 2025-10-30: Added Volume 2 content from user-provided files
-  - Extracted 21 chapters and appendices from voyagers_vol2_md.zip
-  - Created new `source/voyagers_vol2/` directory for organized chapters
-  - Updated `source/index.rst` to include all Volume 2 chapters in navigation
-  - Rebuilt Sphinx documentation to generate HTML for all Volume 2 content
+  - Created cleaning scripts (later replaced by direct PDF extraction)
   
 - 2025-10-29: Initial Replit environment setup completed
   - Installed Python 3.11 and required Sphinx dependencies
