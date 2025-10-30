@@ -32,17 +32,43 @@ The project has been successfully set up in the Replit environment and is runnin
 - **Theme**: Furo with custom light/dark logos
 - **Excluded**: The `voyagers_2/` directory (201 fragmented files) is excluded from the build
 
+### AI Chatbot System
+- **Backend**: Flask API running on port 8080 (`chatbot_api.py`)
+- **RAG System**: Paragraph-level semantic search across all 21 chapters of Volume II
+- **OpenAI Integration**: Uses Replit AI Integrations (gpt-4o-mini model)
+- **Frontend**: Beautiful purple/green themed chat widget (`chatbot-widget.js`)
+- **Features**: 
+  - Contextual answers with chapter citations
+  - Intelligent paragraph-level content retrieval
+  - Production-ready with security hardening
+  - Mobile-responsive chat interface
+
+### Enhanced Features
+- **Reading Progress Tracking**: LocalStorage-based progress tracking remembers last page visited
+- **Continue Reading Button**: Homepage button to resume from last chapter
+- **Mobile Responsive**: Full mobile optimization with touch-friendly controls
+- **Built-in Search**: Sphinx search functionality for quick content lookup
+
 ### Deployment
-- **Development**: Python HTTP server on port 5000, bound to 0.0.0.0
-- **Production**: Configured for autoscale deployment
+- **Development**: Dual-workflow architecture
+  - Static server on port 5000 (documentation site)
+  - Chatbot API on port 8080 (AI assistant backend)
+- **Production**: Configured for autoscale deployment with both services
 - **External**: Also deployed to GitHub Pages at https://ethanrosswomack.github.io/Sarasota
 
 ## Running the Project
 
 ### Development Server
-The workflow "Server" runs automatically and serves the site on port 5000:
+Two workflows run automatically:
+
+**Server Workflow** (port 5000):
 ```bash
 cd build/html && python -m http.server 5000 --bind 0.0.0.0
+```
+
+**Chatbot API Workflow** (port 8080):
+```bash
+python chatbot_api.py
 ```
 
 ### Rebuilding Documentation
@@ -59,6 +85,16 @@ make html
 - Base URL is set to https://sphinxguardian.com/
 
 ## Recent Changes
+- 2025-10-30: AI CHATBOT SYSTEM - Production-ready AI assistant with RAG
+  - **Flask backend API** with OpenAI integration (gpt-4o-mini via Replit AI Integrations)
+  - **Paragraph-level RAG system** indexes all 21 chapters with intelligent semantic search
+  - **Beautiful chat widget** with purple/green theme matching site aesthetic
+  - **Production security hardening** (debug mode disabled, proper error handling)
+  - **Tested and verified**: Accurate answers with proper chapter citations
+  - **Reading progress tracking** with localStorage and "Continue Reading" button
+  - **Mobile responsive enhancements** for touch devices
+  - Architect-reviewed and approved for production deployment
+
 - 2025-10-30: MAJOR REBUILD - Clean PDF extraction and custom mystical theme
   - **Extracted clean text directly from PDFs** using PyMuPDF with intelligent processing
   - Fixed hyphenation issues (no more "dimen-sional" breaks)
