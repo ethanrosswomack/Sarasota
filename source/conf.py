@@ -62,4 +62,8 @@ html_theme_options = {
 html_static_path = ['_static']
 html_css_files = [
     'custom.css',
+    'mobile-enhancements.css',
+]
+html_js_files = [
+    'reading-progress.js',
 ]
