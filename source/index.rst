@@ -21,7 +21,7 @@ Voyagers Archive
 ----------------
 
 Voyagers Volume I
-------------------
+~~~~~~~~~~~~~~~~~
 .. toctree::
    :maxdepth: 2
    :caption: Voyagers Volume I
@@ -30,22 +30,12 @@ Voyagers Volume I
    voyagers_1/front_matter.md
    voyagers_1/chapter_*
 
-    Voyagers Volume II
-    -------------------
-    .. toctree::
-       :maxdepth: 2
-       :caption: Voyagers Volume II
+Voyagers Volume II
+~~~~~~~~~~~~~~~~~~
+.. toctree::
+   :maxdepth: 2
+   :caption: Voyagers Volume II
+   :glob:
 
-       #
-       # Only include a single source file for the second volume.
-       #
-       # The original project attempted to glob every file under
-       # ``voyagers_2/``, which resulted in hundreds of tiny pages with
-       # no headings (often just page numbers or TOC snippets).  Furo
-       # collapses huge toctrees into a dropdown and, when given more
-       # than ~100 items without proper titles, the entire section
-       # disappears from the navigation.  To restore a working table of
-       # contents for Volume II we point the toctree at a single
-       # long‑form document instead.
-       #
-       Voyagers_2_chaptered.md
+   voyagers_vol2/chapter_*
+   voyagers_vol2/appendices

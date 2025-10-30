@@ -21,7 +21,7 @@ Voyagers Archive
 ----------------
 
 Voyagers Volume I
-------------------
+~~~~~~~~~~~~~~~~~
 .. toctree::
    :maxdepth: 2
    :caption: Voyagers Volume I
@@ -31,10 +31,11 @@ Voyagers Volume I
    voyagers_1/chapter_*
 
 Voyagers Volume II
--------------------
+~~~~~~~~~~~~~~~~~~
 .. toctree::
    :maxdepth: 2
-   :caption: Voyagers II
+   :caption: Voyagers Volume II
    :glob:
 
-   voyagers_2/chapter_*
+   voyagers_vol2/chapter_*
+   voyagers_vol2/appendices

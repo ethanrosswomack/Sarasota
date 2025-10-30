@@ -25,9 +25,12 @@ The project has been successfully set up in the Replit environment and is runnin
 
 ### Content Structure
 - **Voyagers Volume I**: Located in `source/voyagers_1/`
-- **Voyagers Volume II**: Single chaptered document at `source/Voyagers_2_chaptered.md`
+- **Voyagers Volume II**: Organized chapters in `source/voyagers_vol2/`
+  - 21 individual chapter files (chapter_1.md through chapter_21.md)
+  - Appendices with reference material
 - **Frontmatter**: Introduction and archival information
 - **Theme**: Furo with custom light/dark logos
+- **Excluded**: The `voyagers_2/` directory (201 fragmented files) is excluded from the build
 
 ### Deployment
 - **Development**: Python HTTP server on port 5000, bound to 0.0.0.0
@@ -56,6 +59,13 @@ make html
 - Base URL is set to https://sphinxguardian.com/
 
 ## Recent Changes
+- 2025-10-30: Added Volume 2 content from user-provided files
+  - Extracted 21 chapters and appendices from voyagers_vol2_md.zip
+  - Created new `source/voyagers_vol2/` directory for organized chapters
+  - Updated `source/index.rst` to include all Volume 2 chapters in navigation
+  - Rebuilt Sphinx documentation to generate HTML for all Volume 2 content
+  - Verified all chapters and appendices display correctly
+  
 - 2025-10-29: Initial Replit environment setup completed
   - Installed Python 3.11 and required Sphinx dependencies
   - Configured workflow to serve static site on port 5000
