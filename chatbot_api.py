@@ -64,36 +64,63 @@ def load_voyagers_content():
     print(f"Loaded {len(voyagers_index)} chapters")
 
 def search_relevant_content(query, top_k=3):
-    """Simple keyword-based search for relevant content"""
+    """Search for relevant paragraphs across all chapters"""
     query_lower = query.lower()
     query_terms = set(re.findall(r'\w+', query_lower))
     
-    # Score each chapter
-    scores = []
-    for key, data in voyagers_index.items():
-        content_lower = data['content'].lower()
-        
-        # Simple scoring: count matching terms
-        matches = sum(1 for term in query_terms if term in content_lower)
-        
-        # Boost if query appears as phrase
-        if query_lower in content_lower:
-            matches += 10
-        
-        if matches > 0:
-            scores.append((matches, key, data))
+    # Score each paragraph in each chapter
+    paragraph_scores = []
     
-    # Sort by score and return top k
-    scores.sort(reverse=True)
-    return [
-        {
-            "volume": data["volume"],
-            "chapter": data["chapter"],
-            "title": data["title"],
-            "relevant_text": "\n\n".join(data["paragraphs"][:5])  # First 5 paragraphs
-        }
-        for score, key, data in scores[:top_k]
-    ]
+    for key, data in voyagers_index.items():
+        for i, paragraph in enumerate(data['paragraphs']):
+            para_lower = paragraph.lower()
+            
+            # Score this paragraph
+            term_matches = sum(1 for term in query_terms if term in para_lower)
+            
+            # Boost if query appears as exact phrase
+            phrase_boost = 15 if query_lower in para_lower else 0
+            
+            score = term_matches + phrase_boost
+            
+            if score > 0:
+                paragraph_scores.append({
+                    "score": score,
+                    "volume": data["volume"],
+                    "chapter": data["chapter"],
+                    "title": data["title"],
+                    "paragraph": paragraph,
+                    "para_index": i
+                })
+    
+    # Sort by score and group by chapter
+    paragraph_scores.sort(key=lambda x: x["score"], reverse=True)
+    
+    # Get top paragraphs, grouping by chapter
+    chapter_contexts = {}
+    for para_data in paragraph_scores[:15]:  # Top 15 paragraphs
+        chapter_key = f"{para_data['volume']}_ch{para_data['chapter']}"
+        if chapter_key not in chapter_contexts:
+            chapter_contexts[chapter_key] = {
+                "volume": para_data["volume"],
+                "chapter": para_data["chapter"],
+                "title": para_data["title"],
+                "paragraphs": []
+            }
+        chapter_contexts[chapter_key]["paragraphs"].append(para_data["paragraph"])
+    
+    # Build results from top chapters
+    results = []
+    for chapter_key in list(chapter_contexts.keys())[:top_k]:
+        chapter_data = chapter_contexts[chapter_key]
+        results.append({
+            "volume": chapter_data["volume"],
+            "chapter": chapter_data["chapter"],
+            "title": chapter_data["title"],
+            "relevant_text": "\n\n".join(chapter_data["paragraphs"][:8])  # Top 8 relevant paragraphs
+        })
+    
+    return results
 
 @app.route('/api/chat', methods=['POST'])
 def chat():
@@ -174,6 +201,6 @@ if __name__ == '__main__':
     # Load content on startup
     load_voyagers_content()
     
-    # Run Flask app
+    # Run Flask app (debug=False for production security)
     port = int(os.environ.get('PORT', 8080))
-    app.run(host='0.0.0.0', port=port, debug=True)
+    app.run(host='0.0.0.0', port=port, debug=False)
