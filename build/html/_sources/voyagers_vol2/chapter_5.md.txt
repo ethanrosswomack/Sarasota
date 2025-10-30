@@ -1,589 +1,4 @@
-# Chapter 5
-
-from the Blue Flame in order to charge objects with UHF fifth-dimensional
-energy. Two objects were charged prior to this sealing, so the Egyptian cul-
-tures would have a tool through which the Inner Earth portals could be
-opened. One object was a small, cylindrical object, ﬂat on one side and made
-of gold, which housed a small portion of the Earth's D-2 morphogenetic field,
-a small part of the Orange-gold Flame of Earth's core. This object became
-known as the Rod. The other object, also made of gold, was a staff about 3'
-long, containing several crystalline stones, which housed a minute portion of
-the Blue Flame morphogenetic field. This object was called the Staff.
-Though these objects did not have the power of the Ankhs, they enabled
-humans to enter the Inner Earth portals and could be used to facilitate heal-
-ing, to inﬂuence weather patterns and to access the portals of parallel Earth.
-The objects were stored within a lead-lined chest that was energetically
-charged with a frequency barrier so the energies of the Rod and Staff could
-not escape while the objects were in storage. The Rod and Staff, and the
-Ankhs were placed in the custody of the Annu-Melchizedeks from the Inner
-Earth, and the Ankhs were banned from being used by surface cultures. For a
-time, the Rod and Staff were used by the Egyptians who rebuilt the surface
-cultures, but later they were also banned from surface use and de-activated.
-Through time the chest in which the Rod and Staff were stored became
-known as the Arc of the Covenant, and the true meaning of the Arc of the
-Covenant and of the morphogenetic ﬂames of the D-2 Rod and the D-5 Staff
-became lost to all but a select few who remembered the true significance of
-these terms. 
-    The most treacherous problem created by this Atlantean misadventure
-was that the original seal on the Arc of the Covenant, which kept the Sphere
-of Amenti in place within the Andromeda planetary core, was sparked open
-by the EM-pulse transmission from the Great Crystal. The Sphere of Amenti
-began its descent to Earth. The Sphere of Amenti could only be entered into
-the Earth core if the Earth grid vibrated high enough to hold the frequencies
-within it, and only during the dimensional blending periods inherent to the
-Earth's natural time cycles. The descent of the Sphere from the Andromeda
-Galaxy would take 2,000 years. Not only was the Earth grid unprepared to
-house its energies, but the timing of entry would be completely out of syn-
-chronization with Earth's natural cycles. Having been released into the Arc
-of the Covenant portal bridge in 9558 BC, the Sphere of Amenti would
-intercept Earth sometime in 7558 BC. It would not arrive in time for the
-dimensional blend period of 9048 BC, and would arrive before the next
-dimensional blend period in 6835 BC. If the Sphere of Amenti attempted to
-enter Earth's three-dimensional body during a time period when Earth's
-fourth-dimensional vortices were not opened, the Sphere would explode
-upon impact with the natural frequency barrier that separates the third and
-fourth dimensions. This astral explosion would cause the Earth's fourth vor-
-
-                                                                             Sinking Atlantis and Earth Quarantine
-tex/chakra to collapse, which would systematically create a build up of energy
-throughout the remaining vortices and the Earth grid would explode. If the
-Sphere passed through the astral plane into the frequency bands of the third
-dimension in 7558 BC, the Earth would be reduced to space dust. 
-    In order to avert this pending Earth cataclysm the Ra Confederacy,
-Palaidorian and Sirian Councils, Elohim and several other Earth guardian
-groups devised a plan through which the Earth could be spared this prema-
-ture demise. This plan was put into effect in 9540 BC. The Elohim were com-
-missioned to alter the Earth's D-2 morphogenetic field in a way that would
-create a natural Frequency Fence, or energetic barrier, surrounding the Earth
-through which the Sphere of Amenti would be unable to pass. Certain free
-quency patterns were removed from the Earth's morphogenetic field, so the
-fourth-dimensional frequencies could no longer “plug into” Earth's three-
-dimensional body. The seventh through the twelfth base tones and seventh
-through the ninth overtones of the third-dimensional frequency bands were
-taken out of Earth's morphogenetic pattern. Without these frequencies, the
-fourth-dimensional frequency bands could not connect to the Earth's 3-
-dimensional body, so the Sphere of Amenti would be halted within the low-
-est frequency bands of the fourth dimension, as the path of frequency through
-which it would descend into the third dimension was severed. It would
-remain in the astral plane until the 3-dimensional frequencies were re-
-entered into the Earth's morphogenetic field. Without those frequencies the
-Earth would not be able to pull those specific tones into its planetary grid, so
-Earth would be halted in its tracks of time within the middle frequency bands
-of the third dimension. Though this protective measure was necessary at the
-time, it also stunted the planet's ability to evolve naturally out of HU-1. The
-guardians intended to release the Frequency Fence during an appropriate
-time cycle period, once the Earth grid had rebalanced and its vibrational rate
-had increased enough to accept a rapid return of the Sphere of Amenti. 
-    There were certain advantages and several drawbacks to this Frequency
-Fence plan. The 10th-12th overtones of the third dimension were left within
-the Earth's morphogenetic field, which meant that a portion of Earth's parti-
-cles would manifest within the 10th-12th frequency bands of the third
-dimension. A higher-vibrational “Earth phantom” was created, into which
-the Sphere of Amenti could be released during an appropriate time cycle.
-Once the Sphere was returned to the Earth Phantom energy imprint, the
-higher 3-dimensional aspects of the race awareness would be released from
-the D-4 Seal of Palaidor, and would be able to enter their race Cloister after
-death, so part of the soul essence could return to Sphere of Amenti to await
-the release of the fifth-dimensional Seal of Amenti. This meant that in the
-dimensional blending period of 6835 BC the Sphere of Amenti could be
-entered into the 10th-12th overtone frequency bands of D-3, and from that
-point on soul fragments would no longer become trapped in the D-4 astral     
-
-  A Journey Toward Awakening 
-plane upon death. This was a definite advantage in terms of the evolution of
-consciousness. However, there were also some disadvantages created by the
-mechanics of the Frequency Fence. 
-    The first disadvantage of the Frequency Fence was that the natural portal
-structures which allowed for interstellar transit into Earth would be cut off
-from the interdimensional grid. Interstellar Visitors could enter their craft
-into the Earth Phantom frequency bands, but could not easily enter onto the
-Earth's surface in the frequency bands below the Frequency Fence. Smaller,
-more adaptable vessels were needed to orchestrate visitation, and each time a
-vessel entered, it did so with the risk of disrupting the Frequency Fence,
-which could release the Sphere of Amenti from its storage place. The Elohim
-were put in charge of monitoring and protecting the Frequency Fence, and
-the guardian organizations agreed that interstellar visitation to Earth would
-be strictly limited to emergency intervention. The guardians adopted a policy
-of non-interference with earthly affairs, but continued to hold the Frequency
-Fence in place to preserve the integrity of the planet. lt was decided that
-humans would be allowed to orchestrate their own affairs on Earth, with the
-guardians attending to issues of evolutionary ascension from behind the
-scenes. Because the Sphere of Amenti was now in a location more vulnerable
-to Resistance attack, extremely high security measures were taken to ensure
-that no one disrupted the Sphere or breached the Frequency Fence without
-guardian approval. In the beginning, this fortification of the Fence was
-intended for security purposes, but later it was used as a opportunity for the
-Elohim to extend favoritism to those humans carrying genetic strains more
-closely connected to their own morphogenetic imprint. This gave an unfair
-evolutionary advantage to some humans, such as the Serres-Egyptians and
-those of the Hibiru Cloister, who had stronger genetic ties to the Elohim
-than many of the other races. The overall effect of the Frequency Fence and the
-security tactics used to enforce it, was that the physical Earth and its peoples were
-put under galactic Quarantine, losing all direct assistance from and relationship to
-the multidimensional, inter-galactic communities. Because of this quarantine,
-information that traveled through the frequency bands of the higher dimen-
-sions would no longer transmit into the Earth's grid and cellular memory. Not
-only would the race memory from the Sphere of Amenti be unavailable to
-humans upon the planet, but interdimensional communications from higher
-dimensional fields would also be curtailed, as higher frequency transmissions
-could not pass through the Frequency Fence. As generations of the races
-evolved beneath the Frequency Fence, previous memory of humanity's
-involvement with and genetic relationship to extraterrestrial civilizations
-faded, and the advantages of technological advancement those relationships
-allowed were lost. 
-    Due to implementation of the Frequency Fence in 9540 BC, Earth
-evolved under quarantine, and humanity was cut off from its interstellar heri-
-
-                                                                                       Dreaming, Ego, and Higher Self
-tage, but this was not the only disadvantage that the Frequency Fence cre-
-ated for the human populations. The process of a soul essence birthing out of
-the morphogenetic field of the Sphere of Amenti involves the essence pass-
-ing out of its morphogenetic field and into the morphogenetic field of the
-planet onto which it will birth. Once a soul essence has entered its planetary
-morphogenetic field, it will then pass into the fetal pattern that was created
-for its entry, and fetal integration of the soul consciousness occurs. As the
-individualized morphogenetic field of the soul essence passes through the
-planetary morphogenetic field, it picks up the frequency patterns characteris-
-tic to the planetary core, which allows the essence to “ground” its identity
-within the collective energy imprint of the planet. 
-    After the Frequency Fence was applied and some of the third-dimen-
-sional tones were removed from the planetary morphogenetic field, soul
-essences passing through the Earth core for birthing could not ground the full
-imprint for the third DNA strand, as the missing third-dimensional tones
-would not allow the companion codes from the soul morphogenetic field to
-plug into the Earth's morphogenetic field. The DNA is created in physical
-terms as its already existing morphogenetic imprint passes through the Earth
-core morphogenetic field where the energy imprint for the DNA then picks
-up the particle patterns from the Earth that will “ﬂesh out” the DNA imprint
-in terms of dense-matter particles. If certain frequencies /tones are missing
-from the Earth core, those frequencies carried in the DNA imprint cannot
-flesh out into matter particles, and the DNA will manifest without those
-tones in its operational strands. The Frequency Fence caused the third DNA
-strand to manifest without the seventh through the twelfth base tones and
-the seventh through the ninth overtones, which resulted in a genetic muta-
-tion for the human lineage. 
-                        DREAMING, EGO, AND HIGHER SELF 
-                                                    Dreaming 
-    The third DNA strand corresponds to the third-Solar Plexus chakra, and
-the third level of the bio-energetic field, the mental body. The DNA muta-
-tion caused a division, or missing frequency link, in the third DNA strand
-which manifested as a gap or void within areas of the bio-energetic system
-that corresponded to that strand. The seventh through the twelfth base
-tones/sub-frequency bands and seventh through the ninth overtones/sub-fre-
-quency bands of the third dimension were blocked out of the third chakra,
-and the nadial capsule, which naturally separates the third-dimensional/men-
-tal body, and fourth-dimensional/astral body levels of the bio-energetic field,
-developed a second barrier, creating an even larger gap between the con-
-scious mental awareness and the astral level of awareness. ln sleep the con-
-sciousness could travel into the astral identity, but now there would be a gap
-
-A Journey Toward Awakening 
-between the waking identity and its astral experience. This gap, created by
-the missing 7-12 base tones and 7-9 overtones, created a distortion in dream
-recall, in which the consciousness would encounter the missing tones and be
-unable to translate sensory information from frequency bands corresponding
-to those tones into the genetic code. Prior to the Frequency Fence, memory
-of other dimensional experience during the dream state was far more lucid, as
-experiences the consciousness had while disassociated from its focus in the
-body during sleep would be stored in the form of electrical impulse within the
-consciousness, and when the consciousness returned to the body these elec-
-trical impulses would be translated through the body into coherent, sequen-
-tial memory patterns.  (Note: conscious recall of higher dimensional experience requires the
-fourth DNA strand, as this strand allows the higher-dimensional experience
-to be transferred into the lower DNA strands and then into cellular memory
-and conscious recognition. The Third Lamanian/Lemurian Root Race and
-their Ur-Antrian Cloister, and the fourth Atlanian/Atlantean Root Race and
-their Breanoua Cloister did not dream multidimensionally as the later races
-would, because they did not have the fourth DNA strand manifest within
-their genetic code. Their dream experience was limited to activity taking
-place within the second- and third-dimensional fields. The Fifth Root Race
-Ayrians/Aryans and their Hibiru Cloister brought multidimensional dream-
-ing and astral projection of consciousness into the human gene pool, as they
-held the fourth strand DNA imprint within their genetic code. In the races of
-the First Seeding, before the Seal of Amenti was manifest in the gene code,
-dreaming took place on a fully conscious level and a sleep state of disassocia-
-tion from the body was not required, as perception of various dimensional
-fields took place on a fully conscious level. One would consciously perceive
-and interact with the dimensional fields corresponding to the number of
-DNA strands in the gene code, and the physical body was continually replen-
-ished on a conscious level by drawing energy from the morphogenetic field of
-Amenti through breathing. Only after the Seal of Amenti was applied did
-humans have to disassociate from the body in sleep to revitalize the physical
-structure and participate in other dimensional experience.) 
-    After the Frequency Fence of 9540 BC was in place higher-dimensional
-experience was unable to translate directly into the human cellular memory.
-The electrical impulses within the consciousness, within which the imprint of
-higher dimensional experiences were stored, could not pass through the gap
-within the third DNA strand, so this experiential memory could not be trans-
-lated into conscious, sequential dream recall. In contemporary times, now that
-the Frequency Fence is beginning to lift and the third DNA strand is being
-repaired, sequential dream recall and memory of higher dimensional experience is
-once again developing in the races, and experiences associated with development
-of the higher DNA strands, such as lucid dreaming, simultaneous dreaming, con-
-
-                                                                                      Dreaming, Ego, and Higher Self
-scious astral projection and mental bilocation are also now emerging. For the ear-
-lier races, this loss of cognizant dream recall created an extreme sense of
-isolation and an over developed focus of consciousness within the external
-world. Dream recall was not the only area of human consciousness to be
-affected by the Frequency Fence. 
-                                The Ego and the Higher Self 
-     Through the mutation in the third DNA strand, which manifested as a
-division within the third chakra and mental body level of the bio-energetic
-field, a new kind of consciousness developed within the races. As the first
-through sixth base tones and 10th-12th overtones were left operational
-within the third DNA strand, two aspects of personal mental identity were
-brought into manifestation. The conscious mind, or conscious focus of atten-
-tion, was divided into two areas that did not consciously associate with each
-other. The portions of consciousness that manifested through the first
-through sixth base tones of the third DNA strand were focused and could
-perceive within the lower vibrating energy fields of the first through sixth
-sub-frequency bands of the third dimension. The portions of consciousness
-that manifested through the 10th-12th overtones of the third DNA strand
-were focused and could perceive within the higher vibrating energy fields of
-the l0th-l2th sub frequency bands of the third dimension. The portions of
-personal identity manifesting through the lower base tones of the third DNA
-strands became the lower self, or what has come to be known as the Ego, and
-its perceptions are limited to activity taking place within the lower portions
-of the third dimension. The portions of identity manifesting through the
-higher overtones of the third DNA strand became the Higher Self. The
-Higher Self mind could perceive activity taking place within the highest sub-
-frequency bands of the third dimension.         
-    The lower mind Ego developed an exaggerated sense of dualistic percep-
-tion, as it became locked into five-sensory perception. Using only five sensory
-perception, extreme distinctions between the inner world of personal iden-
-tity and the outer world of manifest reality were perceived, as the cognition
-of “where the inside and outside of things meet” was blocked from conscious
-perception. The inner and outer realities meet within the morphogenetic
-field of the race identity and that of the Earth’s core, where the energetic
-inter-relationship between the planet and its people is understood. Through
-the race morphogenetic field in the Sphere of Amenti the individual's con-
-nection to its race and the purposes for its existence within the greater plan
-of evolution can be understood, as the evolutionary plan exists within the
-morphogenetic field as an energetic blue print through which identities and
-events manifest. The race morphogenetic field also holds the individuated
-morphogenetic field for a person, and contains the higher dimensional soul
-aspects of consciousness through which the contours of the individual incar-
-
-A Journey Toward Awakening 
-nation are designed. Through the Frequency Fence the Ego became cut off
-from conscious relationship with its personal morphogenetic field and from
-the morphogenetic fields of its race and the planet. The Ego awareness felt
-itself to be isolated and separate from the world around it, and could not per-
-ceive the creative principle or purposes through which it came to be. Human
-consciousness became “locked within the illusion of matter” as a result of the Fre-
-quency Fence, unable to perceive or comprehend the reality of non-manifest sub-
-stance through which all manifest things are created. Human consciousness lost
-touch with the common Source within and behind all things, and so lost its ability to
-identify with and comprehend the beings and things that appeared to exist outside of
-itself. Humanity's connection to the Universe remained a reality, but the Ego
-awareness lost the ability to consciously perceive that reality. The Egotistical
-mind perceived itself as limited and finite, and so developed an overly aggres-
-sive need to dominate and control its external environment as a means of
-attempting to insure its survival. As humans evolved to view themselves as
-finite creatures at the mercy of a seemingly hostile external environment, the
-lower Egotistical mind became isolated, lonely and very frightened. Healing
-of the Egotistical mind would require its integration with the Higher Self
-mind, through which its power and place within the universe could be under-
-stood. 
-      The Higher Self mind could not only perceive in the highest frequency
-bands of the third dimension, it could also “plug into” the D-4 astral identity
-and the soul matrix identity that is contained within the fourth-, fifth- and
-sixth-dimensional frequency patterns of the Amenti morphogenetic field.
-The Higher Self allowed the fourth and fifth DNA strands to begin manifest-
-ing, if those strand imprints were contained within the race DNA imprint.
-As long as the Frequency Fence was operational the Ego could not translate
-higher dimensional data into conscious awareness, nor could it translate the
-comprehension of the Higher Self mind. But the elemental aspects of the
-human body, the portions of consciousness manifesting through the second
-DNA strand that are focused within the second-dimensional frequency fields,
-could translate portions of the Higher Self cognition, as the 10th-12th over-
-tones of DNA strand two could translate some of the electrical impulses from
-the 10th-l2th overtones of DNA strand 3. Strand two had already been
-altered through the Seal of Palaidor, creating the division between the D-2
-emotional identity and the D-3 mental awareness which created the sub-con-
-scious mind, so the portions of the Higher Self perceptions that could trans-
-late through the D-2 strand appeared within the body through the sub-
-conscious mind, appearing as felt emotional response. The Higher Self com-
-municated data to the conscious awareness via sub-consciously sensed feel-
-ing, that became known as the Intuitive Sense. Intuition represents information
-from the Higher Self sent to the conscious awareness via the body and sub-conscious
-mind. 
-
-                                                                                         Dreaming, Ego, and Higher Self
-    In the present day human, as the third DNA strand begins its reverse-
-mutation through the lifting of the Frequency Fence, the perceptions and
-cognition of the Higher Self become consciously available to the lower mind
-of the Ego, and through this conscious connection the Ego rediscovers its
-multidimensional aspects of awareness. When the third DNA strand is com-
-pletely assembled, the Higher Self aspect of identity will merge with the Ego
-and the mental awareness will comprehend itself as being a multidimensional
-identity. The Higher Self serves as a bridge between the identity focused in
-HU-1 reality and the soul imprint of that identity which is focused in HU -2.
-The first step in integrating the Ego into its multidimensional identity is to
-open the lines of conscious communication between Ego and Higher Self. In
-contemporary terms this is often called “channeling your Higher Self," but the
-reality of that process is assembling the third DNA strand through which the
-two levels of mind can merge. 
-     If the Ego makes a conscious effort to allow its Higher Self to speak, the
-third DNA strand assembly process is accelerated, and information received
-from the Higher Self will evolve from vaguely sensed intuitive impressions, to
-direct inner verbal and visual communication, then eventually the Ego will
-understand the Higher Self to be part of its own identity, a focus of conscious-
-ness into which it can direct its awareness to receive a greater spectrum of
-information. Once a person becomes the Higher Self, there is no longer an
-egotistical focus, as the lower and higher minds have become integrated into
-a “Superconscious Mind,” which can develop multidimensional perception
-and abilities. Through the super conscious mind the D-2 sub-conscious mind
-and D-l physical body consciousness can also be integrated into the con-
-scious awareness. Working with, through, and becoming the Higher Self is
-the next step in human evolution, and through this endeavor the healing and
-assembly of the DNA can occur, under the direction of the super-conscious
-self. The Higher Self and the Ego came into being within the human lineage in 9540
-BC, manifesting as a result of the Frequency Fence that was created to stop the
-Sphere of Amenti from destroying the Earth by entering the Earth's core prema-
-turely. 
-
-A Journey Toward Awakening 
-                          ALCYONE AND THE TEMPLAR SEAL 
-  The Templar Seal and the Annu-Melchizedek and Hebrew Races, 
- Realignment of the Melchizedek Cloister Morphogenetic Field, the      
-      Annu-Melchizedek and Hebrew Races Removed and Serres-Egyptians 
-        and Cloister Melchizedeks Appointed as Guardians of the Arc of the              
-               Covenant, Resurrecting the Great Pyramid and the Sphinx. 
-                                       8000 BC-5466 BC 
-    The races who returned from the Inner Earth to re-establish surface civi-
-lization, after the 9558 BC sinking of the Atlantean Islands, were faced with
-many new hardships as rebuilding of their cultures was orchestrated through
-manual labor, without the use of the Great Crystal Generators and high pow-
-ered Ankhs to which they had become accustomed. Following the employ-
-ment of Earth's quarantine in 9540 BC, and its resulting genetic mutation,
-evolution became an even slower, more arduous task. The Egyptian-Serres,
-Annu-Melchizedeks and Hebrew peoples were guardians of the Arc of the
-Covenant and were permitted to have custody of the Rod and the Staff so
-their connection to the Inner Earth civilizations could remain open. The
-Great Pyramid and the Sphinx suffered damage during the ﬂooding that fol-
-lowed the downfall of Atlantis, but portions of these and other structures
-remained intact, and these were once again used as a central hub around
-which the cultures would rebuild. The Serres-Egyptians remained as the royal
-line in Egyptian culture, while remnants of the Lemurian and Atlantean cul-
-tures and the Breanoua and Ur-Antrian Cloisters, the Annu-Melchizedeks of
-the Inner Earth, the Hibiru, Aryans, Cloister Melchizedeks and the Hebrew
-races populated Egypt and various other locations of the globe. The first num-
-ber of generations were preoccupied with survival issues and the development
-of small cultural clans, which eventually led to the development of larger
-social orders. The Egyptian culture received much assistance from the Inner
-Earth races as the Arc of the Covenant was located within the Egyptian lands
-and surface guardianship of this and other portal passages was placed in the
-hands of the developing races in this area. 
-    During the retreat to the Inner Earth at the time of the sinking of Atlan-
-tis, numbers of Templar-Annu had also entered the inner territories. (The
-Templar-Annu were those born into the Atlantian-sub-race-Egyptian race
-through the Melchizedek Host Matrix, who later interbred with members of
-the Anunnaki Resistance, inheriting all or part of the genetic distortion
-Templar Seal from this extraterrestrial race). The Templar-Annu interbred
-with many different races in generations following Atlantis, especially with
-those of the Annu-Melchizedek and Hebrew (Hibiru/Melchizedek) lines,
-passing on concentrations of the Templar Seal distortion throughout the
-Melchizedek races. The distortions of the Templar creed had also made their
-
-                                                                              Alcyone and the Templar Seal
-way into the Inner Earth societies and their patriarchal, elitist, sexist, materi-
-alistic slant began to color the original teachings of the Templar within cer-
-tain groups. These creed distortions became apparent in the evolution of the
-surface cultures, as did the progression of the Templar Seal genetic distortion,
-as well as various other genetic anomalies that were created through inter-
-breeding with a variety of Interstellar Visitors during the times of Atlantis.¹
-     The genetic distortions were of great concern to the Palaidorians and
-guardian races, as if the deviations in the DNA imprint became too numer-
-ous, the original imprint for the races would be lost. If enough soul essences
-from lineage with deviating genetic imprints passed back into their race mor-
-phogenetic field at death, those deviations would eventually override the
-original patterns in the morphogenetic field. If the Amenti race morphoge-
-netic field became misaligned with the 12-strand pattern, evolution of the
-12-strand DNA package could not take place. 
-      In order to preserve the integrity of the Turaneusiam-2/human genetic line,
-the Sirian Council and Elohim were authorized by the Ra Confederacy to
-remove certain portions of the race morphogenetic field from the Sphere of
-Amenti, so the Amenti race morphogenetic field would not become misaligned
-by deviations in the genetic imprint. The races removed from Amenti would
-pass through the planetary morphogenetic field of Alcyone, and after death the
-soul essence would evolve as consciousness for a time within the frequency
-fields of Alcyone, through which genetic deviations of the human line could be
-processed out before the consciousness returned to the Sphere of Amenti. This
-separation of the morphogenetic fields became known as the Templar Seal. It
-involved removing the sixth base tone of the second DNA strand, the sixth
-overtone of the fourth DNA strand and the 12th overtone of the fifth DNA
-strand. The races bearing this genetic imprint configuration were sealed out of
-the Sphere of Amenti morphogenetic field and redirected into evolution
-through Alcyone, with the intention of one day releasing the Templar Seal and
-reentering their morphogenetic field back into the Sphere of Amenti for ascen-
-sion. 
-     The races bearing the most genetic deviation were those of the Templar-
-Annu, who had been seeded through the Melchizedek Host Matrix, and
-through them larger portions of the Melchizedek Cloister had become mis-
-aligned with the 12-strand DNA imprint. Through the Melchizedek morpho-
-genetic field, the Hebrew-Melchizedeks and Annu-Melchizedeks also carried
-                 1.   The Zephelium, the original race line of the modern day Zeta Reticuli and their Greys,
-                           were one of the visiting groups to Atlantis who became genetically mixed with some of
-      the Templar-Annu race families. The reason contemporary Zeta sought genetic material
-      from our race was that they hoped to find traces of their own original genetic imprint in
-      our DNA, so they could reverse the mutations that had occurred in their own genetic
-           lines and create hybrid versions of themselves more suited to Earth's environment 
-
-                  A Journey Toward Awakening
-excessive genetic deviation, so the morphogenetic fields of these three groups
-were chosen for re-alignment through Alcyone. 
-    It is important to note that the genetic deviations carried by these groups
-were not inferior or “bad;” the deviations simply would have taken those
-aspects of humanity on a different evolutionary course. This would have
-eventually redirected the entire course of human evolution, and the original
-Turaneusiam 12-strand DNA package would no longer be available to the
-human lineage of Earth. The 12-strand package is one of the highest genetic
-imprints within HU-1 and HU-2 for it allows full transmutation out of matter
-and can embody the consciousness of a 12-dimensional oversoul when the 12
-strands are fully activated. Very few biological forms possess this potential.
-Humans carrying the lineage of the deviated genetic codes are in no way infe-
-rior to other human strains, and as long as excessive deviations are not
-allowed to alter the original Amenti morphogenetic field, those races do not
-pose a threat to the human lineage. As you will see, through the course of this
-chapter, the guardian races have insured the integrity of the human genetic
-imprint, and have also made it possible for the races deviating from that
-imprint to return and ascend through the Sphere of Amenti. The Hebrew
-morphogenetic field was realigned and entered into the Sphere of Amenti
-about 2000 years ago with the birth of the man who has come to be known as
-Jesus Christ, and the Annu-Melchizedeks and Templar-Annu were reentered
-into Amenti about 3,300 years ago with the birth of the Pharaoh Akhenaton/
-Amenophis IV. 
-    At your present point in history all of your races are part of the Amenti
-morphogenetic field, and all of you are in the process of healing and assem-
-bling various DNA configurations. We do not want the more immature among
-you to misuse this information on genetic lineage as grounds for unfair and discrim-
-inatory attitudes toward other members of   your  race, for such discrimination has no
-intelligent basis and is groundless. We would also like to mention here that of
-the Third through Seventh Root Races and their Cloisters, each of the seven
-sub-races within each race carries one of the race strains from each of the
-seven Root Races. For example, those of the Aryan Root Race affiliated with
-the Hibiru Cloister, who carry the gene code imprint for the white skinned
-races, have within their seven sub-races a white skinned sub-race with a dom-
-inant Aryan or Hibiru Cloister gene, a black skinned sub-race with a domi-
-nant Euanjhechi or Yunaseti Cloister gene, a yellow skinned sub-race with a
-dominant Muvarian or Melchizedek Cloister gene, a brown skinned sub-race
-with a dominant Lemurian or Ur-Antrian gene, and a red skinned sub-race
-with a dominant Atlantean or Breanoua Cloister gene. There will also be two
-additional sub-races which bear the primary skin color of their Root Race and
-Cloister, who carry a dominant gene from the First Polarian and Second
-Hyperbornean Root Races of Gaia. Each of the primary Root Races and their
-Cloisters have this inter-mixed sub-racial division. The seven sub-families
-
-                                                                                        Alcyone and the Templar Seal
-within each of the seven sub-races are even further intermixed. We tell you
-this so you may come to realize that all of your races, though diversified in
-genetic content are equal in value and all of them, by the design of their mor-
-phogenetic pattern, are intertwined. 
-    Discrimination of race, genetic lineage, or skin color is as ridiculous and
-unfounded a notion as gender discrimination. Both of these ideas were given to you
-at   various periods by different groups of non-terrestrial Visitors, in order to manipu-
-late the evolution of the races for their own purposes. These notions have kept
-your races and genders at odds, competing for who is better or best, when
-instead the true power and beauty of the human races lies within its unity
-which allows for diversification. You are all of equal value and importance,
-and each of you brings unique characteristics and gifts into the human gene
-pool. It would do your species well to realize this fact, so you can learn to
-work together, through which all of you may heal and prosper. Now we will
-conclude our discussion on the realignment of the Melchizedek morphoge-
-netic field. 
-    Following the implementation of the Templar Seal upon the Annu and
-Hebrew morphogenetic fields, these groups were provided with teachings from
-the Priesthood of Ur in the lnner Earth, through which they were counseled
-not to interbreed with members of the other races, so as not to pass on the
-Templar Seal gene configuration. Unfortunately, these teachings eventually
-became distorted, the original meaning for the ban on interracial mixing
-became lost, and the teachings evolved into an elitist creed of genetic superior-
-ity among these groups. This attitude was perpetuated within the Annu and
-Hebrew races and later developed into unnecessary cultural discord between
-those of Annu and Hebrew lineage, and the Serres-Egyptian ruling class, and
-the Hibiru, Aryan and Cloister Melchizedek families who made up the majority
-of the Egyptian nations populations. This interracial discord exaggerated
-already existing conditions of competition and conquest among the races.
-When the Halls of Amenti were opened in 1374 BC, this interracial discord
-proved to be a second primary setback to preparation for the 2017 AD mass
-ascension wave. Due to interracial difficulties between the Annu-Melchizedek
-and the Serres-Egyptian majorities, the Halls of Amenti were once again closed
-and mass preparation for ascension was curtailed. 
-    When the Templar Seals were applied in 8,000 BC, guardianship of the
-Arc of the Covenant was transferred out of the hands of the Annu-
-Melchizedeks and Hebrew races into the protection of the Serres-Egyptians
-and Cloister Family Melchizedeks (those born through the Sphere of Amenti
-Melchizedek Cloister after the Annu and Hebrew morphogenetic fields had
-been removed). Previously the four races shared responsibility and accessibil-
-ity to the Arc of the Covenant, but following the Templar Seal only Cloister
-Melchizedeks and Serres-Egyptians were permitted direct involvement with
-
-A Journey Toward Awakening 
-the Inner Earth Priesthood of Ur, whose training kept knowledge of the Arc
-of the Covenant alive within the surface cultures. From 8,000 BC forward the
-cultures developed with greater racial divisions, some groups leaving the
-areas which came to be known as Giza, integrating into other cultural bases
-along the Nile river, such as Thebes and into Nubia, others journeying into
-the territories of what came to be known as Jerusalem, and Sumeria and Ur
-along the Euphrates River, intermixing with the descendants of the other
-Root Races and their Cloisters. The Serres-Egyptians and Cloister
-Melchizedeks remained concentrated in the area of Giza where the Arc of
-the Covenant entered the Earth, and continued to build up their civiliza-
-tions, with periods of achievement tempered by periods of digression. 
-    During the height of pre-dynastic Egypt, following an inﬂux of cultures
-from various other regions, the Serres-Egyptians and Cloister Melchizedeks,
-under the direction of the Priesthood of Ur, made an attempt to reconstruct
-the remains of the Great Pyramid of Giza and the Sphinx, which had been
-damaged in the deluge following the sinking of Atlantis in 9,958 BC. Using
-manual labor, the Great Pyramid was restored around 5,546 BC, as a religious
-center through which the Arc of the Covenant was fortified and secured, but
-the structure no longer served as an interstellar teleport due to the pole tilt
-resulting from the Atlantean cataclysm and the Frequency Fence of 9,540
-BC. The Sphinx was reconstructed around 5,466 BC, the contours of the
-structure's facial features were altered to more closely resemble the appear-
-ance of the Serres-Egyptian line, and the stronger, more exaggerated facial
-features characteristic to the Anunnaki lineage (who originally designed the
-structure in 46,459 BC) were omitted from the reconstruction. The form of
-the Leonine body remained as a tribute to remembered gods of Egyptian
-mythology, who represented symbolic trace memories of ancient Anunnaki
-affiliations with the HU-2 Leonine races. The early dynastic periods of Egypt
-emerged around 3,500 BC, bearing increasing influence of cultural inﬂux
-from various other regions. The Arc of the Covenant, Sphere of Amenti and
-the tools of the Rod and the Staff became closely guarded secrets, held within the
-conﬁnes of select Serres-Egyptian and Melchizedek Cloister families  with  whom the
-Priests of Ur continued covert contact. 
-
-Return to Amenti 
-                                                 PHARAOH AKHENATON 
-                   Return of the Sphere of Amenti, Birth of Pharaoh Akhenaton/ 
-                      Amenophis IV, Templar Seal Released From the Annu Races, 
-                                           Opening the Halls of Amenti and Ascension 
-                                                              2409 BC-l362 BC 
-    The Sphere of Amenti could only be reentered into Earth’s core during
-the periods of dimensional blending within Earth’s natural time cycles. The
-Elohim and guardians from HU-2 and HU-3 had orchestrated the Frequency
-Fence and Earth's quarantine in 9540 BC in order to prevent the Sphere from
-destroying Earth after it had prematurely descended through the Arc of the
-Covenant as a result of the Atlantean cataclysm, and since 9540 BC the
-Sphere of Amenti had been in storage, under high security, within the fre-
-quency bands of the fourth dimension astral planes. The Earth’s grid had sta-
-bilized and risen in vibrational speed since the times of Atlantis, and the
-guardian races made plans to reenter the Sphere of Amenti into Earth’s core
-through the barrier between the third and fourth dimensions during the next
-natural opening in the time cycle, in preparation for opening the Halls of
-Amenti. The next natural dimensional blending period would occur in 2409
-BC, which marked the half cycle point within the 4426-year cycle that began
-in 4622 BC. If the Sphere of Amenti could be entered into the third dimen-
-sion in 2409 BC, it could then be returned to the Earth’s D-2 core whenever
-the Earth grid speed rose high enough to hold the frequencies of the Blue
-Flame morphogenetic field of Tara, which needed to be embodied on the
-planet for the Halls of Amenti to open. As the Melchizedek Cloister race
-held the imprint for the fifth DNA strand, which would pull fifth-dimen-
-sional frequencies into the Earth grid, the opening of the Halls of Amenti
-was dependent upon enough of the Melchizedeks and fifth strand hybrid races
-being present on Earth to raise the grid speed high enough to hold the Blue
+# Chapter 5: Return to Amenti
 
                   Return to Amenti
 Flame. In order to raise the grid speed, 8% of the total global population had to have
@@ -592,43 +7,41 @@ into Earth’s core until a concentration of Cloister Melchizedeks had been born
 second mass birthing wave of Melchizedek Cloister souls was scheduled to
 occur around 1500 BC, so the tentative date for the opening of the Halls of
 Amenti was set for a period following the 1500 BC Melchizedek Cloister
-birthing wave. 
+birthing wave.	
       The Sphere of Amenti was released from D-4 by the Elohim in 2409 BC.
 The seventh through 12th base tones of the third dimension, which had been
-removed from Earth’s morphogenetic field to create the Frequency Fence,
+removed from Earth’s morphogenetic ﬁeld to create the Frequency Fence,
 were readjusted. The eighth through 12th base tones of D-3 were re-entered
-into the Earth’s morphogenetic field, reconstructing the Frequency Fence
+into the Earth’s morphogenetic ﬁeld, reconstructing the Frequency Fence
 between the sixth and eighth base tones of the third dimension. This allowed
 the Sphere to enter into the UHF bands of D-3 until it was time to open the
 Halls of Amenti. Releasing the Sphere from the UHF bands of D-3 did not
 require synchronization with a natural dimensional blend period as would
-have been necessary if the Sphere remained in D-4. 
+have been necessary if the Sphere remained in D-4.	
      Following the Melchizedek birthing wave of 1500 BC, plans were made
 for the opening of the Halls of Amenti. This opportunity would also be used
-to begin the reintegrating of the Annu-Melchizedek morphogenetic field,
+to begin the reintegrating of the Annu-Melchizedek morphogenetic ﬁeld,
 which was stored in Alcyone under the Templar Seal. It was decided that in
 the year 1398 BC an avatar from HU-2 would birth on to Earth through the
-Annu-Melchizedek morphogenetic field, then through the Sphere of Amenti
-and into the Earth. By passing an avatar soul essence, who carried at least 9-
-dimensional frequencies within its personal morphogenetic field, the genetic
-imprint deviations in the Annu-Melchizedek morphogenetic field could be
+Annu-Melchizedek morphogenetic ﬁeld, then through the Sphere of Amenti
+and into the Earth. By passing an avatar soul essence, who carried at least 9dimensional frequencies within its personal morphogenetic ﬁeld, the genetic
+imprint deviations in the Annu-Melchizedek morphogenetic ﬁeld could be
 realigned with the HU-2 frequency patterns. This process would serve to
-clear the Annu morphogenetic field of its distortions and reintegrate the
-Annu back into the Cloister Melchizedek morphogenetic field in the Sphere
+clear the Annu morphogenetic ﬁeld of its distortions and reintegrate the
+Annu back into the Cloister Melchizedek morphogenetic ﬁeld in the Sphere
 of Amenti. Following the birth of this avatar, the Annu peoples would be
 released from the Templar Seal and would be able to ascend to Tara with the
 unsealed races when the Halls of Amenti opened. The birth of the avatar
 would “spark,” or quickly raise the frequency of the Earth grid, which would
 in tum cause the Earth core vibrational rate to increase, so a spark would be
 released from the Earth core into the Arc of the Covenant, thereby releasing
-the Sphere of Amenti into the Earth core. 
+the Sphere of Amenti into the Earth core.	
     The avatar chosen for this project was a pure Anunnaki soul essence
-appointed by the Sirian Council from HU-2 It was necessary for an Anun-
-naki to serve this role in order to realign the Annu genetic imprint to its orig-
-inal order. The avatar was born in 1398 BC, in the city of Thebes, Egypt, as
+appointed by the Sirian Council from HU-2 It was necessary for an Anunnaki to serve this role in order to realign the Annu genetic imprint to its original order. The avatar was born in 1398 BC, in the city of Thebes, Egypt, as
 the son of a Serres-Egyptian father and Annu-Melchizedek mother. This
 child became known as Amenophis IV, son of Pharaoh Amenophis III and
 Queen Tiy. When the child was grown he changed his name to Akhenaton
+88	
 
                                                                                                               Pharaoh Akhenaton
 (1366 BC), and began the Atonist movement within the Egyptian New
@@ -642,10 +55,10 @@ and Akhenaton served as regent with his mother Queen Tiy until 1370 BC,
 when at age 28 he began his 17-year Pharaonic rule). The Melchizedek
 Cloister soul group who were to serve as Keepers of the Flame were birthed
 into this time period in synchronization with Akhenaton’s birth, so they
-would be in the appropriate places to fulfill their role within the opening of
+would be in the appropriate places to fulﬁll their role within the opening of
 the Halls of Amenti. The Halls of Amenti opened 12 years later in 1374 BC,
 after the frequencies of the embodied ﬂame had stabilized within the Earth
-grid. 
+grid.	
      At the age of 24 Akhenaton was taken to the Inner Earth by the Priests
 of Ur, and trained in the processes of ascension, which he would conduct
 after his training was complete. In 1367 BC, at the age of 31, Akhenaton was
@@ -655,14 +68,13 @@ honor of the Aton god and the Law of One. He was led to this location by
 the Priests of Ur, as there, beneath the ground, were portals connecting to
 the Inner Earth, through which he could pass into the portals beneath the
 Great Pyramid of Giza, where the Arc of the Covenant and the Halls of
-Amenti were found. The Giza pyramid was still under the control and protec-
-tion of the Amonist priests of Serres-Egyptian lineage, among whom much
+Amenti were found. The Giza pyramid was still under the control and protection of the Amonist priests of Serres-Egyptian lineage, among whom much
 anti-Atonist sentiment stirred. The Priests of Ur did not want knowledge of
 the opening of the Halls of Amenti known among the general Amonist
 priest-cast, as certain abuses of power and distortion of the original Templar
 creed had become prevalent in this group, and only Cloister Melchizedeks
 born into the Serres-Egyptian elite were permitted knowledge of the opening
-of Amenti. 
+of Amenti.	
     The new city at Tel el-Amarna allowed Akhenaton and his followers to
 go about the business of ascension without drawing the attention of the
 Serres priesthood, and also permitted easy access through the Inner Earth to
@@ -670,56 +82,59 @@ Giza, Thebes, Jerusalem and the city of Ur along the Euphrates River. Using
 surface travel, these locations were hundreds of miles apart, but through the
 portals of Inner Earth these locations could be accessed within minutes.
 Akhenaton’s purpose in coming to Earth was to ensure the opening the Halls
-of Amenti, to realign the morphogenetic field of the Annu races so they
+of Amenti, to realign the morphogenetic ﬁeld of the Annu races so they
 could be re-entered into the Sphere of Amenti, and to orchestrate ascension
 for the Templar-Annu, Annu-Melchizedeks and selected others of various
 races, whose genetic codes were evolved enough to undergo this process. The
+89	
+                                                                                                                                                                                                               
 
- Return to Amenti 
+ Return to Amenti	
 Annu lived in concentration in the Inner Earth, and were also disbursed
 throughout the lands of Egypt and beyond. Through the inner passageways,
 Annu from various locations were brought to Akhetaton at Tel el-Amarna
 for ascension initiation and training, and then taken secretly into the lower
 chambers of the Great Pyramid of Giza where they could pass through the
-Halls of Amenti and return to Tara. 
+Halls of Amenti and return to Tara.	
+	
          Though the Halls of Amenti had been opened in 1374 BC, Akhenaton
 did not begin ascension practices until 1367 BC, when his sanctuary at
 Akhetaton had been prepared and his training with the Priests of Ur had
-been completed. For five years, between 1367 BC and 1362 BC Akhenaton
+been completed. For ﬁve years, between 1367 BC and 1362 BC Akhenaton
 successfully trained and ascended several thousand people through the Halls
 of Amenti, secretly and without incident. Though his spiritual commitments
-left him little time or concern for the more mundane earthly affairs of poli-
-tics, which made him highly unpopular among the general Egyptian popu-
-lace, he was quite successful in fulfilling his purposes for incarnating on Earth,
+left him little time or concern for the more mundane earthly affairs of politics, which made him highly unpopular among the general Egyptian populace, he was quite successful in fulfilling his purposes for incarnating on Earth,
 and was held in high esteem by the peoples of Inner Earth and the surface
-dwellers who understood the significance of his work. His success was, how-
-ever, short lived, as his less-desirable character leanings of arrogance, intoler-
-ance for the beliefs of others and favoritism toward the Annu peoples brought
+dwellers who understood the significance of his work. His success was, however, short lived, as his less-desirable character leanings of arrogance, intolerance for the beliefs of others and favoritism toward the Annu peoples brought
 an early end to his achievements, and ultimately created a major setback in
 the greater plan of preparing the races for mass ascension. Akhenaton is still
 primarily viewed as a master and revered avatar among descendants of the
 Melchizedek people, who understand the purposes for his work on Earth. He
 deserves much credit for his achievements in realigning the genetic imprint
-of the Annu races and reintegrating their morphogenetic field into the
+of the Annu races and reintegrating their morphogenetic ﬁeld into the
 Sphere of Amenti. Though his general Earth mission was successful, it is still
 worth mentioning the less-than-desirable events that colored his reign as
 Pharaoh. Because of these events, the Halls of Amenti were once again
 closed, and the quarantine under which the races had evolved since 9540 BC
-remained in effect long after it was originally intended. 
-            Conﬂict Between Serres-Egyptian-Melchizedeks and Annu- 
-         Melchizedeks and Akhenaton, Opening the Portals of the Underworld,
-   Closing the Halls of Amenti, Guardianship of the Arc of the Covenant  
-       transferred to Hibiru Cloister, Deactivation of the Rod and the Staff 
-    and the Templar-Axion Seal, Tutankhamon and Haremhab. 
-                                         1362 BC -1309 BC 
+remained in effect long after it was originally intended.	
+           
+            Conﬂict Between Serres-Egyptian-Melchizedeks and AnnuMelchizedeks and Akhenaton, Opening the Portals of the Underworld,
+   Closing the Halls of Amenti, Guardianship of the Arc of the Covenant 	
+	       transferred to Hibiru Cloister, Deactivation of the Rod and the Staff	
+ 	 	
+    and the Templar-Axion Seal, Tutankhamon and Haremhab.	
+                                         1362 BC -1309 BC	
+        
      Akhenaton successfully practiced the rites of ascension among the Annu
 populations from 1367 BC to 1362 BC, following directives from the Priests
 of Ur in the Inner Earth. Tensions began to mount between Akhenaton and
-the Ur Priesthood when he was instructed to begin ascending other individu-
-als not of Annu lineage. In his original soul agreement, Akhenaton was to re-
+the Ur Priesthood when he was instructed to begin ascending other individuals not of Annu lineage. In his original soul agreement, Akhenaton was to re90	
 
+                                                                                 
+                                                                                                               
+                                                                                                               
                                                                                                               Pharaoh Akhenaton
-enter the Annu-Melchizedek morphogenetic field back into the Sphere of
+enter the Annu-Melchizedek morphogenetic ﬁeld back into the Sphere of
 Amenti, see that the Halls of Amenti were opened, then oversee the training
 and ascension of all individuals whose genetic codes would allow them to
 pass through the fifth-dimensional frequencies into Tara. Serres-Egyptians,
@@ -728,80 +143,618 @@ Akhenaton, from the beginning, showed extreme favoritism toward people of
 Annu descent and an unwarranted prejudice toward those of Serres-Egyptian
 lineage. To appease the Priests of Ur, Akhenaton would allow select Serres to
 enter into the initiation programs at Akhetaton, but then systematically omit
-them from the final stages of training, so the opportunity of program comple-
-tion and ascension was denied. The Priests of Ur and the Elohim created an
+them from the ﬁnal stages of training, so the opportunity of program completion and ascension was denied. The Priests of Ur and the Elohim created an
 alternative plan by which the Melchizedek Cloister Keepers of the Blue
 Flame, who held strategic  positions  within  Akhenaton’s inner council, would
 be permitted to conduct ascension rites under the direction of the Priests of
-Ur, without Akhenaton’s knowledge of their activities. 
+Ur, without Akhenaton’s knowledge of their activities.	
      The Keepers of the Blue Flame were headed by the primary Flame
 Holder, a women named Phaelopea, who for long held the rank of High
 Priestess of the Atonist temples at Akhetaton. The inner circle of the Flame
 Keepers was composed of General Haremhab, head of Akhenaton’s strategic
-armies of the north, the head physician of Akhenaton’s court and his illegiti-
-mate, elder half brother Sabatoth, and his fourth wife Ankhi (historically
+armies of the north, the head physician of Akhenaton’s court and his illegitimate, elder half brother Sabatoth, and his fourth wife Ankhi (historically
 known as Kiya). There were approximately 200 other members of the Blue
 Flame Melchizedeks among Akhenaton’s ranks, who had originally been sent
 to support him in his efforts. As his personal prejudice and intolerance of the
-Serres-Egyptians had colored his ability to fulfill his ascension duties appro-
-priately, the Blue Flame Melchizedeks were assisted by the Elohim to carry
-out ascension by night, using an alternative portal passage to the Great Pyra-
-mid of Giza. Through the alternate route, the Keepers of the Blue Flame
+Serres-Egyptians had colored his ability to fulﬁll his ascension duties appropriately, the Blue Flame Melchizedeks were assisted by the Elohim to carry
+out ascension by night, using an alternative portal passage to the Great Pyramid of Giza. Through the alternate route, the Keepers of the Blue Flame
 would not have to pass through the portions of Inner Earth through which
-Akhenaton conducted his ascensions, so both groups could fulfill the ascen-
-sion contract, while circumnavigating Akhenaton’s personal character lean-
-ings. From 1363 BC to 1362 BC the Keepers of the Blue Flame lead qualified
+Akhenaton conducted his ascensions, so both groups could fulﬁll the ascension contract, while circumnavigating Akhenaton’s personal character leanings. From 1363 BC to 1362 BC the Keepers of the Blue Flame lead qualified
 Serres-Egyptians and others to the Arc of the Covenant at Giza, successfully
 ascending several hundred individuals not of Annu descent through the
-Halls of Amenti. 
-      In 1362 BC the inevitable occurred, and Akhenaton discovered the activi-
-ties of the Keepers of the Blue Flame, and charged identified members with
+Halls of Amenti.	
+      In 1362 BC the inevitable occurred, and Akhenaton discovered the activities of the Keepers of the Blue Flame, and charged identiﬁed members with
 treason, and sentenced them to death. Among those sentenced to die were his
 fourth wife Ankhi and his half brother Sabatoth. With the assistance of the
 Elohim, these individuals were exiled to Giza and placed under the protection
 of a select group of Serres-Egyptian priests who had been permitted to know of
 the secrets of Amenti. Akhenaton’s fourth wife Ankhi had produced a son for
+91	
+                                                                                                                                                                                                         
 
-Return to Amenti 
+Return to Amenti	
 Akhenaton in 1363 BC, and the child was later secretly taken to Giza by his
-mother and several other Keepers of the Blue Flame. General Haremhab’s affil-
-iation with the Keepers of the Blue Flame had not yet been discovered, and he
+mother and several other Keepers of the Blue Flame. General Haremhab’s affiliation with the Keepers of the Blue Flame had not yet been discovered, and he
 remained an operative within Akhenaton’s ranks, attempting to soften
 Akhenaton’s wrath toward those whom he perceived as traitors. In 1362 BC,
-shortly after the child was taken from Akhetaton to Giza, a final confrontation
-took place between Akhenaton and the Keepers of the Blue Flame. The con-
-frontation took place within the hidden passages beneath Giza, when
+shortly after the child was taken from Akhetaton to Giza, a ﬁnal confrontation
+took place between Akhenaton and the Keepers of the Blue Flame. The confrontation took place within the hidden passages beneath Giza, when
 Akhenaton and his men followed Haremhab through the alternative portal
 route and caught the Keepers of the Blue Flame in their ascension practices.
 Using the Staff, Akhenaton attempted to close the Halls of Amenti. The
 Flame Holder transmitted the D-5 frequencies held within her body into
-Ankhi, who was to be the next Flame Holder. Ankhi transmitted the D-5 fre-
-quencies of the ﬂame into the Sphere of Amenti to counter the transmissions
+Ankhi, who was to be the next Flame Holder. Ankhi transmitted the D-5 frequencies of the ﬂame into the Sphere of Amenti to counter the transmissions
 of the Staff, forcing the Halls to remain open. Akhenaton and Ankhi were
-held within a duel of energy, with the Sphere of Amenti between them. Saba-
-toth, Akhenaton’s unrecognized half brother, retrieved the Rod instrument
+held within a duel of energy, with the Sphere of Amenti between them. Sabatoth, Akhenaton’s unrecognized half brother, retrieved the Rod instrument
 from Akhenaton’s guard and activated the second-dimensional frequencies of
 the Rod in hope of knocking the Staff from Akhenaton’s grasp, fearing that the
 power duel taking place would destroy the Sphere of Amenti. In a brief
-moment the course of intended history was changed, as the second-dimen-
-sional energy transmissions of the Rod interacted with the fifth-dimensional
+moment the course of intended history was changed, as the second-dimensional energy transmissions of the Rod interacted with the fifth-dimensional
 energy transmissions of the Staff to create a double overtone frequency field.
 When the double overtone was struck, the energetic barrier around the Sphere
-of Amenti collapsed, opening the D-2 Earth morphogenetic field into the
+of Amenti collapsed, opening the D-2 Earth morphogenetic ﬁeld into the
 Sphere of Amenti. This released the chaotic energies of the soul fragments
 caught in D-1 and D-2 (known as the Underworld) into the morphogenetic
-field of the Sphere of Amenti. 
+field of the Sphere of Amenti.	
     The Elohim immediately intervened, descending through the Arc of the
-Covenant, resealing the Sphere of Amenti. Portions of the Amenti morpho-
-genetic field had been contaminated by the chaotic forces of D-2, and the
-Elohim had to separate the Sphere of Amenti, leaving the contaminated por-
-tions within the D-2 Earth core morphogenetic field. The portions of the
+Covenant, resealing the Sphere of Amenti. Portions of the Amenti morphogenetic ﬁeld had been contaminated by the chaotic forces of D-2, and the
+Elohim had to separate the Sphere of Amenti, leaving the contaminated portions within the D-2 Earth core morphogenetic field. The portions of the
 Sphere that had not been compromised were placed back into the Arc of the
 Covenant in the UHF bands of D-3, where the Sphere of Amenti was once
 again sealed. Because of these events, the Halls of Amenti were once again
 closed. The portions of Amenti that remained in Earth’s core stayed opened,
 but the frequency bands of the Amenti Sphere that allowed passage into Tara
 were sealed away in the UHF bands of D-3 within the Arc of the Covenant.
-On the evening when this confrontation occurred, all members of the con-
-flicting parties were energetically altered and returned to their home in
+On the evening when this confrontation occurred, all members of the conflicting parties were energetically altered and returned to their home in
 Akhetaton, having their memory of the night's proceedings erased.
+92	
+
+                                                                                                             
+                                                                                                           Pharaoh Akhenaton
+          
+    Prior to this event, the Elohim and Priests of Ur had intended to orchestrate the ascension of Akhenaton, his ﬁrst wife Nefertiti and their daughters.
+This was scheduled to occur after the seat of power had been transferred from
+Akhenaton to his fourth wife Ankhi and their son, through whom the half
+brother Sabatoth would acquire the throne until the avatar child came of
+age. The Elohim intentions were to blend the Atonist and Amonist perspectives
+together around the original Templar teachings of the Law of One, through which 
+Egypt could be uniﬁed and serve as a model for preparing the races for ascension.
+Following the closing of the Halls of Amenti, this plan was no longer feasible,
+as the royals could not ascend to Tara while the Sphere of Amenti remained
+split in two, so alternative measures had to be taken. The Sirian Council had
+arranged for the royal family to be taken by starship to Sirius B after the transfer of earthly power, but Akhenaton did not live long enough to fulﬁll this
+vision.	
+    The Elohim and Priests of Ur attempted to council Akhenaton following
+the closing of the Halls of Amenti, but he misunderstood their attempts at
+astral communication to represent attempted manipulation by evil forces.
+Having no memory of the Giza events, Akhenaton was swayed by the Priests
+of Ur, during physical contact, to allow the Flame Keepers to go free. He was
+further advised to continue with the plan to allow Ankhi to be appointed as
+wife number one so the child would be given legitimacy as the next heir to
+the Pharaonic line. Events became a jumble of confusion as Akhenaton,
+fearing treason at every turn, chose to disregard the requests of the Priests of
+Ur that ascension practices be stopped. This request was given in good measure, as anyone attempting to ascend through Amenti while the Sphere was
+broken into two pieces, would ﬁnd their soul essence fragmented into D-2
+and the upper portions of D-3. Thinking that he was sparing the Annu from
+manipulation attempts by the Priests of Ur, Akhenaton used the Staff to
+access the alternative portal route to Giza, and continued to ascend groups of
+Annu through the portals, not realizing he was sentencing them to soul fragmentation. Sabatoth discovered Akhenaton was using the Halls of Amenti
+and so he, going against the advice of the other Flame Keepers, also continued ascension attempts for the Serres-Egyptian peoples. Sabatoth discovered
+that by using the D-2 portals to access parallel Earth, through which people
+could merge consciousness with their anti-particle double and transmute
+their DNA, that passage into the Halls of Amenti could be made without the
+use of the Staff or Blue Flame. Neither man realized they were sending people
+into fragmentation and both believed they were assisting their own people
+who were being unfairly denied by the other side.	
+    The Elohim again intervened to stop these activities. The personal morphogenetic ﬁelds of individuals involved with ascension after the Halls of
+Amenti were closed were removed from the Sphere of Amenti morphogenetic ﬁeld and placed within the Third Eye of Horus portal passage in the
+93	
+                                                                                                               
+
+Return to Amenti
+core of Sirius B, under the Templar-Axion Seal. This group included over
+1,000 people, who would be allowed to ascend to Tara as soul essences once
+the Halls of Amenti were reopened, but once there, they had to repeatedly
+incarnate on Earth until they had fully assembled the fragmented portions of
+their soul essence from the D-2 elemental kingdom. Akhenaton and his half
+brother Sabatoth, and various others of Cloister Melchizedek and SerresEgyptian lineage were among those placed under the Templar-Axion Seal.
+This Sealing was again employed as a protective measure, to insure that the
+remaining portions of the Amenti Sphere were not compromised by the misaligned energies of D-2. But unfortunately, through generations following
+this lineage, portions of the Templar-Axion Seal were passed down indiscriminately throughout various racial families, and the Templar-Axion Seal
+became like a curse to the races, causing misalignment in various portions of
+the Amenti Sphere, which were further passed on through various genetic
+lines. These distortions in the Sphere of Amenti would have to be realigned
+with the 12-strand DNA imprint before anyone could again ascend through
+the Halls of Amenti.
+    Suffering from confusion caused by the cumulative effects of these events,
+Akhenaton grew progressively more disinterested in the common affairs of
+Egypt and devoted his attention to ensuring the position of his son as the next
+heir to the throne. At this point, conspiratorial plans to remove Akhenaton
+from power brewed heavily within his own legions, promoted primarily by his
+uncle (the younger brother of Amenophis Ill). His ﬁrst wife Nefertiti found
+sympathy with the conspirators, as she did not take well to the intended transfer of her position and power, pending the validation of the son as heir. The
+Flame Keepers and Ankhi (wife number 4, whom Nefertiti blamed for destroying her family) appealed to Nefertiti for compliance, at the insistence of the
+Priests of Ur. Unfortunately for all, Nefertiti could not muster the required
+humility, and in 1361 BC she assisted the uncle in sabotaging Akhenaton’s
+plans. The uncle orchestrated the assassination of Ankhi and Akhenaton’s
+two-year-old son, thereby leaving the issue of heir to the Pharaonic throne
+open to the highest bidder.	
+    Distraught over the loss of his son and what he perceived as the failure of
+his earthly mission, Akhenaton withdrew from social interaction, as General
+Haremhab, Sabatoth and others devised a plan to remove Akhenaton from
+power to protect Egypt from Akhenaton’s declining rule. In 1353 BC, with a
+heavy heart, General Haremhab turned a blind eye as Akhenaton’s aged uncle
+led the ﬁnal conspiracy, assassinating Akhenaton and arranging the temporary
+succession of Smenkhkaré (husband of one of Akhenaton’s daughters, who
+secretly held a pro-Amonist outlook) to the throne. Haremhab, Sabatoth and
+the Keepers of the Blue Flame hoped to see Smenkhkaré replaced by Sabatoth,
+but after the fall of Akhenaton’s reign in 1353 BC, Sabatoth was imprisoned as 
+94	
+      
+
+                                                                                      
+                                                                                                             Pharaoh Akhenaton
+a traitor in 1348 BC by the corrupt Serres-Egyptian Priesthood at Thebes (with
+whom he had been raised in childhood), tortured for his knowledge of the
+secrets of the Arc of the Covenant, then executed in 1344 BC.	
+    Sabatoth left behind him a legacy within which lived the hope of the
+Keepers of the Blue Flame. A child was born to Ihopetohetep, the wife of
+Sabatoth, several months after he was incarcerated in Thebes in 1348 BC.
+The child was named Tutankhaton. Haremhab and the Keepers of the Blue
+Flame kept the child’s true lineage hidden and orchestrated a marriage
+between this child and Akhenaton’s third daughter Ankhesenpaaton. In
+1340 BC Smenkhkaré was assassinated by Haremhab’s secret guard, and 8year old Tutankhaton was proclaimed Pharaoh. In order to avert the suspicions of the Serres priesthood, Haremhab arranged for the royal couple’s initiation through the Serres priesthood at Thebes, where their names were
+changed to Tutankhamon and Ankhesenamon. Tutankhamon acted as a
+puppet Pharaoh under the direction of Haremhab and an elder councilorpriest named Aya, and the capitol was again moved from Akhetaton at Tel elAmarna to Memphis, so activities at Giza could be more closely monitored.
+Originally Haremhab intended to uphold his commitments as a Keeper of the
+Blue Flame. This required a slow but steady integration of the belief systems
+of the Amonist and Atonist peoples. Under mounting pressure from the
+Serres-Egyptian priesthood at Thebes, Haremhab succumbed to taking
+actions which appeared to be more politically correct, and the teachings of
+the Law of One became lost as he influenced Tutankhamon to abandon all
+Atonist sympathy and revert to old Amonist perspectives. Having loyalties
+to the Keepers of the Blue Flame, Tutankhamon attempted to resist Haremhab’s campaign.	
+    In 1331 BC, when the 17-year old Pharaoh Tutankhamon was suffering
+from an illness, several of Haremhab’s advisors took matters into their own
+hands and poisoned him, removing the primary obstacle to Haremhab’s new
+direction and ending the nine-year reign of Tutankhamon, the child king
+(1340 BC-1331 BC). Haremhab quickly appointed the aging Aya, a longtime friend and Serres-Egyptian sympathizer, to the Pharaonic throne. Falling hopelessly under the manipulation of the Serres-Egyptian old order,
+Haremhab appointed himself Pharaoh following the death of Aya in 1324
+BC. In order to preserve his political standing, Haremhab methodically set
+about destroying any evidence of his prior affiliation with the Atonist movement and involvement with the Cloister Melchizedek Keepers of the Blue
+Flame. Haremhab reigned as Pharaoh from 1324 BC until his death in 1309
+BC, appointing Rameses I as his successor. Following the death of Aya in
+1324 BC, the Melchizedek Cloister Keepers of the Blue Flame became scattered throughout Egypt, being considered criminals of the state for their prior
+affiliation with Akhenaton. Some found refuge within the secret ranks of the
+Serres priests at Giza, who still worked under the directive of the Priests of
+95	
+                                                                                                                            
+
+Return to Amenti	
+Ur. By 1309 BC the Elohim plans for opening the Halls of Amenti and preparing the races for the mass ascension wave of 2017 AD were lost beneath
+the chaos left in the wake of Akhenaton’s clandestine rule.	
+    Although Akhenaton was ultimately successful in re-entering the Annu
+people into the Sphere of Amenti and successfully orchestrating the ascension
+of many individuals during his brief reign, he left an equally detracting legacy of
+chaos behind him. The Halls of Amenti were closed, the Sphere of Amenti
+was broken in two, with part of the race morphogenetic field in chaotic shambles within the D-2 Earth core and the other part again quarantined in the
+UHF bands of the third dimension. The Arc of the Covenant was once again
+sealed, and the Frequency Fence, which kept the Sphere of Amenti from
+descending through the Arc, was once again put in place. Following the death
+of Tutankhamon in 1331 BC, the Elohim and the Priests of Ur, disheartened by
+the error of the human element, transferred surface guardianship of the Arc of
+the Covenant out of Egyptian hands. The Arc of the Covenant was placed
+under the protection of the Hibiru Cloister races, under the supervision of the
+Blue Flame Melchizedeks. The Rod and Staff were de-activated, and thus
+entry into the portals of the Inner Earth was stripped away from all races within
+the surface cultures.¹	
+                                      
+                                       THE THREE CHRISTS	
+   Elohim and Sirian Council Favoritism toward Sirian Genetic Strains
+  and Promotion of Patriarchal Templar Creed Distortion. Pleiadian,
+ Arcturian, and Andromeda Resistance and Azurites Appointed by Ra
+Confederacy as Co-guardians of Palaidorian Covenant. Division within
+                the Cloister Melchizedeks and Essene Brotherhood.	
+                                               1240 BC -12 BC	
+      
+    The chaos which resulted from the misfortunes of Akhenaton’s reign also
+created a major division within the ranks of the Elohim of HU-3, the Sirian
+Council of HU-2 and the Ra Confederacy from the Meta-galactic Core. Dispute arose as to what should be done with the program of human evolution.
+The majority of Elohim had abandoned their loyalty to the human races in
+general, and saved their attentions for Annu-Melchizedeks and Hebrew peoples to whom they had closer genetic ties. In the years following Akhenaton’s
+demise, the Elohim and Sirian Council began showing their favoritism of
+these groups by purposely influencing the developing cultures to adopt the
+        ________________________	
+1.   Some historical reference sources suggest that Akhenaton reigned from 1353-1335 BC
+    and place Tutankhamon’s reign from 1333-1323 BC. Speakers from the Sirian Council
+                                provided the dates 1370—1353 BC for Akhenaton’s reign and 1340-1331 BC for Tutankhamon; they request that I leave the dates as they have given. I cannot personally                                                                 
+                                        attest to the accuracy of either set of dates.
+               96	
+
+                                                                                         
+                                                                                      
+                                              The Three Christs
+distorted Templar Creed. They believed that by promoting male dominance
+within the races (which was already a rampant distortion promoted by the
+corrupted Serres-Egyptian line), the course of interbreeding could be controlled. By controlling the women breeders and influencing a male elite to practice
+interracial discrimination, the Elohim's preferred lineage of humans could be kept
+genetically pure. These selected “chosen ones” would be given special privilege
+of ascension if they followed the teachings of the Elohim’s altered Templar
+Creed. The Elohim had basically given up on the rest of the human population,
+and made no attempt to assist the general populace in realigning the damage done to
+their genetic codes through the propagation of the Templar-Axion Seal.	
+    Other members of the Elohim, Pleiadian Star League Council, Andromeda and Arcturian Federations felt this preferential treatment was unfair, and
+appealed to the Ra Confederacy for intervention. The Ra Confederacy
+agreed that this treatment was discriminatory and detrimental to the human
+evolutionary plan. In 700 BC the Azurite Family of the Ra Confederacy was
+called into operation as primary protectors of the Covenant of Palaidor, and
+though willing to work with the biased Elohim, the Azurites were given an
+equal hand in the orchestration of human evolution. Their primary concern
+was to realign the morphogenetic field of the Sphere of Amenti, reintegrate
+all of the races who had been removed and prepare the races for another
+opening of the Halls of Amenti, to be scheduled in coincidence with the
+mass ascension wave of 2017 AD. The Azurites and Elohim worked together
+through the Melchizedek Cloister, establishing the Essene brotherhood about
+1240 BC, which was originally designed to bring the undistorted Templar
+teachings of the Law of One back into manifestation on Earth. (The Essenes
+were originally one of the 25 families within the Melchizedek Cloister race.
+Members of this family were interbred with the Hibiru Cloister races to create a hybrid Hebrew strain. The Essenes thus had two primary racial divisions, those of the Melchizedek Cloister and those of Hebrew mixed-Cloister
+lineage.) Within several generations the biased Elohim took the project in
+their own direction, interbreeding some of the Cloister Melchizedek families
+with the Hebrew-Melchizedeks and promoting the patriarchal Templar
+Creed, which became the primary focus of the Essene Brotherhood teachings.
+By 1150 BC the Priests of Ur disassociated themselves from the primary families of the Essene brotherhood, and began working with a few select families
+within the Essenes, and the Hibiru and Melchizedek Cloisters. These families
+were chosen to reintegrate the undistorted pure Templar teachings and to
+work directly with the Priests of Ur to ensure the race preparation for the
+ascension wave of 2017 AD. In 700 BC the Ra Confederacy gave the Azurites equal directive control over human evolution and appointed them primary guardians of the Covenant of Palaidor. The Azurites began their work
+on Earth through the Essenes of the Priests of Ur. In 196 BC the Azurites and
+the Sirian Council attempted to mend the growing rift within the
+97	
+                                                                                                                             
+
+Return to Amenti	
+Melchizedek families by combining the previous teachings of the
+Melchizedek Priesthood with the evolving doctrines of the patriarchal and
+purist Melchizedeks.	
+    The original Melchizedek Priesthood, as it exists today, was founded on
+surface-Earth in 1982 BC, prior to Akhenaton’s reign, within the Hibiru Cloister race in the area of Salem, which became Jerusalem. An ET Nephilim (an
+immortal Sirian-human hybrid from the Second Seeding period) was brought
+to Earth from Nibiru in 1979 BC, carrying a patriarchal version of the Templar
+Creed, which allowed knowledge of ascension and genetic protection to reach
+the Hibiru and Aryan races. This individual became known as Melchizedek,
+King of  Salem. The foundations for the modern day Jewish religion were laid at
+this time with the establishment of the Priesthood of Melchizedek among the
+Hebrew, Hibiru and Aryan races, through which the mystical studies of the
+original Kabbalah were organized. In 196 BC some success was achieved in
+consolidating the Templar teachings by combining the old TemplarMelchizedek doctrine with those of the Blue Flame Melchizedek Essenes and
+the Templar-Melchizedek Essenes. Despite this achievement, two primary,
+covert divisions within the Essene brotherhood remained. The Melchizedeks
+and Hebrew Essenes who were under the influence of the patriarchal Elohim
+were known as the Templar-Melchizedeks. They were primarily descendants
+of the Hebrew-Melchizedeks who had received the Templar Seal in 8,000 BC,
+and whose morphogenetic ﬁeld still remained in Alcyone, not yet reintegrated
+into the Sphere of Amenti. This group emphasized the patriarchal slant of the
+Templar creed within the Jewish faith and heavily influenced the evolution of
+the Christian faiths. The Templar-Melchizedek Essenes were taught by the
+Elohim to believe that they were God’s chosen people and that they held the
+key to ascension. The covert group of Cloister Melchizedeks within the Essene
+brotherhood, who worked secretly with the Priests of Ur under the Azurite
+Council, were primarily descendants of the Blue Flame Pure-Cloister Family
+Melchizedeks. The Blue Flame Melchizedeks had not received the Templar
+Seal in 8,000 BC, and their morphogenetic ﬁeld remained in the Sphere of
+Amenti. Protection of the Arc of the Covenant and the secrets of Amenti had
+been placed with the Blue Flame Melchizedek Essenes by the Azurite Council.
+The Blue Flame Melchizedeks taught the original, non-patriarchal, egalitarian
+creed of the undistorted Templar Creed, including the sacred teachings of the
+science of ascension, the reality of reincarnation and ET ancestry and the precepts of unity consciousness and the Sacred Law of One. The two groups coexisted with each other within the Essene brotherhood until 12 BC, when the
+Azurite Council orchestrated the next major event in preparing the races for
+ascension.	
+98	 	
+    
+
+                                                                                           
+                                                                                              The Three Christs
+    
+                      Reintegration of the Races into and Restoration of	
+                              the Sphere of Amenti, the Three Christs,	
+                           The Zionites and Preparation for 2017 AD.	
+                      
+                                                     12 BC-22 AD	
+      
+     The Azurite Council knew that in order for the races to be prepared for the
+mass ascension wave of 2017 AD, the integrity of the Sphere of Amenti must be
+restored by realigning the portions of the Sphere trapped within the D-2 Earth
+morphogenetic ﬁeld. The Alcyone morphogenetic ﬁelds of Templar
+Melchizedeks and those that received the Templar-Axion Seal during
+Akhenaton’s reign and were stored in Sirius B, also needed to be reintegrated
+into the Sphere of Amenti. Despite the failures of Akhenaton’s campaign, he
+had successfully reintegrated the Annu peoples into the Sphere of Amenti
+morphogenetic ﬁeld, so a similar arrangement was made in reference to the
+Templar and Templar-Axion Sealed race families. This time, not only would
+the races be restored to their place within Amenti, the entire Sphere of
+Amenti would be realigned with the original 12-strand DNA pattern. Realignment of the Sphere of Amenti would allow all of the races to heal their genetic
+distortions in preparation for the opening of the Halls of Amenti, and would
+restore the integrity of the Sphere of Amenti so the Halls of Amenti could he
+opened. This realignment project would require the services of a 12th-level
+avatar, whose energetic imprint contained the alignment of 12-dimensional
+frequencies. This 12th-level avatar was to realign the Sphere of Amenti and
+the Alcyone morphogenetic ﬁeld of the Templar Sealed Hebrew and Annu
+Melchizedeks, and he was intended to bring together the factions within the
+Essenes that had developed within the Melchizedek and Hebrew Cloisters. He
+would also re-enter the original egalitarian Templar creed back into the teachings of the Essenes.	
+    Under the direction of Azurites of the Ra Confederacy, in 12 BC, the
+12th-level avatar, a pure Taran Turaneusiam-1 soul essence was born outside of
+Bethlehem in a private residence, to a Blue Flame Melchizedek-Hebrew Essene
+mother and a Blue Flame Melchizedek-Hibiru Cloister Essene father. It was not
+an Immaculate Conception, but rather orchestrated via traditional means
+through a couple chosen and prepared by the Priests of  Ur. His mother’s name
+was Jeudi, his father Joehius; both were leaders within the Blue Flame
+Melchizedek Essene sect. The child’s soul essence was born of the HU-4 avatar
+Sananda, and the child was named Jesheua-Melchizedek (herein Jesheua-12),
+who later became known as Jesus, son of Mary and Joseph. The personages of
+Mary and Joseph were not the parents of this avatar child, they were the parents of a ninth-level avatar soon to follow. Jesheua-12 was born to descendants
+of the house of Solomon, and taken in infancy into the custody of the Priests of
+Ur.	  
+99	                                                                                                                      
+                                                                                                                                      
+
+   Return to Amenti	
+      
+  In 7 BC the Elohim orchestrated the birth of a ninth-level avatar, who
+would serve to re-integrate the Templar-Axion Sealed souls of Sirius B, back
+into the Sphere of Amenti and restructure the patriarchal Templar creed to
+be more reflective of the Law of One. This child was named Jeshewua (herein
+Jeshewua-9), and the stories of his birth to the Hebrew-Melchizedek Essenes
+Mary and Joseph are recorded as the birth of Jesus in contemporary Christian
+doctrine. Jeshewua was not born of an Immaculate Conception either, but
+rather through the visitation of an ET Nephilim, who, like King Melchizedek
+had been, was part of the entity named Jehovah. The entity Jehovah, who
+was one of the original contributors to the creation of the Sirian-Anunnaki
+races of HU-2, had worked with the Elohim since the time of the Treaty of
+El-Annu 848,000 years ago. Jeshewua’s mother Mary was also born of ET
+Nephilim conception. Following the events of Akhenaton’s reign, the Elohim did not want knowledge of ET ancestry available to the general human
+populations, so the truth of Jeshewua’s birth was hidden within the story of
+the Immaculate Conception. Through the centuries that followed the births of the
+two avatars, the life stories of Jesheua-12 and ]eshewua-9, plus another man who
+was not an avatar, became consolidated into one personage called Jesus Christ.
+    With the birth of Jesheua-12, the 12th-level avatar, the Hebrew and
+Melchizedek morphogenetic ﬁeld in Alcyone was reintegrated into the Sphere
+of Amenti. Through Jesheua-12 the integrity of the Hebrew Melchizedek
+genetic imprint was restored, and he became known by some as the “savior” of
+the Jewish peoples for this reason. The portions of the Amenti Sphere that had
+been trapped within Earth’s D-2 morphogenetic ﬁeld, as a result of
+Akhenaton’s reign, were realigned and the integrity of the Sphere of Amenti
+was once again restored. In a greater sense, Jesheua-12 became the savior for
+the races, for through his birth the Halls of Amenti could once again be opened.
+The realigned Sphere of Amenti was kept in storage within the UHF bands of
+D-3, now under protection of the Azurites of the Ra Confederacy. At age 20 (8
+AD), following his study in Persia and India, Jesheua-12 was taken to Egypt by
+the Priests of Ur. At the Great Pyramid of Giza, while Jesheua-12 was between
+20 and 33 years of age (8 AD through 21 AD), he and the Blue Flame
+Melchizedek Essenes secretly orchestrated ascension for various groups, directly 
+through the portal passage of the Arc of the Covenant. (Ascensions conducted 
+while the Halls of Amenti were closed could only be done through the energy ﬁeld 
+of a 12th-level avatar, whose bio-energetic ﬁeld could carry the energy ﬁelds of 
+others through the seals on the Sphere of Amenti. Through the energy ﬁelds of the 
+avatar, people could pass through the Arc of the Covenant, into the Blue Flame 
+of Tara’s morphogenetic ﬁeld and into Tara.)	
+    Through Jesheua-l2, the Hebrew Essene races that followed the Blue
+Flame Cloister Melchizedek Essenes were appointed by the Azurites of Ra, to
+share guardianship of the Arc of the Covenant with the Melchizedek and
+100	
+
+                                                                                                                 The Three Christs
+ 
+Hibiru Cloisters. The descendants of these groups presently carry the full 12strand DNA package within their gene codes, as this group was one of those
+chosen in 1972 AD to receive full-genetic realignment through interaction
+with the time traveling, hybrid Zionite race (see Voyagers I, p.38). The Zionites were created during the present-day Zeta infiltration and were sent back in
+time to realign certain ancestral groups with the 12-strand DNA imprint, in
+order to accelerate the evolution of present-day humans. The followers and
+descendants of the Jesheua-12 Essenes were one of the groups chosen for this
+realignment. Groups involved with Zionite genetic restructuring are considered to be of Celestial Human lineage as they carry the full 12-strand DNA
+Silicate Matrix within their operational genetic codes, regardless of their primary racial line. (The Silicate Matrix appears within family lines as a recessive
+gene composite, which remains dormant until it is called into activation via
+opening of chakra centers 8-15.) Various groups within Root Races 3-5 and
+Cloister races 3-6, along with several other hybrid race strains, were chosen for
+this genetic realignment, so the Silicate Matrix is distributed at random
+throughout present-day human genetic lines. The greatest concentrations can
+be found within the Hebrew, Melchizedek, Aryan, East Indian and Tibetan
+racial lines.	
+     During the period that Jesheua-12 practiced in Egypt (8 AD - 21 AD),
+the second Christ, Jeshewua-9, grew in popularity among the families of the
+Templar Melchizedeks and Hebrew Melchizedeks who were not aware of, or
+interested in, the birth of Jesheua-12. Jeshewua-9 was also taken to Egypt for
+initiation, ascension training and ordination as a Melchizedek priest, and
+portions of these rites were conducted by Jesheua-12. Prior to his ordination
+in Egypt, Jeshewua-9 had traveled throughout Nepal, Greece, Syria, Persia
+and Tibet, training in various inter-faith doctrines. Jesheua-12 studied primarily in India and Persia before coming to Egypt at age 20 and his Templar
+teachings showed a stronger eastern orientation than those of Jeshewua-9.
+The training and ascension activities of Jesheua-12 and the Blue Flame
+Melchizedek Essenes remained primarily hidden and practiced as a secret
+“mystery school” within Egypt at Giza and in various other locations. The
+teachings of Jeshewua-9 became more well-known, which caused him progressively more persecution from Roman inﬂuence and also within some factions of the Hebrew and Templar-Melchizedek race lines who did not accept
+deviations from the original patriarchal Templar creed as set within the Jewish religion by King Melchizedek.	
+	
+         When Jeshewua-9 was 32 years old (25 AD), with the assistance of supportive Templar Melchizedek Essenes, the Elohim exiled Jeshewua-9, his wife
+(the woman who came to be known as Mary Magdalene in Biblical reference),
+and their three children to the territories of France, to avoid political persecution. Another man, by the name of Arihabi, who was a Jerusalem-born
+101	
+                                                                                                                		
+	
+	
+                                                                                                                    
+
+Return to Amenti	
+Hebrew-Annu-Melchizedek, was led by the Elohim, through a series of visions,
+to believe that he was the true Jeshewua-9, and this is the man who was crucified. Neither of the avatar Christs were cruciﬁed, and both of them left genetic
+family lines within the Hebrew-Melchizedek  races. The sacriﬁce of Arihabi was
+orchestrated to divert attention away from Jeshewua-9, his family and his lineage. The resurrection of the “body of Christ"/Arihabi, was orchestrated by the
+Elohim through the use of holographic inserts, but Arihabi was indeed resurrected following the holographic display. In return for his assistance in diverting attention from Jeshewua-9, the body of Arihabi was restored to life by the
+Elohim, even though he was not an avatar. He was then taken to India, where
+he lived for another 30 years. Upon his natural death, Arihabi’s soul essence
+was ascended to Sirius B through the Third Eye of Horus portal bridge. After
+his ascension to Sirius B, the Elohim granted him special favor and adjusted his
+energy ﬁeld so he could ascend to the Sirius star system in HU-2 via the planetary core of Sirius A in HU-1. The story of Jesus Christ, as it is known in contemporary times, evolved through the mythology the Elohim used to conceal the
+identity of their avatar, Jeshewua-9, and to perpetuate their patriarchal slant on
+the Templar Creed. The distortions of the true facts of history were used to protect the lineage of Jeshewua-9 from political persecution, making it appear as if
+the Christ had no descendants, thereby allowing those descendants to remain
+obscured from the public view. The teachings of Jeshewua-9 and the Templar
+Melchizedeks became the primary foundations for both the contemporary Jewish and Christian faiths, but the Jewish religion did not acknowledge Jeshewua9 as their savior. In truth, Jesheua-12 was the true savior of the Hebrew peoples, for he re-entered their race morphogenetic field into the Sphere of
+Amenti. Few people knew of Jesheua-12 and his Blue Flame Melchizedek Essene ascension school, so the majority of the Hebrew people did not realize that
+their foretold Messiah had, indeed, arrived. Even though Jesheua-12’s accomplishments went unnoticed by the majority of the Hebrew people, his affect on
+the restoration of their genetic development was valid—an unseen gift to the
+Hebrew peoples for which Jesheua-12 did not receive credit.	
+    Between 8 AD and 21 AD, while Jesheua-12 practiced ascension rites at
+Giza, several expeditions were made by Jesheua-12 and the Blue Flame
+Melchizedek Essenes. They traveled throughout Egypt and Nubia and into
+Jerusalem, promoting the original Templar teachings of ascension and gathering together groups of people to take to Giza for ascension. Plans were made to
+perpetuate the Jesheua-12 lineage, which carried the full 12-strand DNA
+imprint, and six women of various Melchizedek Cloister sub-races were chosen
+to bring forth the children of Jesheua-12, the First Christ. Couples were chosen to serve as guardians of these children. Each of the six females to receive
+the seed of Jesheua-12 was matched to a male Blue Flame Melchizedek who
+102	
+
+                                                                                        The Three Christs
+would serve as adoptive father to the child of Jesheua-12. Jesheua-12 did not
+interact directly with the raising of these children, nor did he serve as husband
+to any of the six women chosen to carry his seed. The children were created
+through sacred procreative rites for the sole purpose of perpetuating the 12strand DNA pattern within the human races. Descendants of these children
+became spread throughout various regions, some appearing within the French
+Aristocracies, others within the Celtic, Egyptian and African genetic lines.
+One line of the descendants of Jesheua-12 now resides within the continental
+United States. Of the six families of Jesheua-12 that were seeded between 18
+AD and 23 AD, ﬁve of the children survived to bring the 12-strand DNA lineage into the contemporary human gene pool. The lineage of Jeshewua-9’s
+three children also prospered and spread throughout various nations to the
+present day. In his later years, Jeshewua-9 traveled to Tibet, where, with the
+help of the Elohim, he ascended out of matter in 47 AD to HU-3, through the
+portion of Tara’s morphogenetic ﬁeld stored within the planetary core of  Venus.
+(This ascension passage requires a tenth-strand DNA imprint, and is thus not
+available to most humans, without direct assistance and DNA reconstruction
+by the Elohim, Azurites or other HU-2 guardian groups.)	
+    The teachings of Jesheua-12 were highly censored by Templar
+Melchizedeks who later came into political prominence, and were kept alive
+through the secret mystery schools that evolved throughout Europe, Egypt, the
+Middle East and in certain parts of China and Indonesia. The teachings of
+Jesheua-l2 were originally included in the manuscripts that became the Christian Bible, but were distorted or edited entirely at various times, to suit the
+needs of the power elite within the evolving political-religious machine. Eventually the teachings were banned by the early Christian churches, for they disclosed the identity and tactics of the Elohim and other ET groups, and told of
+the divisions within the Melchizedek Templar Creed. Very few of the original
+Jesheua-12 teachings have survived into the present time, though there are
+remnants of these teachings secretly preserved in France, that will one day be
+discovered. The original teachings of ]eshewua-9 were also distorted and misrepresented through political and religious structures of various times. The
+teachings of contemporary Christianity, though they provide a basic structure
+upon which social organization and spiritual initiation can be built, reﬂect little of
+the depth, content or meaning of the original teachings of the avatar Christs.	
+	 	
+Following the establishment of Jesheua-12’s lineage (18 AD-23 AD) the
+avatar had completed his work on Earth. The Blue Flame Melchizedeks carried
+on his teaching legacy and became the primary keepers of the secrets of the Arc
+of the Covenant and the Sphere of Amenti. Various groups were assigned various portions of the whole story, with no one group having the entire chronology of the teachings of Jesheua12. Jesheua-12 left Earth through the Arc of the
+103	
+                                                                                                                                                                                                                   
+
+Return to Amenti	
+Covenant at 39 years of age in 27 AD. He did not die, but rather bodily
+ascended to Tara, and has since evolved far beyond the conﬁnes of physical
+matter. The Arc of the Covenant was resealed within the UHF bands of D-3
+following his ascension, awaiting the time when Earth’s grid rose high enough
+in vibration to allow for the return of the Sphere of Amenti, which was scheduled to occur before the mass ascension wave of 2017 AD. The Azurite Council, Interdimensional Association of Free Worlds and their many supporters
+maintained a stance of non-interference following the success of ]esheua-12’s
+mission. They allowed the Elohim and various other Host Matrix Families to
+direct the course of earthly events as they desired, knowing that the truth of the
+Templar and the Law of One, as upheld by the Blue Flame Melchizedeks and
+Priests of Ur, would eventually come to light within the evolving human consciousness. The Azurites planned to wait until the return of the Sphere of
+Amenti to Earth's core before bringing this knowledge back into the public
+domain, and in the meantime hoped to unite the Melchizedeks within the
+teachings of the sacred Law of One.	
+    Though Jesheua-12 had successfully aligned the race morphogenetic
+ﬁeld at Amenti with the original 12-strand DNA imprint, most of the races
+still carried traces of genetic distortions from the Templar and TemplarAxion Seals, which would need to be cleared prior to the opening of the
+Halls of Amenti. The Elohim, Templar Melchizedeks, Blue Flame
+Melchizedeks and many other unrelated Host Matrix groups have assisted,
+and continue to assist, many individuals in clearing their genetic codes in
+preparation for ascension. All present-day ideologies that teach conscious evolution, and DNA activation and transmutation, are geared toward this purpose,
+including the new information currently being provided by various guardian ET and
+metaterrestrial forces. Jesheua-12, the 12th-level Turaneusiam avatar from
+Tara, fulﬁlled his purposes on Earth. Through him the Sphere of Amenti was
+made ready for re-entry into Earth’s core, following which the Halls of
+Amenti would eventually be opened. The race morphogenetic field had been
+reunited, so following the opening of the Halls of Amenti, all souls could
+again ascend through Amenti, once their genetic imprint had evolved to
+assemble the fourth and ﬁfth DNA strand. The plan for preparing the races
+for the 2017 AD ascension wave was put back on schedule. Since 27 AD,
+when the avatar Jesheua-12 ascended, the races of Earth evolved under the
+primary influence of the Elohim and various other Host Matrix groups not
+associated with the Christian and Jewish perspectives.		
+    Through the achievements of Jesheua-12 and Jeshewua-9, the primary
+morphogenetic imprint for all of the races was returned to the Sphere of
+Amenti, and the Sphere of Amenti was once again made whole. These accomplishments set the stage for mass ascension, but the races still had a long way to
+go in healing and evolving their consciousness and genetic codes. The Fre104	
+
+                                                                                      
+                                                                                                                The Three Christs
+quency Fence quarantine (UHF D-3 seal) still blocked Earth from open relations with the inter-stellar communities. The Arc of the Covenant D-5
+security seal kept all but the Melchizedek race strains from bodily ascension.
+The races still carried portions of the Amenti Seal (DNA strands one, two and
+three mutation, anti-particle “death” seal), the Palaidorian Seal (DNA strands
+two and three mutation, D-4 seal), the Templar Seal (DNA strands two, four
+and ﬁve mutation, D-6 seal) and the Templar-Axion Seal (DNA strands 1, 5
+and 6 mutation, D-7 seal; the “666” seal) within their genetic codes and the
+memory of the human lineage still remained locked away within the Sphere of
+Amenti in the UHF bands of the third dimension. These conditions would
+have to evolve and heal before humanity would be prepared to face the ascension wave of 2017 AD.	
+    Throughout the evolution of the races, guardian races attempted to
+awaken humanity to the reality of its evolutionary destiny. All of the major
+Earth religions were seeded at one time or another by guardian groups, to help
+the races prepare for their eventual ascension out of HU-1. Though the teachings are often quite different or seemingly contradictory and all religions have
+suffered manipulation and distortion at the hands of man and covert intruder
+ET forces, they are united through their original purpose of achieving ascension
+and freedom from the illusions of matter.	
+     The secrets of Amenti were ultimately kept under the protection of the Blue
+Flame Cloister Melchizedeks and the Hebrew Essenes who followed them, but
+the reality of Amenti belongs to all of the races and world religions. The Sphere
+of Amenti, Arc of the Covenant and Halls of Amenti represent the manifestation of the Covenant of Palaidor, which holds the evolutionary promise and progression for all races of the human lineage. It is the promise of humanity
+returning to the integrity of the Immortal God-being that is the original morphogenetic imprint of the human race.	
+        
+      The promise of ascension is the hidden heritage and legacy of the human
+condition, the fulﬁllment of humanity’s evolutionary blueprint.	
+105	 	
+
+                                                                          6                                                                                     
+                                              
+                                                              
+                        
+ 
+                                                    
+                                  
+                     Ascension Mechanics	
+                          
+                                    
+                                                   
+                                                HUMANITY’S EVOLUTION	            
+                 The Science of Ascension, Time Cycles, Morphogenetic Waves	
+                                     
+                                              and the Sphere of Amenti
+	
+      As we have mentioned before, ascension is not some lofty spiritual concept designed by the minds of man, it is the literal, tangible scientiﬁc process
+of the evolution of consciousness and biology within the laws of energy
+mechanics that apply to a multidimensional reality system. You can go about
+your human lives, with your consciousness conﬁned to the limitations presently imposed by your physical body, or you can learn the mechanics by
+which those limitations can be released, and begin to experience the reality
+of freedom that is the comprehension of yourself-as-soul. Whether or not you
+view ascension and multidimensional evolution as a reality while you are alive on
+Earth, you will be directly faced with that reality once your consciousness has
+passed out of physical life and into the multidimensional framework. At the death
+of the physical body you will discover that your consciousness lives on and
+your evolution continues. How well you prepare for that discovery now will
+determine the ease with which you are able to take your next evolutionary
+step once you “wake up on the other side.” All souls will eventually evolve
+and ascend through the 15-dimensional scale, to re-emerge as sentient identity within realms of pure consciousness beyond the dimensional systems. But
+this process is not something that takes places automatically for humankind.
+Humanity was created as a creator species, which means that thoughts and
+actions entertained by the human will be met in manifest experience, both
+on Earth and in the life experiences that take place beyond the earthly
+planes. The choices one makes in thought and deed will determine the quality of experience, or lack thereof, that will be personally encountered in feeling and event.	
+    In preceding chapters  we have detailed for you the great challenges and
+  struggles your species endured as it has blindly followed the hidden evolu106	
+

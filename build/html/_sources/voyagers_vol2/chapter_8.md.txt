@@ -1,602 +1,12 @@
-# Chapter 8
+# Chapter 8: Current Events
 
-their D-1 Merkaba Fields, which exist within the core of each planet and col-
-lectively manifest as your Sun. When viewed from the vibration level of the
-third dimension, which is where your consciousness and instruments are pres-
-ently focused, the D-1 Merkaba Fields, which exist within the core of Earth and
-the local planets, and which are within the core of the Sun, appear to be
-located outside of the planets, many miles away in outer space. You are dealing
-with multi-layered reality fields that take place in the same space, but appear to
-be separated due to the relationship between particle pulsation rhythm and
-angular rotation of particle spin. 
-    The perceivable experience of movement, passing time, matter, space,
-distance between objects and separation of forms is an illusion created by the
-multidimensional, holographic refraction of particles and anti-particles,
-which pulsate and spin at varying speeds and angular rotations in relation to
-each other. The movement of particles itself is a holographic illusion; movement
-only appears to be such when consciousness views itself through the layered prisms
-of multidimensional order. It will be centuries before your scientists begin to
-comprehend these facts of reality construction. However, while your con-
-sciousness is focused within the multiple layers of dimensional reality, the
-concepts of space, time, matter and movement will indeed appear to apply, so
-we will continue our discussion following that paradigm of perception.
-     You can begin to stretch your perceptual and conceptual fields by simply
-pondering the following concepts and allowing your intuitive senses to bring to
-you a sensed cognition of these realities of which we speak. When you look at
-your Sun from the third dimension, you are seeing the D-1 Merkaba Field of
-Earth and her sister planets. From the D-3 frequency level, when you view the
-D-2 Merkaba Field surrounding Earth’s iron core crystal, which holds Earth’s
-morphogenetic field, it appears to be the solid matter makeup of your Earth’s
-body and elemental/telluric kingdom. From the D-3 view, the D-3 Merkaba
-Field is the Earth’s atmosphere within which your present reality takes place.
-The distance of outer space that you perceive between Earth, the Sun and the
-planets represents the magnetic repulsion zone that separates the D-1, D-2 and
-D-3 frequency bands of HU-1 from the counter-rotating D-4, D-5 and D-6 fre-
-quency bands of HU-2. 
-     All dimensions exist in the same space, but seem to operate separately due
-to the particle pulsation rates of which they are composed. Particle pulsation
-rates are created by the degrees of angular rotation at which particles and anti-
-particles spin in relation to each other. In one universe there are 15 primary
-dimensional bands. Dimensional frequency bands group in sets of 3, and each
-set of three dimensions represents a Harmonic Universe. Thus there are five
-Harmonic Universes within one 15-dimensional Universe. The degree of angu-
-lar rotation of particle spin shifts 90° from one dimension to the next within
-one Harmonic Universe. In each Harmonic Universe containing three dimen-
-
-     Countdown to Amenti 
-sions, there are two 90° shifts of the angular rotation of spin between the parti-
-cles. Between one Harmonic Universe and the next there is a 45° reverse
-angular rotation of particle spin. This 45° reverse angular rotation of particle
-spin creates a Magnetic Repulsion Zone, or “void” between Harmonic Uni-
-verses, which keeps the reality fields contained there within separated from
-each other. These Magnetic Repulsion Zones are what you perceive as the
-seemingly endless vestiges of outer space. Through this structure of relative
-angular rotations of particle spin, the holographic illusions of multidimensional
-reality, matter, time, space, movement and individuation of form are perpetu-
-ally created and sustained. This will conclude our brief introductory lesson in
-multidimensional physics; we hope we have provided some interesting ideas for
-your more courageous scientists to explore. 
- THE PHILADELPHIA EXPERIMENT AND SOLAR CRISIS 
-                                 The Philadelphia Experiment 1943 
-     We will now resume our discussion of the Zetas plan to stop the merger of
-Earth and Tara’s grid and what they did to the Sun in 1943 that almost caused
-the extinction of the human population on Earth in the 1970s. 
-    The Zetas determined that in order to retain control of the human soci-
-ety within the future space-time coordinates where they had successfully
-achieved dominion over Tara-Earth’s territories in the D-4 time cycle, they
-had to stop the fifth DNA strand from manifesting within the human popula-
-tions of present-day Earth. Re-alignment of the fourth DNA strand by
-Guardian groups had broken down their D-4 Frequency Fence and they were
-losing control of their human subjects in the future. If the fifth DNA strand
-activated within 8% of Earth’s present human populations, the race Morpho-
-genetic Field in the Sphere of Amenti would realign the Frequency Fence
-distortions in the grids of Earth and Tara, and the Zetas’ Frequency Fence and
-Zeta Collective Mind Complex in D-4 would be destroyed. The upcoming
-morphogenetic wave period of 2012-2017 in Earth's present time cycle would
-allow all Earth humans to begin assembly of their fifth DNA strand and the
-D-4/strand-four Zeta Seal would be released in all humans. After 2017 the
-Zetas would totally lose control of the future human populations, if they did
-not stop the fifth DNA strand from activating within Earth humans and stop
-the present Earth grid from receiving its scheduled infusion of fifth to ninth-
-dimensional frequencies. 
-    From the beginning of their involvement with the covert human gov-
-ernments, the Zetas held this secret agenda of Earth infiltration. When they
-offered the Allied Governments technological information that helped them
-win World War II, the Zetas had ulterior motives. In 1943 the Zetas offered
-the U.S. Navy a rudimentary technology that would allow them to make
-objects appear invisible. On August 12th, 1943 the experiment was con-
-
-                                      The Philadelphia Experiment and Solar Crisis
-ducted in Philadelphia, PA, using a battle ship, the U.S.S. Eldridge. The
-event became known as the Philadelphia Experiment. We will not detail the
-experiment here, as there are several published accounts of this event, but we
-would like you to understand the Zetas’ motivation for instigating this
-project. The Zetas knew that in creating such an experiment, which utilized
-the creation of an external, manufactured Merkaba Field, that the functions
-of Earth’s natural Merkaba Fields would be disrupted. They failed to share
-this knowledge with the US. government. The experiment created a “rip in
-space-time,” or a tear in the natural Merkaba Fields, which served as a dimen-
-sional warp through which the Zetas could secretly pass their ships to Earth
-from their D-4 future location. Using this rip in space-time, the Zetas were
-able to transport large numbers of their spacecraft, undetected by human
-observation, into Earth’s D-2 Merkaba Field, and, from there, the ships could
-be used to broadcast specific electromagnetic pulses directly into Earth’s D-1
-Merkaba Field at the center of the Sun. 
-    Because the Earth is directly connected to Sun through the Stellar
-Spirals of the multidimensional Merkaba Fields, the Zetas knew they could
-misalign the grids of Earth and Tara by manipulating the Merkaba Fields of
-the Sun. They desired to create a Frequency Fence on Earth that would cause
-the grids of Earth and Tara to repel each other in 2012. Earth would be
-unable to receive its infusion of D-5 frequency, which would stop the fifth
-DNA strand imprint from manifesting in the races and keep Earth trapped
-within HU-1 for another 26,556-year cycle. They also knew that such a Fre-
-quency Fence, applied during the half-point in the second ascension cycle,
-would cause a pole shift on Earth, creating cataclysmic changes on Earth,
-wiping out the majority of the populations, once the environment had re-sta-
-bilized, the Zetas and Dracos planned to claim Earth’s territories as their own.
-      The covert human government had no idea of the Zetas’ real plan when they
-entered treaties with them during WW2, and they still do not know the extent to
-which they have been manipulated by the Zetas. The Interior Government was
-not aware of the dire consequences that could have resulted from these
-actions. Violation of human rights through covert forced abductions of citi-
-zens for hybridization experimentation was the least of the troubles created 
-by the Zetas’ involvement. In 1943 the Zetas used the opportunity presented
-by the Philadelphia Experiment to begin their plan of shifting the Earth’s grid
-out of alignment with Tara via manipulating the energy fields of the Sun. To
-the present day, the Interior Government does not realize that it was this
-event which triggered abnormal activity on the Sun between 1949 and 1972,
-activity which had some of Earth’s scientific community very concerned
-about the probability of a major pole shift occurring sometime during the
-1970s or 1980s. The Merkaba Fields of the Earth, the Sun and Tara are inti-
-mately intertwined with each other and with the Pleiadian star system and
-
-      Countdown to Amenti 
-others, so following 1943 the Zetas plan brought many different Guardian
-groups into Earth's drama. 
-    After the rip in space-time was made on August 12th, 1943, the Zetas
-secretly positioned their spacecraft beneath Earth’s surface in the D-2 fre-
-quency bands and began beaming electromagnetic pulses into the Sun.
-Using these EM pulses, the following effects were created: 
-    The spin of the base tone particles/magnetic field of the Sun’s D-1 Merk-
-aba Field was reversed, which made the Sun’s D-1 magnetic spiral become
-electrical. This change in the Sun created a reciprocal shift of polarity within
-the D-1 Merkaba Field of Earth. Earth’s D-1 base tone particles/magnetic spi-
-ral became electrical. This, in turn, caused Earth’s D-1 electrical/overtone
-particle spiral to reverse and become magnetic. Through spacecraft posi-
-tioned within the D-4 frequency bands, the Zeta next reversed the spin on
-the Sun’s D-4 Merkaba Field, which set the pattern for Tara's grid through
-the gold core crystal at the center of the Sun. The D-4 Merkaba Fields of par-
-ticle and anti-particle Tara were reversed. These actions constituted a full
-reversal of Earth’s D-1 electromagnetic Merkaba Fields, and a partial reversal
-of Tara’s D-4 electromagnetic Merkaba Fields, putting both out of alignment
-with the Merkaba Fields of D-2, D-3, D-5 and D-6. 
-    Normally, when the grids of Tara and Earth begin to enter alignment
-with each other about five years before the half-cycle point, the D-1 and D-4
-Merkaba Fields line up as follows: 
-    Earth’s electrical overtone spiral in D-1 aligns with Tara’s base tone mag-
-netic spiral in D-4, and Earth’s magnetic base tone spiral in D-1 aligns with
-Tara’s electrical overtone spiral in D-4. 
-    This alignment of D-1 electrical to D-4 magnetic and D-1 magnetic to
-D-4 electrical creates an interdimensional Resonant Tone through which the
-planetary grids can fuse. Following the reversal of Tara’s D-4 and Earth’s D-1
-Merkaba Fields, the new alignment between Earth’s and Tara’s Merkaba
-Fields became D-1 electrical to D-4 electrical and D-1 magnetic to D-4 mag-
-netic. The particles, which compose the planetary grids, would magnetically
-repel each other and the grids of Earth and Tara could not fuse. But this plan
-also causes major imbalance within the D-2, D-3, D-5 and D-6 Merkaba
-Fields. If the Sirian Council and other Guardian groups had not intervened, the
-human populations of Earth would have been vaporized between 1972-1974. 
-    By 1950 Earth scientists began to notice odd phenomena occurring on
-the Sun, as the Sun appeared to release periodic spirals of energy toward the
-Earth. This phenomenon was heavily observed between 1952 and 1968, and
-there was great concern that this solar anomaly would alter the wobble of
-Earth upon its axis, creating a pole shift of the planet. Although most of this
-information was blacked out of the media and kept from the public, some of
-these studies were published in scientific journals and news papers, especially
-after 1968, when the scientists calculated that if events continued as they
-
-                                                                            Solar Crisis and 11:11/12:12
-    were, by 1972 there would be a huge explosion on the Sun that would cause
-pole reversal and wipe out humanity by about 1984. On August 7, 1972 the
-solar explosions began to occur. Earth scientists observed a rapid increase in
-solar flares for several days, which peaked on August 7th, with the most
-intense ﬂare ever recorded. Solar winds accelerated at an alarming rate in the
-most intense solar storm ever witnessed by Earth scientists. Published
-accounts of these observations can be found in scientific literature from this
-time period. The solar winds increased rapidly between August 7th and
-August 10th I972, then strangely the winds began a rapid decrease in speed
-and the solar storms appeared to die down in the month that followed. This
-was a perplexing observation to Earth scientists; they had no idea that the Sirian
-Council had intervened. 
-                                 SOLAR CRISIS AND 11:11/12:12 
-                                             Wave-of-Flame and Red Pulse 
-      In January of 1972 members of the Sirian Council, Sirian-Arcturian
-Coalition for Interplanetary Defense, the Pleiadian Star League and several
-other Guardian groups entered the UHF bands of Earth’s atmosphere, aware
-of the solar events that were to occur. If they had not intervened, Earth’s
-populations would have been wiped out by 1974. When the electromagnetic
-Merkaba Fields of the Sun are artificially manipulated, such as they were by
-the Zetas following the Philadelphia Experiment, erratic electrical energies
-build up within the Sun’s energetic grid, throwing all of the Sun’s Merkaba
-Fields out of balance. As the misalignment of the Sun’s EM fields progresses,
-it manifests as an acceleration of solar-ﬂare activity, which eventually culmi-
-nates in surface explosions and temporary expansion of the Sun’s Merkaba
-Fields, lasting about 950-970 years. 
-      In 1972, the first explosions began to occur. The explosions would have
-continued until about September of 1973, when the Sun’s D-1 Merkaba Field
-would have burst open and expanded. The expansion of the Sun’s D-1 Merke
-aba Field would have sent an intense wave of ULF energy out through all of
-the planets in the local solar system. This wave of energy would cause a
-chain reaction within all of the planetary Merkaba Fields, through which
-pole reversal and vaporization of surface life would result. This wave of
-expanding D-I energy is called a Red Pulse (red denoting its D-I frequency),
-and it constitutes a wave of solar ﬂame within the D-1 frequency bands. Life-
-forms on planets in the First Harmonic Universe cannot survive such an infu-
-sion of ULF D-1 energy, because it would implode the molecular structure
-before the genetic code could expand enough to process those frequencies.
-    In order to avert the pending termination of Earth life, the Guardian
-races, under the direction of the Sirian Council, altered several layers of the
-morphogenetic fields of Earth and the local planets. As the Red Pulse Wave
-
-      Countdown to Amenti 
-of Flame would be coming in on the electrical overtone D-1 frequency bands,
-all of the D-1 overtones were temporarily removed from the planetary mor-
-phogenetic fields. This served to create a D-1 seal around Earth’s core, so the
-ULF of the Red Pulse could not enter Earth’s grid, or the grids of the neigh-
-boring planets. Next, a frequency seal was placed within the D-4 frequency
-bands, in order to block D-4 frequencies from entering into Earth’s morpho-
-genetic field. Once the overtones of D-1 were removed, Earth’s core could
-not synthesize incoming D-4 frequency, and the core would explode, so D-4
-frequencies had to be temporarily blocked from Earth. To create the D-4 seal,
-the first 11 (out of 12) base tones and overtones of D-4 were removed from
-Earth’s morphogenetic field, which meant that Earth’s lower three Merkaba
-Fields connected with the D-4 Merkaba Field only at the level of the 12th
-base tone and 12th overtone. These morphogenetic manipulations created
-another Frequency Fence, which served as a protective barrier around Earth
-and the neighboring planets. In energetic terms the 11:11/12:12 Frequency
-Fence took the form of a spherical band of energy surrounding Earth, within
-the D-1 and D-4 frequency bands—a protective “bubble” of multidimen-
-sional energy. 
-    Following the implementation of the Guardians’ Frequency Fence,
-humanity was under three layers of frequency modulation, the original Fre-
-quency Fence Quarantine from 9540 BC, the Zeta Seal Frequency Fence
-from 1748 AD and the 11:11/12:12 Frequency Fence of 1972. All three of
-these Frequency Fences would need to be lifted in order for the Blue Flame of
-Amenti to become embodied on Earth between 2012 and 2017. As Fre-
-quency Fences are morphogenetic manipulations, they also manifest within
-the DNA imprint of the races. The DNA of 8% of the human populations
-would have to be realigned and purged of the three Frequency Fence Seals
-and the remaining mutations from the earlier Amenti, Palaidorian, Templar
-and Templar-Axion Seals by January 1, 2012. Guardian races began conduct-
-ing mass-level, consensual, soul-agreement abductions of humans since 1972,
-in order to help humans begin repairing these genetic mutations, and also to
-begin education on preparation for 2012. Memory repression tactics were
-used to spare humanity the terror of facing events that it was not yet prepared
-to understand. The Zetas had been conducting frequent forced abductions
-since the late l940s as part of their hybridization program. They also used
-memory repression tactics. Guardians did not participate in these forced
-abductions, nor did they participate in intrusive experimentation. 
-    When the 11:11/12:12 Frequency Fence was established in 1972, the
-Guardians knew it was a temporary measure to buy the time they needed to
-rebalance the Merkaba Fields of Earth and the Sun. Balancing the Merkaba
-Fields was the most important project in the Guardian agenda. Since 9558 BC,
-when the islands of Atlantis sank and the Earth tilted on her axis, the Guard-
-ians knew they would have to assist in realigning the Merkaba Fields of Earth
-
-                                                                              Solar Crisis and 11:11/12:12
-before the 2012-2017 ascension cycle. Following the events of 1943-1972,
-this re-balancing effort would be much more difficult to achieve. Originally
-the Guardians planned to slowly accelerate the vibration rate of Earth’s grid
-through occasional infusions of D-4 energy that would slowly bring the grid
-into alignment and correct the pole tilt over the course of about 2,000 years.
-These occasional energy transmissions began in 196 BC, when Earth entered
-its present 4,426-year cycle. In their original plan the Guardians intended to
-raise Earth’s grid vibration into the UHF bands of the third dimension begin-
-ning in the 1950s, so the first seal on the Arc of the Covenant could be
-released no later than October of 1986. Following the release of the first seal
-on the Arc, the Sphere of Amenti would begin its 12-14 month descent into
-Earth’s core. 
-    The Sphere of Amenti had to be in place no later than 1/1/1988 so the
-Sphere would be able to fulfill the first 12-year phase of its activation cycle no
-later than 2,000 AD. Once the Sphere was fully activated to the 3-dimen-
-sional level in Earth’s D-2 core, it would cause Earth’s grid to send a spark of
-D-5 frequency into the Arc of the Covenant, releasing the second seal on the
-Arc. This would begin the 12-year descent of the Blue Flame of Amenti and
-the shift of Earth from the D-3 to the D-4 time cycle. The second seal on the
-Arc of the Covenant had to spark open no later than 6/1998 so the shift into
-the D-4 time cycle would begin by 1/1/2000, in order for the Earth’s grid to be
-prepared for proper fusion with Tara’s grid between 2012-2017. The D-5 fre-
-quencies of the Blue Flame had to be embodied within the populations of
-Earth, no later than 5/5/2012, or else Earth changes would result when the
-grids began to merge. 
-    When the Zetas’ Frequency Fence and genetic mutation from the
-future began affecting Earth in 1748, creating blockages of the D-4 frequen-
-cies in Earth’s morphogenetic field and fourth-strand DNA mutations in the
-races, the Guardians began construction of an artificial D-4 grid imprint
-within the Earth’s morphogenetic field. They re-entered the aligned D-4 fre-
-quency patterns into the gold core crystal D-4 Merkaba Field at the center of
-the Sun, which began to restore the D-4 imprint in the Earth’s morphoge-
-netic field and within the Sphere of Amenti. This allowed the Guardians to
-continue infusing Earth with D-4 frequency to slowly reverse Earth’s unnatu-
-ral tilt on its axis. This artificial D-4 imprint also began the deterioration of
-the Zetas’ Frequency Fence and a reverse mutation of the fourth DNA strand.
-The new D-4 imprint manifested as a band of UHF energy surrounding the
-outer portions of the Earth’s atmosphere, about 444,000 miles out in space,
-just beyond the 12th overtone of the third dimension. It allowed human
-consciousness to continue its expansion into D-4 perception and allowed the
-Earth’s infusion of D-4 energy accelerations to continue. This artificial D-4
-grid which the Guardians began constructing in 1748, has frequently been
-referred to in New Age terminology as the “artificial Christ Consciousness     
-
-        Countdown to Amenti 
-Grid”. This term was chosen because the upper frequency bands of D-4 rep-
-resent the beginning levels of the Turaneusiam 12-strand DNA conscious-
-ness, which was exemplified on Earth by Jesheua-12 in 12 BC-27 AD. When
-the problems arose with the Zetas’ manipulation of the Sun between 1943-
-1972, the artificial D-4 grid became blocked by the 11:11/12:12 Frequency
-Fence. 
-    In 1972, the Guardians had to accelerate their whole energy infusion
-program in order to reverse the damage the Zetas had caused, which meant
-that humanity would be put on a course of very rapid evolution between 1972
-and 2012. For the artificial D-4 grid to become operational again, the 11:11/
-12:12 Frequency Fence had to be removed, which meant that the D-4 and D-
-1 Merkaba Fields of the Sun had to be returned to their original polarity. This
-would correct the D-1 Merkaba Field of Earth and the D-4 Merkaba Field of
-Tara-Earth so the grids could fuse in 2012, if the Earth grid vibration was
-raised high enough in time to hold the Sphere of Amenti. 
-    The Earth’s grid had to reach the speed of the UHF bands of D-3 for the
-first seal on the Arc of the Covenant to spark and release the Sphere of
-Amenti by 10/1986. It would be difficult, if not impossible, for the Guardians
-to raise Earth's grid speed that high without the infusions of D-4 energy that
-were now blocked by the 11:11/12:12 Frequency Fence, so correction of the
-Sun’s Merkaba Fields became a race for time within the Guardian legions.
-Even though the Frequency Fence did not lift until 1992, the Guardians were
-successful in raising the grid speed enough for the Arc of the Covenant to
-open by the 10/1986 deadline. The accelerated energy infusions used to re-
-balance the Merkaba Fields of the Sun, began in 1973 and were projected
-into the solar fields via beam ships stationed in the future D-4 time cycle.
-These infusions would cause rapid shifts of the energy fields on Earth, which
-would have created havoc within the consciousness of the human popula-
-tions and instability of Earth’s natural EM fields. However, the 11:11/12:12
-Frequency Fence allowed the Guardians to employ Holographic Insert tech-
-nology on Earth, through which the illusion of grid stability could be created,
-so the Guardian re-balancing efforts would remain undetected and excessive
-instability within the human populations could be avoided. Earth existed
-under these Guardian-created Holographic Inserts from 1973 to 1/11/1992, when
-the 11:11/12:12 Frequency Fence began lifting. 
-                                      THE MONTAUK PROJECT 
-          Zetas and Rigelians, the Montauk Project 1983 and 2976 AD
-    Between 1973 and 1980 Earth remained under the Guardians’ Holo-
-graphic Inserts and the illusion of electromagnetic stability they created,
-while the Guardians worked to complete realignment of the Sun’s Merkaba
-Fields. By 1982 the Zetas became tremendously frustrated as they observed
-
-                                                                                 The Montauk Project
-the continuing breakdown of their Collective Mind Complex in the D-4
-time cycle, and began to realize that the Guardians would correct the mis-
-alignment of the Sun in time for the ascension period to proceed as sched-
-uled. Between 1982 and 1984, most members of the Zeta Legion entered into
-treaties with the Guardian races, and agreed to stop their plan of Earth infil-
-tration. These agreements also included the Zetas from the D-4 time cycle,
-who had fallen under domination of the Dracos in that future time period.
-The Guardians agreed to relocate the Zeta races and their hybrids to another
-planetary system in D-4, where they could evolve peacefully, as long as the
-Zetas agreed to follow the dictates of the Sirian Council and Galactic Federa-
-tion, and to operate upon principles of the Law of One from that time for-
-ward. The Zetas were also required to fully dismantle their Collective Mind
-Complex in D-4, to release the Zeta Seal Frequency Fence and to assist the
-Guardians in preparing Earth and humanity for 2012. Though most of the
-Zetas agreed, and began working with the Guardians in 1983, several Zeta
-and most Dracos groups refused to release their desire for possession of Earth.
-These groups became known as the Dracos-Zeta Resistance, which included
-rebellious Zeta races, Dracos and their hybrids. 
-     The primary Zeta groups that refused Guardian treaties are the Zeta
-Greys from a solar system that orbits the star Rigel, in the Orion star system.
-These are frequently called the Rigelians; we know them as the Futczhi (pro-
-nounced FOO’-SHE). It is this Zeta group that formed treaties with the Inte-
-rior Government on Earth and orchestrated the Zeta Seal and manipulations
-of the Sun. They are the most aggressive and militant of the Zeta Grey races
-and are extremely dangerous to humans, because they often attempt to
-present themselves as Guardians in order to seduce humans into being their
-earthly operatives. The Rigelians/Futczhi dominated the other Zeta races in
-the D-4 time cycle until the majority of these non-Rigelian Zetas rebelled
-and sought Guardian protection when this option was offered between 1982-
-1984. Following the Guardian treaties of 1982-1984, the Zeta-Dracos hybrids
-known as the Rutilia, who had always been the primary go-betweens in Zeta-
-Futczhi/human relations, served as infiltrates within the Interior Govern-
-ment, and continued to secretly motivate humans to continue helping them
-fulfill their old agenda. (Note: the Rutilia are those beings referred to by the
-government as “EBE’s” - Extraterrestrial Biological Entities. They closely
-resemble the Greys, but usually have a lighter gray to gray-white complexion,
-and more pronounced ridging at the rear of the skull.) The Dracos-Zeta
-Resistance had to find a way to reconstruct the Zeta Seal, Frequency Fence
-and Zeta Collective Mind Complex before 2012, in order to regain control of
-the human populations in D-4. 
-     The Dracos-Zeta Resistance set their new plan in motion in 1983, when
-they covertly motivated humans to create another experiment, similar to the 
-Philadelphia Experiment of 1943. They desired to create another rip in space-
-
-Countdown to Amenti 
-time, through which large numbers of their ships could be secretly sent from
-the future to Earth, into three different time-space coordinates. From these
-positions in time, the ships could enter the D-2 frequency bands of Earth and
-begin transmitting EM pulses through the Earth’s grid, which would serve to
-reconstruct their Frequency Fence and cause mutation in the fourth DNA
-strand. 
-     Even if the grids of Earth and Tara were able to merge between 2012-2017,
-the human gene code would not have time to fully assemble the fifth DNA
-strand in the majority of the populations. This would stop the scheduled ascen-
-sions through the Halls of Amenti and keep the Zeta Seal operational within
-the Sphere of Amenti, so their human captives in D-4 would once again be
-subject to Zeta-Dracos control. For their new plan to work, the Zetas had to
-begin broadcasting their EM pulse Frequency Fence as close to 2012 as possible,
-while still allowing enough time for the fence to take effect within the human
-gene code. It would take a minimum of six years for the new frequency fence to
-cause the fourth DNA strand mutation in the majority of the human popula-
-tions, so the Dracos-Zeta Resistance would have to begin broadcasting their
-EM pulses no later than 2006. If they began broadcasting too soon, the Guard-
-ians’ infusions of  D-4 frequency would counteract their EM transmissions, and
-the genetic mutation would not “hold” within the DNA. The Dracos-Zeta
-Resistance decided upon the year 2004 as their target date. In order to fulfill
-their plan of covert mass infiltration, they would have to enter their ﬂeets into
-Earth’s D-2 frequency bands during the peak of Earth’s D-1/D-4 Merkaba Field
-cycle, which takes place every 20 years on August 12th. 
-    Dimensional Merkaba Fields go through cycles of movement in which
-the two spiraling energy fields vertically condense and draw toward each
-other, then progressively expand on the vertical axis, drawing away from each
-other. When the Merkaba Fields draw away from each other, the upright
-electrical spiral moves into the magnetic Merkaba spiral of the dimension
-above, which causes a temporary blending of frequencies between the mag-
-netic spiral of one dimension and that of the dimension above. These points
-of interdimensional magnetic spiral blending are called Dimensional Mag-
-netic Peaks. During Magnetic Peaks, natural interdimensional portal win-
-dows briefly open, allowing unencumbered transit between dimensional
-bands. Magnetic Peaks also occur between the Merkaba Spirals of Harmonic
-Universes, through which the Merkaba Fields of a dimension in one Har-
-monic Universe blend with the Merkaba Fields of the corresponding dimen-
-sion one Harmonic Universe up; these blending periods are called Harmonic
-Magnetic Peaks. Each Harmonic Universe has three dimensions, each of the
-three dimensions representing a base tone, overtone or resonant tone, within
-the 15-dimensional scale. D-1, D-4, D-7, D-10, and D-13 are base tone
-dimensions. D-2, D-5, D-8, D-11 and D-13 are overtone dimensions. D-3, D-
-
-                                                                                    The Montauk Project
-6, D-9, D-12 and D-15 are resonant tone dimensions. Harmonic Magnetic
-Peaks occur when base tone—base tone, overtone—overtone, or resonant
-tone—resonant tone Merkaba Field alignments take place. The D-1 base tone
-Merkaba Field of Earth and the D-4 base tone Merkaba Field of Tara reach
-their Magnetic Peak cycle once every 20 years between August 12th-15th,
-at which time a dimensional window opens between Earth’s HU-1, and Tara’s
-HU-2, time continuum cycles. 
-    The first Harmonic Magnetic Peak of the 20th century occurred on
-August 12th, 1903, and the last on August 12th, 1983. These periods mark a
-time of peak magnetic pull within Earth’s subtle energy bodies and height-
-ened dimensional blending, through which large numbers of Dracos-Zeta
-ships could be cloaked and brought to Earth from D-4. August 12th, 2003 is
-the closest peak date to the Dracos-Zeta Resistance target date of 2004. The
-plan called for a simultaneous entry of beam ships during three time periods,
-and once the Zetas had successfully orchestrated infiltration, they would
-broadcast their Frequency Fence through Earth’s grid and begin the genetic
-mutation. If they attempted this mutation from only one time period, there
-would not be enough time for it to take hold within the majority of the popu-
-lations. By entering the EM transmissions at the three different, but closely
-related time periods of 1943, 1983, and 2003, a great number of people would
-be affected. 
-    For the Dracos-Zeta Resistance plan to be effective, they would have to
-create three rips in space-time on Earth, through which their ships could be
-entered. One such rip already existed from the Philadelphia Experiment of
-1943 and one would have to be created in 2003. The Resistance scheduled
-the third rip in space-time for the next Harmonic Magnetic Peak cycle of
-August 12th 1983, the only opportunity they would have before 2003.
-Working with the Interior Government, the Dracos-Zeta Resistance orches-
-trated another experiment, which came to be known as the Montauk
-Project. Again, accounts of this experiment are available in other publica-
-tions, so we will not detail here. 
-    The Montauk project served to widen the rip in 1983 space-time that
-had begun as the result of the Philadelphia Experiment. By August 14th
-1983 the time periods of 1943 and 1983 were successfully linked to the Dra-
-cos-Zeta Resistance D-4 time period, which they used as a base of operations.
-From 1983 to the present, the Dracos-Zeta Resistance resumed their
-hybridization program through abducting humans, creating several strains
-of hybrids and human clones. They also created infiltrates via genetic engi-
-neering, through which they could interface with Earth’s cultures under
-the guise of human form. Infiltrates are children conceived of natural
-human conception, whose mothers were abducted during pregnancy so Zeta-
-Dracos genetic materials could be infused into the fetus. These children are
-born (usually within the seventh month of gestation) and raised by their
-
-Countdown to Amenti 
-human parents, and appear to be fully human. They are consciously unaware
-of their ET affiliation, but can be subliminally directed by the Dracos-Zeta
-Resistance via the DNA and neurological structure. When Guardian groups
-locate such infiltrate individuals, they orchestrate abductions, and dismantle
-the Zeta-Dracos gene codes, thereby freeing these mostly human subjects
-from their covert controllers. 
-                         2976 AD and the Dracos-Zeta Resistance 
-    The Guardians became aware of the Dracos-Zeta Resistance problem in
-1984, and were able to trace probable events in the future that would result
-from this present activity. What they discovered was alarming, as the conse-
-quences of this infiltration were more far-reaching than they had speculated.
-They discovered a future event that would occur in the year 2976 AD, that was
-the result of the Zetas’ interference after the year 2000. In this probable future,
-the Guardians had been successful in realigning the Merkaba Fields of Earth
-and the Sun, but in 2003 AD the Dracos-Zeta Resistance is also successful with
-their infiltration plan. The Guardians saw that the Zetas’ new Frequency Fence
-partially misaligns Earth’s grid in 2012, and when Earth and Tara begin to inter-
-sect, major Earth changes result. Though Earth still fuses with Tara and
-releases a morphogenetic wave as intended, just as that wave begins to crest
-(2012), the Earth changes begin. When the morphogenetic wave begins to
-crest, the Halls of Amenti portals open, but the Earth grid must be stable in
-order for the Halls to remain open through their 10-year cycle (2012-2022).
-The Earth changes cause a premature closing of the Halls of Amenti, which
-creates a rapid drop in Earth’s grid speed. The Sphere of Amenti cannot be left
-in Earth's core during this drop in vibration or the Earth grid will explode. In
-this future probability, Guardians remove the Sphere of Amenti from Earth and
-human populations come under direct covert control of the Dracos-Zeta Resis-
-tance. The Zeta Seal genetic mutation is returned to the human race. Once
-Earth is under Dracos-Zeta rule, the Zetas are attacked and dominated by the
-Dracos group with whom they had been working. The Dracos take command
-of Earth in both the D-3 and D-4 time cycles and begin to use the D-3 Earth
-as a storehouse for unwanted photo-nuclear waste materials from the D-4
-Tara-Earth time cycle. (Photo-nuclear waste is produced through certain pro-
-cesses involving the manufacture of photonic energy through manipulation of
-multidimensional nuclear materials). This process causes a massive nuclear
-explosion on D-3 Earth in 2976 AD, through which Earth is destroyed. All
-souls involved in the cataclysm fragment and are lost within HU-1. Their con-
-nections to the Sphere of Amenti race morphogenetic field and their personal
-soul matrices are severed. 
-    If this future event occurred in present-Earth's line of development, not
-only would the Earth and the major part of the human race be lost, but the evo-
-
-                                                                                     The Montauk Project
-lution of Tara in HU-2 would be set back by eons, as Tara would remain
-trapped in her HU-2 time cycles until Earth’s imprint could be reconstructed
-and re-evolve in HU-1. 
-    Upon discovering these probable future events, Guardian groups made
-an appeal to the Resistance Zetas, telling them of the Dracos’ betrayal and
-offering to assist them in relocation, if they would give up their infiltration
-plan. The Zetas refused to alter their plans. 
-    Though the Guardians could easily subdue the Dracos-Zeta legions in a
-forced confrontation, such a confrontation would cause major damage to
-the Earth’s Merkaba Fields, which would ensure the destruction of the
-human populations. The Guardians had to find a better way to avert the
-new Dracos-Zeta agenda. Not only did the Guardians bear the responsibility
-for preparing Earth and humanity for 2012, they now had the additional bur-
-den of protecting their preparation plan from Dracos-Zeta Resistance sabo-
-tage. In December of 1984, the Sirian Council, Pleiadian Star League,
-Sirian-Arcturian Coalition for Inter—planetary Defense, the Andromeda Fed-
-eration of Planets, the Palaidorians of HU-2 and several other Guardian
-groups from HU-l, HU-2 and HU-3, co-created the Bridge Zone Project, in
-order to protect Earth and the human populations from Dracos-Zeta Resis-
-tance infiltration, and the destruction of Earth in 2976 AD that would result
-from this interference. 
-    The Dracos-Zeta Resistance is presently quite aware of the Guardian’s
-Bridge Zone plan, but they are confident that humanity will be unable to rise
-to the occasion and feel sure their infiltration plan will be successful. The
-Guardians believe humanity can indeed pull together and make the Bridge
-Zone project a success. For this reason we of the Guardian Alliance bring to
-you this hidden knowledge, so that you may be prepared to make a stand on
-behalf of your own evolution and freedom. 
-
-                         Current Events 
-                                             THE BRIDGE ZONE PROJECT 
-                                        The Bridge Zone Time Continuum Shift 
-                    12/1984 - present
-    Before the Dracos-Zeta legions had altered the EM fields of the Sun in
-1943 the Guardians’ preparation plans were relatively simple. Using their
-artificial “Christ Consciousness” D-4 grid from 1748, they progressively sent
-transmissions of UHF D-4 energy into Earth’s grid to raise the vibration of
-Earth’s core high enough to send the first spark into the Arc of the Covenant
-by October of 1986. The Sphere of Amenti would complete its 14-month
-descent through the Arc from the UHF bands of D-3 by 1988. The Sphere of
-Amenti would merge its D-1, D-2 and D-3 frequency patterns with, and
-expand Earth's morphogenetic field no later than 6/1998, which would spark
-the Arc a second time, beginning the 12-year descent of the Blue Flame and
-Earth’s temporary 2000 AD shift into the D-4 time cycle. The Guardians
-would continue to gradually realign Earth's Merkaba Fields/electromagnetic
-fields to correct the tilt caused by Atlantis sinking. This would align Earth’s
-fourth vortex/Heart Chakra at Giza with the Alcyone energy spiral by 2004,
-in preparation for Earth’s entry into the Photon Belt and Holographic Beam,
-and the opening of the Halls of Amenti in 2012. 
-    The original Quarantine Frequency Fence from 9540 BC would begin to
-lift once the Arc of the Covenant first opened, and all traces of the fourth-
-strand DNA Zeta Seal mutation and Zeta Frequency Fence would dissolve
-once the Arc was sparked a second time and D-4 frequency from the Sphere
-of Amenti would begin transmitting through Earth’s grid. Between 1/1988 and
-1/2017, the seven natural seals on Earth’s seven primary vortex points would pro-
-gressively  open  as   the    dimensional  Merkaba  Fields   and   Stellar  Spirals   began   opening
-and blending into each other, while the Guardians assisted the Earth grid to remain
-balanced through these transitions. The Guardians planned to offer dispensa-
-tions of teachings to humans while the veils between the ego, higher self and
-
+                                                                              
                                                                                The Bridge Zone Project
-soul identity began to lift, as the DNA progressively assembled. The Guard-
-ians’ primary concern at this time was to realign Earth’s Merkaba Fields and
+soul identity began to lift, as the DNA progressively assembled. The Guardians’ primary concern at this time was to realign Earth’s Merkaba Fields and
 bring Giza into alignment with Alcyone. They would ensure that the descent
 of the Sphere of Amenti and the Blue Flame stayed on schedule. Guardians
 were to maintain planetary balance while Earth’s seven vortex seals opened,
-and they would begin making subtle contact with humans, to help them pre-
-pare for the opening of the Halls of Amenti. 
+and they would begin making subtle contact with humans, to help them prepare for the opening of the Halls of Amenti.	
     Following the 1943 Philadelphia Experiment, the Zetas’ manipulation
 of the solar Merkaba Fields and the necessity of the Guardians’ 11:11/12:12
 Frequency Fence of 1972, the Guardians’ preparation plan and deadline
@@ -605,66 +15,60 @@ schedule became more taxing. Before the original plan could continue, the
 frequencies except the 12th base tone and overtone out of Earth’s grid, had to
 be dismantled. Though the Guardians could alter the Frequency Fence
 enough to allow the Sphere of Amenti to enter Earth's core on schedule, the
-fence could not remain intact when the Sphere of Amenti began transmit-
-ting D-4 frequency into Earth’s grid in 1/2000, when the fourth vortex seal
+fence could not remain intact when the Sphere of Amenti began transmitting D-4 frequency into Earth’s grid in 1/2000, when the fourth vortex seal
 opened. lt would take about four years for the Earth’s grid to balance once
 the 11:11/12:12 Frequency Fence was released, so the fence had to be down
-no later than 1/1996. 
+no later than 1/1996.	
      Once the Sphere of Amenti was opened, if the D-4 frequencies could not
 enter Earth’s core in 1/2000, the D-4 Merkaba Field of Tara, the gold core
 crystal stored at the center of the Sun, would explode. In this event, not only
-would Earth explode, but so would the other 10 planets of the local solar sys-
-tem and the Sun, all of which are energetically attached to the D-4 Merkaba
+would Earth explode, but so would the other 10 planets of the local solar system and the Sun, all of which are energetically attached to the D-4 Merkaba
 Field gold core crystal. This would begin a similar chain reaction within the
-Pleiadian star system, to which Earth’s Sun belongs. As you may now under-
-stand, balance and timing are extremely important factors when the Halls of
+Pleiadian star system, to which Earth’s Sun belongs. As you may now understand, balance and timing are extremely important factors when the Halls of
 Amenti open. In order to remove the 11:11/12:12 Frequency Fence, the
 Merkaba Fields of the Sun would have to be carefully realigned no later than
 6/1994, which would allow one and one-half years for the Earth’s grids to
 rebalance before the Frequency Fence was lifted. Realigning the solar fields is
 a delicate process in and of itself, but this process combined with the general
 preparations of opening the Halls of Amenti within the scheduled deadlines
-served to make the Guardians’ task even more complex. 
-     As if these complications were not enough, the Guardians then discov-
-ered the potentially disastrous results of the Dracos-Zeta Resistance infiltra-
-tion and their plan to re-institute their Frequency Fence and Zeta Seal in
+served to make the Guardians’ task even more complex.	
+     As if these complications were not enough, the Guardians then discovered the potentially disastrous results of the Dracos-Zeta Resistance infiltration and their plan to re-institute their Frequency Fence and Zeta Seal in
 2003. The events of the 2017 ascension cycle were taking a very serious turn,
 and if the circumstances were not handled properly, the human populations
 would be decimated by severe Earth changes between 2012-2017. The
 option of stopping the Sphere of Amenti from descending through the Arc of
 the Covenant, and thus allowing Earth and humanity to remain trapped
+143	
+                                                                                                                     
+                                                                                                                 
 
-   Current Events 
+  
+   Current Events	
 within HU-1 time cycles for another 26,556 years, was no longer open. The
 Earth changes of 2012-2017 could be primarily avoided in this case, but
 humanity would fall under dominion of the Dracos-Zeta Resistance and
-under that inﬂuence the Earth would meet with an untimely, cataclysmic end
+under that influence the Earth would meet with an untimely, cataclysmic end
 in 2976 AD. These events could not be allowed to transpire, as they were set
 to occur. The explosion of Earth would cause tragic consequences for Earth,
 Tara and numerous other star systems. The lost souls of Tara, whom the
-Guardians had so painstakingly nurtured and protected for the past 550 mil-
-lion years, would once again be fragmented and left with no evolutionary
-blue print to follow. 
+Guardians had so painstakingly nurtured and protected for the past 550 million years, would once again be fragmented and left with no evolutionary
+blue print to follow.	
     The Rigelian/Futczhi Zetas working with the Dracos would not listen
-to reason and the Dracos would not release their claims on Earth. Confronta-
-tional force between the Guardians and the Dracos-Zeta Resistance, during
+to reason and the Dracos would not release their claims on Earth. Confrontational force between the Guardians and the Dracos-Zeta Resistance, during
 Earth’s most vulnerable period, would destroy the planetary balances of
 Earth, so the Guardians had to turn to high-spiritual technology in order to shift the
 course of events as they were evolving on Earth. In 1984 Guardian groups from
 HU-1, HU-2 and HU-3 joined together to create the Bridge Zone Project.
-The basic idea behind the Bridge Zone project involved shifting Earth com-
-pletely out of the HU-1 time cycle, an event that would not occur naturally
+The basic idea behind the Bridge Zone project involved shifting Earth completely out of the HU-1 time cycle, an event that would not occur naturally
 until the second morphogenetic wave of the second ascension cycle, during
 the natural Doreadeshi in 4230 AD. Since the Guardians could not move the
 Dracos-Zeta Resistance out of the way of Earth’s intended evolution, they would
 instead move Earth out of the way of the Dracos-Zeta Resistance. The Guardians
-would construct an artiﬁcial time continuum between the third and fourth dimen-
-sions, into which Earth could pass in 2017. This constituted orchestrating a forced
-Doreadeshi, 2213 years ahead of its natural schedule. 
+would construct an artiﬁcial time continuum between the third and fourth dimensions, into which Earth could pass in 2017. This constituted orchestrating a forced
+Doreadeshi, 2213 years ahead of its natural schedule.	
     In order for the Dracos-Zeta Resistance’s Frequency Fence to work in
-2003-2004 AD, they had to transmit very specific EM pulses, at very specific
-angles through the Earth’s grid. The Zetas had worked since 1943 to deci-
-pher the appropriate calculations to use for the projections of their EM
+2003-2004 AD, they had to transmit very speciﬁc EM pulses, at very speciﬁc
+angles through the Earth’s grid. The Zetas had worked since 1943 to decipher the appropriate calculations to use for the projections of their EM
 pulses. If the Merkaba Fields of Earth were rapidly accelerated, which would
 constitute a planetary leap in time cycles from the HU-1/D-3 cycle to Bridge
 Zone D-3.5 cycle of the lnner Earth, between D-3 and D-4, the Zetas-Dracos
@@ -674,92 +78,686 @@ Resistance would not have enough time to decipher new calculations, and
 once Earth was stabilized in the Bridge Zone D-3.5 time continuum, and
 under full Guardian protection, the Dracos-Zetas could not successfully
 launch an infiltration. Furthermore, if Earth was successfully shifted, and its
-frequency  raised sufficiently, the Dracos-Zetas would lose control of  their  Fre-
-quency Fence and their human captives in the D-4 cycle. For humanity to shift
+frequency  raised sufﬁciently, the Dracos-Zetas would lose control of  their  Frequency Fence and their human captives in the D-4 cycle. For humanity to shift
 into the Bridge Zone with Earth, the populations would have to fully assemble
 their DNA to the 4.5 -strand level, and a minimum of  8% would have to assemble
+144	
 
+                                                                                   
+                                                                              
                                                                   The Bridge Zone Mechanics
 the ﬁfth DNA strand. Along with this, 144,000 individuals would need to fully
 assemble the sixth strand, embody their entire soul matrix and begin to assemble the
 seventh-twelfth strands. This acceleration of the human genetic imprint would
 release the D-4 Zeta Seal from all of the human races, present and future, and
 would allow Earth’s grid speed to raise high enough to remain in the Bridge
-Zone. 
+Zone.	
     Following the shift to the Bridge Zone, Earth would leap ahead 2213
 years by skipping the second half of its D-3 cycle, then move backward in
 time 1106.5 years within the Bridge Zone cycle. After completing 1106.5
 years in the Bridge Zone, Earth would leap ahead another 1106.5 years by
-skipping the first half of its first D-4 cycle. Earth would then pass into the first
+skipping the ﬁrst half of its ﬁrst D-4 cycle. Earth would then pass into the ﬁrst
 D-4 cycle at the half-cycle point and continue its path of natural evolution
 through the D-4 time cycles. This movement of 2213 years ahead, 1106.5
 back, and 1106.5 ahead in time represents a cumulative leap of 2213 years in
 evolutionary space-time progression. The Dracos-Zeta Frequency Fence
-would end up in the dimensional frequency bands below the Bridge Zone fre-
-quency bands in which the Earth was positioned, and thus Earth’s grid would
+would end up in the dimensional frequency bands below the Bridge Zone frequency bands in which the Earth was positioned, and thus Earth’s grid would
 be unaffected. However, once Earth was above the frequency fence, it could
 not be re-entered into the dimensional bands below the fence. The Merkaba
 Fields of Earth would re-seal in 2017, locking Earth into the Bridge Zone
 time continuum. If the Guardians were going to force an early Doreadeshi, by
-moving both the overtone/electrical fields and the base tone/magnetic fields
-of Earth into the Bridge Zone time continuum cycle during the 2017 half-
-cycle point, the move would have to be permanent. 
+moving both the overtone/electrical ﬁelds and the base tone/magnetic ﬁelds
+of Earth into the Bridge Zone time continuum cycle during the 2017 halfcycle point, the move would have to be permanent.	
+ 
                                     BRIDGE ZONE MECHANICS
+	
     The idea of shifting a planetary body from one time continuum to
 another may seem quite outrageous to a civilization that does not yet have a
 working comprehension of multidimensional physics. We assure you that
 such a procedure is most definitely real and valid in terms of the structural
-energetic dynamics of the Time Matrix. This procedure is not used fre-
-quently, for it is a complex and delicate process requiring direct intervention
+energetic dynamics of the Time Matrix. This procedure is not used frequently, for it is a complex and delicate process requiring direct intervention
 from the higher Harmonic Universes of HU-3-HU-5. For the most part,
 planets and civilizations are allowed to evolve along the course of their own
-development, following their own choices and meeting with the conse-
-quences of those choices. But occasionally a planet and its peoples get into
+development, following their own choices and meeting with the consequences of those choices. But occasionally a planet and its peoples get into
 trouble that has far-reaching consequences for numerous planetary systems,
 and in these cases intervention in the course of evolution is permitted. Earth
-is presently in such a state of potential crisis, unbeknownst to most of its pop-
-ulations. 
+is presently in such a state of potential crisis, unbeknownst to most of its populations.	
+145	
+                                                                                                                     
+	 	
+	
+	
+	
+	
+	
+	
+	
+	
+ 
 
-            Current Events 
-                           TIME-CYCLE MECHANICS AND EVOLUTION 
-                                                    Time-Cycle Mechanics 
+ 
+            Current Events	
+                           TIME-CYCLE MECHANICS AND EVOLUTION	
+                                       
+                                                    Time-Cycle Mechanics	
     In order to understand the dynamics involved in such a time continuum
-shift, it is helpful to realize that the structure and illusion of linear time is cre-
-ated through the pulsation rate of particles and their relationship to that of
+shift, it is helpful to realize that the structure and illusion of linear time is created through the pulsation rate of particles and their relationship to that of
 other particles. Each of the six 4,426 year smaller cycles within one 26,556
 year Harmonic Time Cycle represents one time continuum. A 26,556-year
-Harmonic Time cycle, through which a planet evolves through the 3-dimen-
-sional bands of one Harmonic Universe, is called an Euiago. A planet passes
+Harmonic Time cycle, through which a planet evolves through the 3-dimensional bands of one Harmonic Universe, is called an Euiago. A planet passes
 through each of the six smaller time continua as it progresses upward through
 the 3-dimensional scale within its Harmonic Universe. Each dimensional
-band contains two time continua of 4,426 years each, so each dimension rep-
-resents a time track of 8,852 years. 
-    Of the six time continua in a 26,556-year Euiago cycle, four time con-
-tinua represent forward-moving tracks of time called Pardo, and two repre-
-sent counter-rotating tracks of time called Reiago, in which the planet passes
+band contains two time continua of 4,426 years each, so each dimension represents a time track of 8,852 years.	
+    Of the six time continua in a 26,556-year Euiago cycle, four time continua represent forward-moving tracks of time called Pardo, and two represent counter-rotating tracks of time called Reiago, in which the planet passes
 through the parallel universe. A Pardo = 17,704 years (4 continua of 4,426
-years each = 4 x 4,426 years = 17,704 years). A Reiago = 8,852 years (2 con-
-tinua of 4,426 years each = 2 x 4,426 = 8,852 years) spent in the parallel uni-
-verse. Each Euiago contains one Pardo and one Reiago. 
+years each = 4 x 4,426 years = 17,704 years). A Reiago = 8,852 years (2 continua of 4,426 years each = 2 x 4,426 = 8,852 years) spent in the parallel universe. Each Euiago contains one Pardo and one Reiago.	
     A planet’s progression through one time continuum creates a 45° shift in
-the angular rotation of particle spin, or 1/8th of a full 360° rotation of parti-
-cles, thus one continuum represents one dimensional Octave. One Octave =
+the angular rotation of particle spin, or 1/8th of a full 360° rotation of particles, thus one continuum represents one dimensional Octave. One Octave =
 a 4,426-year track of time. One dimension contains two time continua, or two
 Octaves. A planet’s progression through one dimension creates a 90° shift (2
 shifts of 45°) in the angular rotation of particle spin, or one-fourth of a full
 360° rotation, thus one dimension represents one Harmonic Quadrant. One
 Quadrant = an 8,852-year track of time. Three dimensions, three Quadrants,
-or six Octaves (time continua) represent one Harmonic Universe. One Har-
-monic Universe = a 26,556-year track of time. 
-    As a planet progresses through the first two Pardo Octaves, the angular
+or six Octaves (time continua) represent one Harmonic Universe. One Harmonic Universe = a 26,556-year track of time.	
+    As a planet progresses through the ﬁrst two Pardo Octaves, the angular
 rotation of particle spin shifts 90° from its original position. Upon entering
-the two Reiago Octaves in the parallel universe, the angular rotation of parti-
-cle spin undergoes a 90° reverse rotation, bringing the angular rotation of
-particle spin back to its original position. As the planet completes the final
+the two Reiago Octaves in the parallel universe, the angular rotation of particle spin undergoes a 90° reverse rotation, bringing the angular rotation of
+particle spin back to its original position. As the planet completes the ﬁnal
 two Pardo Octaves, returning from the parallel universe, the angular rotation
-of particle spin again shifts 90°. Through the progression of three dimen-
-sions, or Quadrants, the angular rotation of particle spin has a cumulative
+of particle spin again shifts 90°. Through the progression of three dimensions, or Quadrants, the angular rotation of particle spin has a cumulative
 shift of 90° (+90°, -90°, +90° = +90° shift), so in one Harmonic Universe the
 angular rotation of particle spin undergoes one-quarter of a full 360° rotation.
     When passing from one Euiago cycle (Harmonic Universe) to the next,
 the angular rotation of particle spin shifts 45°. Between HU-1 and HU-2, the
+146	
+
+                                                          
+                                                                 Time-Cycle Mechanics and Evolution
+45° shift is a 45° reverse angular rotation of particle spin. Earth enters HU-2
+with its particles at a 45° angular rotation from their original position upon
+entering HU-1 (+90°, -45° = +45° shift). In the progression from one Harmonic Universe to the next, the angular rotation of particle spin moves forward 1/4th, then backward 1/8th of a full 360° rotation.	
+     It  is through the multidimensional relationships between angles of particle and
+anti-particle spin that multiple reality ﬁelds can take place in the same space, while
+remaining invisible to each other. As a planet evolves through this process, the rate
+of particle pulsation, and thus the speed at which time moves, progressively
+increases, while the density of matter particles progressively decreases. This is the
+process of planetary evolution through the 15-dimensional scale.	
+     A planet moves from one dimensional frequency band to the next, and
+from one time continuum to the next, by magnetically drawing into its morphogenetic ﬁeld, particles from the Uniﬁed Field of energy for each dimension. When a planet has pulled in all the frequency patterns of one
+dimension into its morphogenetic ﬁeld, it then moves upward into the next
+dimensional ﬁeld to complete the same process.	
+     As a planet pulls in particles and patterns of frequency from the Uniﬁed
+Fields, its morphogenetic ﬁeld progressively expands to include those frequency patterns and the pulsation rate of its particles progressively increases.
+For each dimensional band there is a corresponding speciﬁc rate of particle
+pulsation and also a speciﬁc angular rotation of particle spin. In one Harmonic Universe a planet simultaneously has three levels of energetic identity,
+one in each of the three-dimensional ﬁelds of that Harmonic Universe. The
+three levels of a planet’s identity function together to give you the illusion of
+Earth’s matter solidity. The particle content of each level of Earth’s body pulsates at a rhythm characteristic to the dimension in which each portion of
+the body is stationed, and particles spin on an angular rotation that is characteristic to the respective dimension. The planet exists within each of six
+time continua simultaneously, as each of the three levels of the planet’s body
+pulls in energy from its respective dimensional band, through the synchronization of particle pulsation speed and angular rotation of spin within each of
+the six time continua. A planet evolves out of one Harmonic Universe and
+into the next as each level of its three-dimensional body simultaneously completes pulling the frequency patterns of its respective dimension into the
+planet’s morphogenetic ﬁeld. These processes give the consciousness perceiving the third dimension the illusion of passage through linear time. In actuality, time is not linear, but simultaneous.	
+    Time exists as a Uniﬁed Field of particles pulsating at various rhythms and
+spinning on various angles of rotation, through which the illusions of manifest space
+and linear time appear to individuated identities, as they bring segments of the Uniﬁed Field of particle substance into view by moving their consciousness through por147	
+                                                                                                                                
+                                                                                                               
+
+Current Events	
+tions of the Uniﬁed Field. Time does not move. Consciousness moves itself through
+the Uniﬁed Field of the Time Matrix.	
+                           
+                            Incarnational Identities, the Time Cycles,	
+                                    DNA and Planetary Evolution	
+    The evolution of life-forms upon the planet also takes place simultaneously, and, at any given time, activity takes place within each of the six
+time continua. As the planet evolves, so does the consciousness stationed upon
+that planet. Reincarnational identities represent portions of a person’s soul awareness that are simultaneously stationed and evolving upon a version of the planet
+within each of the six time continuum cycles of an Euiago cycle. Usually, a soul -
+HU-2 identity, manifests into 12 simultaneous incarnations, two in each of
+the six time cycles in one Harmonic Universe. In each pair of incarnates,
+one is male, the other female; this relationship is referred to as “twin ﬂames”,
+but does not necessarily imply a romantic “soul mate” involvement.	
+    The over soul—the HU-3 identity—creates 12 soul identities in HU-2,
+each of which create 12 incarnates within the six time cycles of HU-1. Thus,
+each person is part of an incarnational family of 144 incarnates residing
+within the six HU-l time cycles. Each of the 144 incarnates carries part of
+the 12-strand DNA pattern within the genetic code. As the 144 incarnates
+simultaneously evolve with the planet through the six time cycles, the 12strand DNA imprint is progressively built up in the genetic code. DNA
+evolves and human consciousness expands as identity evolves with the planet
+through the Euiago cycles in each Harmonic Universe. The perceptions of
+your present races are focused within the middle range of the third dimension
+(the sixth and last time continuum of HU-1), and you perceive the reality of
+these dimensional bands, from a station of consciousness one dimensional
+band above. When you perceive the activity that is simultaneously taking
+place in the lower-dimensional time continua, in the lower levels of Earth's
+body, that activity appears to you as having taken place in the past. Perception of the other members of your soul family identity, who are stationed in
+time continua below your own, will appear to you as past life incarnational
+memory, even though these lifetimes are occurring simultaneously within
+their own space-time coordinate. Identities stationed in time continua/
+Octaves and dimensions/Quadrants ahead of your own, (which in your case
+would be those in the HU-2 time cycles of Tara), will appear as future life
+incarnational memory.	
+     As you assemble DNA strands, perception of both past and future incarnations becomes progressively more available to your present conscious
+awareness. Earth evolves through the HU-1 time cycles, expanding its morphogenetic ﬁeld and raising the pulsation rhythm of its particle content, until
+Earth evolves into the HU-2 time cycles to become Tara. As you move
+through HU-l time cycles with Earth, assembling your DNA and expanding
+148	
+
+                                                        Time-Cycle Mechanics and Evolution
+your consciousness, you evolve into the HU-2 time cycles to become your
+soul-self identity.	
+    To the soul-self, the 12 immediate HU-1 incarnates that are in its incarnational family are recognized as living sub-personality fragments of its own
+identity, whose reality simultaneously takes place within the dimensional
+bands contained within the soul-self’s DNA. The DNA represents electromagnetically encoded, digital data imprints of the other living portions of
+your identity, which are stationed within other time continua. Through the
+DNA, the experiential reality of other-time incarnates is implanted into the
+body cells, to create a living Cellular Memory of your simultaneous participation within other ﬁelds of time. The DNA operates as a window in time
+through which your consciousness can perceive and participate in activity
+taking place in the other time continua. As you assemble DNA, you expand
+the particles of your body and awareness into higher-dimensional time cycles,
+and progressively open the windows through time into other space-time coordinates within other time cycles. Through DNA assembly, the Cellular Memory, which is subconsciously stored within the cellular-body consciousness,
+progressively opens into conscious perceptual recognition.	
+   
+    In your current time continuum, you technically have one-half cycle
+remaining within your third-dimensional time cycle. Earth’s morphogenetic
+ﬁeld has pulled in only half of the frequency patterns of the third dimension.
+There is a direct correlation between how many frequency patterns the Earth has
+pulled into its morphogenetic ﬁeld and the type of consciousness and biology that will
+appear on the Earth at that stage of evolution. We call the amount of frequency
+Earth has pulled into its morphogenetic ﬁeld, from the dimensional uniﬁed
+ﬁelds, its Accretion Level.	
+     Earth is presently at the 2.5-accretion level—Earth has pulled into its morphogenetic ﬁeld all of the D-1 and D-2 frequency patterns, and half of the frequency patterns of D-3. Earth would normally pass into HU-2 time cycles at
+accretion level 3. Normally the three accretion level of Earth would not be
+reached until 4230 AD. The life-forms on a planet at the 2.5-accretion level
+will have a consciousness that falls near the 3.5 range. Consciousness will perceive as solid matter and external reality the level of Earth’s body that is one
+full dimension/Quadrant below the accretion level of the consciousness.
+    Present human consciousness has an average accretion level of 3—3.5,
+which means that the energy patterns and activity taking place within the
+low to middle frequency bands of D-3, between the 2 to 2.5-accretion level,
+within the ﬁfth time continuum, appear as solid matter, and external forms
+and events. Present external earthly reality represents the energy patterns of
+Earth’s body and the Uniﬁed Field in the low to middle frequency bands of D3, in the ﬁfth time continuum, at accretion levels 2—2.5. In order to perceive
+the 2—2.5-accretion level of Earth as solid, consciousness must be stationed
+149	
+                                                                                                                       
+                                                                                                                 
+
+                   Current Events
+within the low to middle D-4 frequency bands at an accretion level of 33.5
+(seventh time continuum).	
+     When perceiving your own physical body, and the external objects and
+activity around it, you are seeing the particle content of your personal morphogenetic ﬁeld, Earth’s morphogenetic ﬁeld and the Uniﬁed Field, as they
+exist within the low to middle frequency bands of D-3, in the pulsation
+rhythms of the ﬁfth time continuum, at the 2-2.5-accretion level. You perceive these frequency bands as solid while the particle content of your consciousness is stationed within the low to middle frequency bands of D-4, in
+the pulsation rhythms of the seventh time cycle, at a 3-3.5-accretion level.
+You will perceive the frequency bands of middle to upper D-3, in the pulsation rhythms of the sixth time cycle, at the 2.5—3 accretion level, as “inner
+space”, the activity taking place “inside your head and body”, and the atmosphere surrounding your body and the Earth, that gives you the perception of
+space between objects.	
+     The illusion of 3-dimensional perception is created through this triad of
+particle pulsation speeds. The pulsation speed/rhythm of particles is created
+as energy substance flows between ﬁelds of particles having different angular
+rotations of particle spin in relation to each other. The 3-dimensional human
+consciousness and the 3-dimensional body of the Earth consciousness are
+made of particles that pulsate at three different rhythms, and which exist at
+three different positions of angular rotation. These particle ﬁelds make up
+three levels of Merkaba Fields within and through which physically apparent
+manifestation occurs. There is a 90° shift in angular rotation of particle spin
+between the three Merkaba Fields, between the three levels of human consciousness, and between the three levels of Earth’s particle body. The three
+levels of the personal body and the Earth’s body represent three different time
+continua, or Octaves, through which frequency bands from the dimensional
+Uniﬁed Fields are pulled/accreted into the personal morphogenetic ﬁeld and
+that of the Earth. These three particle pulsation rhythms are synchronized,
+and through this dance of particle spin and pulsation, personal consciousness
+evolves with the Earth upward through the time cycles of the 15-dimensional
+scale, progressively expanding and raising the level of accretion.	
+     The level of frequencies accreted into the personal morphogenetic ﬁeld will
+determine the level of DNA strand assembly you possess. As you pull in more frequency bands from the dimensional Uniﬁed Fields, your accretion level rises, more
+DNA codes assemble and become operational within your DNA strands, and your
+consciousness and perceptual ﬁeld expands.	
+     A consciousness with a 3—3.5-accretion level has a DNA code with 3-3.5
+strands assembled. The strand assembly and activation level of the DNA corresponds directly to the number of dimensional frequencies contained within
+the morphogenetic ﬁeld of the consciousness. The number of dimensional frequencies contained within the personal morphogenetic ﬁeld corresponds
+150	
+
+                                                             
+                                                                                  
+                                                                                  Time-Cycle Mechanics and Evolution
+directly to what dimensional levels of the Earth’s body, and what time continua, will be perceived as physically manifest reality, to that consciousness. If
+your fourth DNA strand is fully assembled, you will have an accretion level of
+4, your consciousness will be stationed in lower D-5 and you will perceive
+thought-forms and energy patterns existing within the lower D-4 frequency
+bands as physically manifest, external events. These thought-forms are the
+energy patterns left behind by you and the masses, when your consciousness
+was stationed in lower D-4, when you were assembling the fourth DNA strand.
+    Presently, most humans do not have more than a 3.5-accretion level, a
+low to middle fourth-dimensional focus of consciousness. This level of consciousness corresponds to 3.5 strands of activated DNA, which only allows
+the consciousness to perceive thought patterns/energy patterns of objects and
+events from the low to middle frequency bands of D-3 as physical reality. The
+frequency fields of D-1 are below the range of D-4 perception and appear as
+inner darkness. The lower frequency fields of D-2 appear as past memories.
+The middle to upper frequency fields of D-3 appear as internal mental/perceptual events and thought-forms, and as Earth’s atmosphere and the space
+between objects, from D-4 perception. The reality fields of middle to upper
+D-4 and above are above the range of present human D-4 perception and
+appear as inner and outer light and future memories. As human DNA builds,
+the higher-dimensional reality fields come into manifest view, and the lowerdimensional reality fields fall out of perceptual range.	
+    As a dimensional field begins to come into view, it ﬁrst appears as inner
+thought patterns that become inner mental pictures made of light. The quality known as imagination is, in reality, the consciousness bringing into its
+mental view, higher dimensional thought-forms. The images, perceptions
+and pondering of imagination represent higher-dimensional thought-forms
+made of energy substance, that are placed in the higher-dimensional fields by
+the present moment self. Imaginative perceptions may also be thought patterns of the higher-dimensional, future self aspects of identity, that “just
+appear” in inner perception, as the present awareness brings the higherdimensional reality fields into its inner view. The quality known as past
+memory represents the consciousness bringing into its mental view thoughtforms and experiential imprints from the dimensional bands below its focus of
+attention. These represent thought-forms of past identity aspects, presently
+focused in the lower time continua or within lower frequencies of the present
+time continuum. Dreams represent portions of thoughts and experience that
+is taking place in both higher/future and lower/past dimensional ﬁelds/time
+continua, entering into the present moment station of awareness.	
+    The low to middle D-4 frequency bands, in which human consciousness
+is presently stationed, represent the now-moment stream of consciousness,
+which is always the point of personal creative power. Thoughts held in the
+present moment focus of conscious attention will be left as imprints of ener151	
+                                                                                                                
+
+   Current Events	
+getic substance within the frequency bands in which those thoughts were
+held. Once the focus of attention has moved beyond those thoughts and on
+to the next, the thought imprints left behind become morphogenetic ﬁelds,
+as the now-moment focus of attention moves forward into the next set of frequency bands.	
+    The process of moving forward through time is the process of progressively
+accreting sound frequencies into your personal morphogenetic ﬁeld. As you
+pass your consciousness through a now-moment point, it internalizes all contained within that manifest moment as a minute, digital electro-program made
+of frequency. The process of internalizing that moment in time expands your
+morphogenetic ﬁeld, which creates a subtle acceleration in the pulsation
+rhythm of the particles of which your body and consciousness are composed.
+This acceleration of pulsation rhythm perceptually and energetically moves
+you-as-consciousness forward into the next set of frequency bands. The frequency bands of the previous moment internalize and fall from your view, as
+the set of frequency bands directly above them become your next now-moment
+of conscious focus. Movement through time is frequency accretion. The manifest
+illusion you perceive before your eyes is, in reality, a Unified Field of frequency,
+composed of energy particle substance in the form of digital, electro-tonal
+thought patterns. Every thing and person outside of yourself, including your
+body, and the contents of your conscious mind at that moment point, exist as
+energy imprints within the Uniﬁed Field of that now-moment. If you can teach
+yourself to perceive each moment of your external reality as a dream-scape that is
+manifesting through your consciousness, you will get closer to consciously sensing the
+stream of consciousness through which your external reality manifests directly through
+you. Just as your internal dreams seem to take place within your consciousness
+while you participate within them, your external reality is also a dream-scape,
+manufactured by your consciousness, through which energy particles are
+shaped into thought-forms that will later become manifest. You are walking
+within the conﬁnes of a mass dream, and the sooner you can grasp that concept, the sooner you will be able to assert creative control over the form your
+personal part of that mass dream will take.	
+    Every time you think a thought, you are leaving a morphogenetic
+imprint within the frequency bands in which your consciousness was stationed. You will run into that thought pattern, in combination with others
+from the collective consciousness, as a manifestation in physical reality. Morphogenetic ﬁelds are the form-holding patterns through which matter forms
+and events manifest. When a morphogenetic ﬁeld is created, it begins to draw
+frequency patterns into itself, expanding, accreting, and “fleshing itself out
+into matter”. Have you ever considered where thoughts go once your attention has left them? Part of what appears to you as manifest reality now, from
+your D-4 station of attention, represents your thought-forms, and those of the
+collective masses, that were left behind as morphogenetic ﬁelds when your
+152	
+               		
+	
+	
+	
+	
+	
+	
+	
+	
+	
+	
+	
+	
+
+                                                            
+                                        Time-Cycle Mechanics and Evolution
+conscious focus of attention was stationed in the dimension below your
+present focus. Part of what you see before your eyes represents the living
+thought-forms of your past selves (from this incarnation and those previous),
+and those of the masses. Your thoughts become morphogenetic ﬁelds within
+the morphogenetic field of the Earth, planted within the frequency bands in
+which your consciousness is presently stationed, left within your present time
+cycle, to be rediscovered as manifest objects and events, once your consciousness has evolved beyond them.	
+     Another part of what you perceive before your eyes represents the collective thought-forms of your future selves, whose focus of attention is stationed
+in space-time coordinates ahead of those in which your present consciousness
+is focused. Thought-forms expand, backward and forward in time, up and
+down the dimensional scale, from the position in which the thought-form
+was created. Your present manifest illusion is composed of the thought-forms
+of your past and future selves, and the thought-forms you presently hold. A
+thought-form placed in one dimension will align the energy substance of all
+the dimensions below it, into a version of that pattern; the thought sets a
+morphogenetic field in each of the dimensions below. The thought will also
+group with like thoughts from the future, the higher-dimensional frequency
+bands, and set a morphogenetic imprint of itself in all the dimensions above.
+Thus the thought expands backward and forward in time.	
+    Every thought you think now combines with like thoughts of past and
+future selves, to give you the manifest illusion you presently perceive. Like
+thought and action attract and re-manifest like thought and action. Your past
+thoughts and deeds will show themselves in your present reality, but you have
+the absolute power to change them, by using your present focus of attention
+to create new thoughts and redesign those that are undesirable, whether they
+are coming from the past, present or future. Thought patterns from your past
+selves, which are composed of more dense and slower-pulsating particles,
+manifest within the cellular structure of your body. This is frequently referred
+to as your karmic imprint or karmic debt. These thought patterns of past
+selves will remain in the body, and replicate themselves in the present and
+future, until the slower-pulsating particles of those thought patterns are raised
+in speed and released from the frequency patterns of which the body is composed. You have the power, in your present moment, to change any thought
+pattern from your personal past, present or future, and in doing so you will
+change the contours of your present reality.	
+    You can become “karma immune” once you learn to master this power,
+for you will train your consciousness to move backward and forward in time,
+to recreate undesired events and redesign more desirable outcomes. The slow
+way to release slower-pulsating thought patterns and their manifest discomforts from your life is to wait until the events manifest in external reality, or as
+conditions of disease within the body. Then you take action in the present to    
+153	                                                                                                                
+                                                                                                             	
+          	   	                                      
+
+  Current Events	
+ create a present solution, and that solution expands backward and forward in 
+time to create some degree of resolution of the pattern in the past and future.
+This is the usual path of “walking through your karma,” or walking through
+the cumulative thought patterns of your past, present and future selves. The
+fast way to change your karmic imprint is to catch those slower-pulsating
+thought patterns before they move into manifestation. This is easier said
+than done, but it is not exceedingly difficult to do, once you have trained
+your consciousness to manipulate energy in certain ways. Thought patterns
+from the past and future become part of the particle make-up of your consciousness, bio-energetic ﬁeld, body, DNA and external reality ﬁeld. They
+become stored in the DNA as minute crystallizations of energy, which inhibit
+the natural process of DNA strand assembly.	
+             _____________________________________________________________
+       The crystallized thought patterns stored in your DNA and cellular imprint will
+continue to manifest within your body and before your eyes, until you learn to ﬁnd
+and release them while they are still within the Cellular Memory imprint of your
+body. This is easy to do, with practice.	
+          ____________________________________________________________
+   To release your crystallized thought patterns from your DNA and cellular memory imprint, please refer to Field Exercise 1, on page 495, and practice it now. Through exercises of this nature you are learning to consciously
+modulate the pulsation rhythm of the particles of which your consciousness is
+composed, training your present moment consciousness to move up and
+down the multidimensional scale.	
+    You are training your consciousness to time travel, forward and backward
+in time, so you may begin to directly affect the collective thought patterns of
+portions of your identity stationed in other space-time coordinates. You are
+beginning to train yourself to control the manifestation of external events, by
+mastering the inner energetic dynamics through which those events manifest.
+    We have given you this exercise because it is one of the fastest and most
+effective ways to clear the “karmic imprint” of slower-pulsating crystallized
+thought patterns from the body cells and DNA. This is extremely important
+to do if you plan to accelerate the assembly and activation of your DNA
+strands. As you begin to work with UHF energies from the higher chakra
+centers (which we will teach you to do in subsequent books), these energies
+will begin to rapidly release slower-pulsating thought-form crystallizations
+from the body cells and DNA. As this occurs the “karmic imprint”, or event
+manifestation program, contained within the thought-form crystallizations
+will begin to manifest itself in personal, external events and within the physical body form. If the human mind and body is not prepared to synthesize the
+frequencies of energy released from the thought-form, one can become
+extremely ill in physical terms, or the mental and emotional bodies can
+become severely unbalanced. The outer events of one’s life content and relationships can also turn to chaos during rapid cellular activations, as multiple
+154	
+
+                                                           
+                                                                 Time-Cycle Mechanics and Evolution
+karmic dramas begin to manifest themselves at every turn. When you participate in accelerated DNA evolution you are rapidly shifting and elevating the
+frequency patterns of which your body and consciousness are composed. This
+rapid shift in frequency can appear as utter chaos in terms of external conditions and events.	
+      Though the ultimate outcome of these cellular activations is a restructuring of
+your body, consciousness and life drama into a higher level of peace, harmony, 
+health and order, the process of “getting there” rapidly can be very treacherous 
+indeed. When using exercises such as the one provided, you are learning to 
+take control of this process so it does not take control of you. The point at 
+which you break up the thought-form crystallization and its energy releases, 
+is the point that the karmic imprint would normally begin to manifest into the 
+body and external events. DNA Activations alone will get you to this point.
+However, in the exercise you then take that released energy, transmute it
+through D-5 and D-8 frequency patterns, (the “sun” image), and project it
+directly into the DNA. Merging the energy of the karmic imprint with the
+D-8 frequencies serves to raise its energies to the highest levels of harmony
+and order. That ordered energy is then placed directly into the DNA, where
+it can blend in unobtrusively with the imprints of the operational strands. It
+will stimulate further assembly and activation of DNA strands, but in an
+orderly fashion that does not cause excessive disruption in your bio-energetic
+fields, and which will not throw your life into chaos.	
+   In cellular activations, the energy will release at the frequency level in
+which the thought-form crystallization existed, sending a rush of photonic
+energy through the body at that frequency level. The energy will then indiscriminately alter the existing order of energies in that area, a condition
+which will manifest as chaotic energies moving through the bio-energetic
+ﬁeld, body, and consciousness, then into manifestation. This exercise controls the release of energy and directs it into harmonious order.	
+     Learning to direct mental energies, and those energies released from 
+thought-form crystallizations will become a needed survival  skill in the near future,   
+whether or not one is on the path of ascension, or interested in spiritual activities.	
+      The Earth is entering an ascension cycle acceleration period, its grid will
+  be infused with UHF D-5 through D-9 energies via a process of Stellar Activations. The Stellar Activations will occur as Earth's Merkaba Fields align
+  directly with the Merkaba Fields of six Stellar Spirals, as parts of Earth's natural procession through its 26,556-year Euiago time cycle. Everyone on the                            
+planet will begin to have cellular activations directly through the Earth’s grid, due 
+to the coming Stellar Spiral alignments and the planetary Stellar Activations  these 
+alignments will create.	
+	
+	
+	
+	
+	
+	
+	
+	
+ The human bio-energetic field is directly connected to that of the Earth,
+  and when the energy infusions of the Stellar Activations begin running through
+     Earth’s grid, progressively accelerating between   now and  2017, the   human   body       
+    155	                                                                                                                               
+                                                                                                                               
+
+   Current Events	
+will also receive these energy infusions. These energy infusions will cause a rapid
+release of the crystallized thought patterns stored in the cells and will trigger rapid
+DNA activation, assembly and expansion of consciousness.	
+   The thought-form crystallizations held within the body, unbeknownst to
+the conscious personality, will begin to release their energies as the pulsation
+rhythm of the particles of Earth's body progressively increase between now
+and 2017. Your DNA and Cellular Memory will activate whether or not you
+are ready, and regardless of whether your body and mind have been prepared
+to synthesize these new frequencies of energy. The least prepared may ﬁnd
+their entire life drama falling into shambles, the health of their physical and
+mental bodies rapidly deteriorating and their emotions exploding into chaos.
+We are not joking, nor exaggerating.	
+      Be Prepared. Learn to direct these energies now, before they overwhelm you.
+Your survival and ability to remain centered and effective in handling external
+events will depend upon your development of these subtle energy-directing skills.
+The exercise provided is a good place to begin. In 2012, very intense Stellar
+Activation energy infusions will begin, so we suggest that you begin preparing
+now, as these skills take a bit of time and practice to develop. We recommend
+that you clear as many of these hidden karmic imprints as possible before 2012,
+when they will begin to rapidly burst into physical manifestation.	
+                                                          
+                                                      DNA
+	
+                    DNA Initiations, Consummations and Activations	
+    Before we resume our discussion on the mechanics of the Bridge Zone,
+ we would like to share with you a little secret about human DNA. Presently
+  your conscious awareness is stationed within the lowto middle-frequency
+  bands of D-4, and the reality ﬁelds you perceive as solid matter and external
+  events are those of the low to middle frequency bands of D-3. When you
+  think a thought from your present station of focus in D-4 (such as “this is so
+  and so now”, or “I see such and such now”), that thought, being a quantity of
+    particle substance made of units of electromagnetic energy, automatically
+  becomes part of the D-4 Uniﬁed Field of energy. That thought also becomes
+ coded as an energy imprint within the fourth DNA strand. When you are
+  assembling DNA strands, you are pulling frequency patterns from the Uniﬁed
+   Field into your personal morphogenetic ﬁeld, one set of dimensional sub-frequency bands at a time. These dimensional frequency patterns that are pulled
+     into the morphogenetic ﬁeld progressively manifest as new electromagnetic
+  codes within the DNA strands, which means the DNA progressively expands
+  or accretes, as the morphogenetic ﬁeld expands by pulling in more frequency
+ patterns from the dimensional Uniﬁed Field.	
+    When you are assembling your fourth DNA strand your consciousness will
+  be stationed within the fourth dimension and you will perceive the Uniﬁed
+   156	
+  
+
+                                                                                                            
+                                                                                                                      
+                                                                                                                
+                                                                                                                 DNA
+Field of the dimension below in terms of matter solidity. It is the present focus
+of your consciousness that magnetically draws frequency patterns from the
+dimensional Uniﬁed Field into your personal morphogenetic ﬁeld. Once your
+consciousness has moved into one sub-frequency band, it pulls that frequency
+pattern into the morphogenetic ﬁeld, the morphogenetic ﬁeld manifests that
+frequency pattern into the corresponding DNA strand and shifts the consciousness to the next sub-frequency band up. Whatever thoughts you held at one
+station of consciousness become programmed into the DNA strand that corresponds to the dimension in which that thought was held. A thought-form created while the consciousness is focused in D-4 becomes a manifest part of the
+fourth DNA strand and is entered into the Cellular Memory stored within the
+sub-atomic particles of which the body cells are composed.	
+    Once the personal morphogenetic ﬁeld has pulled in all of the 12 subfrequency bands in one dimension, the full DNA strand corresponding to
+that dimension is fully assembled and the consciousness is transferred into
+the ﬁrst sub-frequency bands of the next dimension up. We call the point of
+evolution when the full DNA strand is assembled the Consummation and
+the point when the consciousness transfers into the ﬁrst sub-frequency band
+of the next dimension up the Initiation.	
+    With the Consummation of one DNA strand, and the Initiation of the
+next strand, the contents of the consummated strand begin to progressively
+appear in physical manifestation for the consciousness, now focused in the
+dimension above. We call the point where the contents of a DNA strand
+begin to physically appear within the perceptual range of the conscious personality the Activation of the strand.	
+    For example, when the consciousness has moved through the entire 12
+sub-frequency bands of D-3 and thus assembled the third DNA strand, the
+identity is considered to be at its third Consummation, (the morphogenetic
+ﬁeld and consciousness have “consumed”, or drawn into themselves, the frequency patterns of the third dimension). At the third Consummation, the
+fourth Initiation begins, as the station of consciousness transfers to the ﬁrst
+D-4 sub-frequency bands and the D-4 frequencies begin to enter the morphogenetic ﬁeld and the DNA. As the ﬁrst sub-frequency band of D-4 initiates
+into the morphogenetic ﬁeld, the ﬁrst sub-frequency band in the D-3 third
+DNA strand begins to Activate, or holographically project its contents into
+the range of physical perception. Thus the Consummations, Initiations and
+Activations of DNA go together, and represent the points at which the focus
+of consciousness transfers from one dimension to another, and the collective
+thought-forms from the dimension below begin to come into conscious perception as physically manifest form.	
+    As we have mentioned, consciousness will perceive as physical reality
+the energy patterns of the frequency bands that exist one full dimension
+below the station of awareness. The progressive DNA Initiations of one
+157	
+                                                                                                                                                                          
+	
+	
+	
+	
+	
+	
+	
+	
+	
+           
+
+      
+       Current Events	
+dimensional band create the progressive Activations of, or manifestation of
+the collective thought patterns contained within, the DNA strand that corresponds to the dimension below. This process of progressive frequency infusion into the DNA, and the DNA-strand assembly it creates, gives you the
+perceived illusion of passage through linear time.	
+   The new frequencies progressively increase the pulsation rhythm of the
+particles that compose your body and consciousness, moving your consciousness into the next set of dimensional sub-frequency bands, while propelling
+the contents of one sub-frequency band below into manifest perception. The
+manifest illusion of moments passing forward in time within a physical reality
+represents your consciousness perceiving the progressive Activations of the
+last DNA strand you assembled. These progressive Activations of the last
+DNA strand occur as your consciousness progressively Initiates new sub-frequency patterns from its present dimensional focus, into the morphogenetic
+field. Time does not move forward, in fact, time does not move at all. The
+experience of progression through time is created as consciousness progressively draws into itself frequency patterns from the dimensional Unified
+Fields, which progressively expands the consciousness, morphogenetic ﬁeld
+and physical body. The particles of which the body and consciousness are
+composed pulsate progressively faster as higher frequencies are embodied in
+the morphogenetic ﬁeld, DNA and consciousness, the body matter grows
+progressively less dense and the consciousness expands upward through the
+multidimensional Unified Field.	
+     We wanted you to know this little secret about the true nature of
+human DNA, and how the DNA is the literal vessel through which the illusionary experience of physical, external reality is manufactured. Knowing
+this, you may then realize that when you are shifting your consciousness and
+using the imagination to program desired thought-forms into the past, present or
+future, you are literally reprogramming the frequency patterns of your cellular content and the operational holographic program that will manifest into physical reality
+through the DNA.	
+    The holographic, thought-form program through which your external reality will manifest is literally stored, as a multidimensional electromagnetic program, within the sub-atomic particle structure of your cells, much as a computer
+stores data within its memory. The DNA serves as the literal conduit through
+which that holographic program will project data from cellular memory into
+physical manifestation, much as a computer’s circuitry allows the electronic data
+stored in memory to be projected onto the screen, into forms recognizable to
+human perception. Your external reality ﬁeld is the screen upon which the
+thought-forms that are stored within your cellular memory program will be displayed, and the DNA operates as the electromagnetic circuitry through which
+that memory comes into perceptual manifestation.	
+158	 	
+
+                                                                                                           
+                                                                                                              
+ DNA
+      To gain creative control over your manifest events, you must edit the cellular
+memory ﬁles (clear and transmute the lower pulsating particles from the body
+and auric field), upgrade the holographic thought-form program (create new visualizations of desired past, present and future events, living them in imagination “as if they are happening now” within the desired time period) and
+expand the DNA circuitry (consciously use the chakra system to accelerate
+DNA strand assembly) in order to allow new, desired reality pictures to project
+into your world of manifest events. In the practice of conscious evolution, cellular clearing and DNA transmutation, this is precisely what is taking place.
+     When you create “future memory” visualizations, you are putting specific manifestation instructions into the morphogenetic ﬁeld of the DNA
+strands you have not yet assembled. You will encounter those reality pictures
+in manifest form once those DNA strands come into activation, through the
+initiation of your consciousness into the frequencies of the next dimension
+up. When you recreate “past memories” from your present focus, you are literally putting new reality pictures, in the form of electromagnetic impulses,
+into the DNA strands you have already built and activated. You can literally
+shift things in your present manifest experience by reprogramming the past
+memory impulses stored in your DNA; add new past memories and new
+events will manifest in your present. Create future memories now, and you
+can direct the path of your evolution from your present moment in time.
+    When you release crystallized thought-forms composed of slower-pulsating particles from your present cellular structure, you are stopping those lower
+thought-form patterns from activating into your DNA, through which they
+would otherwise project into physical manifestation. Your moment of power
+is always in the present, when you realize that your present focus of attention
+can alter and direct events in both past and future, and within the present. It
+takes practice to develop skill in conscious manifestation and you must
+become familiar with the “feel” of your own inner focus of consciousness in
+the present, in order to direct your power of manifestation.	
+         Prior to learning manifestation skills, you must learn de-manifestation skills.
+Learning how to remove undesirable morphogenetic thought-form patterns from
+your active holographic program, which is stored within the cells and made operational through the DNA, is the ﬁrst step in gaining mastery over the contents of
+your external reality ﬁeld. By removing slower-pulsating particles from your body
+systems, you make room for the addition of new morphogenetic thought-form
+patterns composed of faster pulsating particles, which contain the electromagnetic imprint for more harmoniously ordered events.	
+     We are telling you of these things because the Guardian Alliance needs
+your help to ensure the success of the Bridge Zone Project. We need you to
+take responsibility for consciously building your personal DNA, expanding
+your consciousness, clearing your cellular memory and directing your
+thought-forms to the Bridge Zone.	
+159	
+                                                                                                                   
+                                                                                                                                                                                                                  
+                                                                                                                       
+
+  9
+                                           
+ 
+                        
+                      	 	
+	
+	
+	
+                       
+                        Time Shift	
+                    
+                                ASCENDING AND DESCENDING PLANETS	
+      The Bridge Zone, Shift to Agartha, Ascending and Descending Planets
+          The speed of evolution of a planet is directly connected to the rate of
+evolution of the life-forms upon the planet. In the Bridge Zone Project we
+are going to shift Earth entirely out of its present D-3 time cycle, which constitutes accelerating the pulsation rate of particles and shifting the angular
+rotation of particle spin by 22.5°. In order to make this shift successfully, 8%
+of Earth’s populations have to fully assemble the ﬁfth DNA strand, 144,000
+individuals must assemble the sixth DNA strand and the remaining populations must rapidly reach an accretion level of 4.5, which is the assembly of all
+of the fourth DNA strand and half of the ﬁfth strand.	
+    Remember that consciousness will perceive as solid the dimensional frequency bands one dimension below its present station of focus. For the consciousness of humanity to experience the physicality of Earth at the 3.5accretion level of the Bridge Zone, that consciousness must have a minimum
+of 4.5-accretion, which comes with assembly of all of the fourth DNA strand
+and half of the ﬁfth strand. The human collective represents part of the
+Earth’s matter body, and if the collective accretion level of human beings
+remains at its present 3—3.5 average, the accretion level and vibration rate of
+the Earth’s grid will be held down. In the Bridge Zone time continuum, the
+Earth’s accretion level will be raised from its current 2.5to a 3.5-level of
+accretion. In order for the Earth's grid to reach this accelerated level of accretion in time to begin entering the Bridge Zone by 2012, most of the human
+populations must be able to reach no less than a 4.5-accretion level. If the
+majority of the populations cannot reach the 4.5-accretion level, the vibration rate of Earth will not reach 3.5 and the planet will not shift into the
+Bridge Zone Time continuum.	
+  In terms of a planet shifting into another time continuum, what is
+really taking place is that the pulsation rate of particles, within the three lev160	
+

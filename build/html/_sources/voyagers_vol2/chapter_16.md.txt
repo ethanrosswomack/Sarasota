@@ -1,532 +1,8 @@
-# Chapter 16
+# Chapter 16: The 9/11/2001 Attack & the Illuminati OWO
 
-  •  3,650 BC Mayan Raids: Luciferian Anunnaki raid Mayan Angelic Human
-  12-Tribes in Yucatan and progressively infiltrate selected 12-Tribes settle-
-   ments throughout South, North and Central America.
- • 3,470 BC Babble-On Massacre: Galactic Federation and Luciferian Pleiadi-
-    an and Nibiruian Anunnaki races steal Arc of the Covenant Gold Box
-  and star gate tools, attempt world dominion beginning in Marduke-Anun-
-  naki Drakonian-held Babylon. Temporary planetary magnetic grid col-
-    lapse created, using Arc tools at Babylon and Nibiruian-Diodic-Crystal-
-    Grid at Stonehenge, England, to create reverse-Fire-Letter-Sequence dis-
-  tortions in Earth’s Planetary Shields, which caused major mutations in the
-  function of the Angelic Human DNA Template. Erased Race Memory,
-  blocked natural Kundalini ﬂow in body causing Pineal, Thalamus, Hypo-
-    thalamus and Thyroid Gland malfunctions that shorten human life span
-    and block interdimensional perception in all but implanted Annu-
-          Melchizedek “Chosen Ones” and scrambled natural language patterns.
-    Recorded as “Tower of Babel” story in Bible. Grail King races retrieve Arc
-        of the Covenant Box and Tools, preventing advancement of world do-
-  minion through intended pole shift.
- • 2,668 BC Djoser Invasion: Galactic Federation, Luciferian and Jehovian
-   Anunnaki infiltrate Sakkara, Egypt, with Pharaoh Djoser and their Lu-
-   ciferian Knights Templar “Super-race” and Midianite races of Israel and
-   Sumeria. Serres-Egyptian-Lohas Atlantian Grail King Pharaoh Imhotep
-  deposed in peaceful surrender. Imhotep remains with Djoser regime as
-    “lesser of the apparent evils” compared to the Marduke-Anunnaki Drako-
-     nian Agenda invasions progressively advancing from Babylonia.
-  • 2,024 BC Dead Sea Conquest: Galactic Federation and Luciferian Anun-
-   naki races steal Arc of Covenant Box and Tools again, launch world do-
-  minion campaign again in Babylonia, extending into Dead Sea area
-    between Israel and Jordan. Destroy Sumerian cities once located in Dead
-    Sea region. Recorded as “Destruction of Sodom and Gomorrah” in the
-    Bible. Maji Grail King races retrieve Arc of the Covenant Gold Box and
-     tools, preventing spread of Anunnaki world dominion.
- • 1670 BC-1550 BC Hyksos Invasion: Medianite-Hyksos King Jehovian
- Annu-Melchizedeks cross with Luciferian Knights Templar Anu-
-  Melchizedeks from Sakkara, Egypt Djoser lineage. Infiltrate Egypt from
-   2668 BC and finally take over Egyptian Dynasty as Hyksos Kings in 1670
-  BC. 1550 BC Drakonian Agenda Pharaoh Ahmose deposes last Hyksos
-  King Pharaoh Kamose, leading to 1476 BC Hyksos Exodus under Dra-
-  konian Agenda Pharaoh Tuthmosis III. Under Galactic Federation di-
-   rection, Hyksos intend to invade and destroy Angelic Human Hebrew
-  Tribe-2 in Israel.
-  • 1459 BC Israel Crusade: Hyksos from Exodus instructed by Galactic Feder-
-    ation and Luciferian Anunnaki to use stolen Arc of the Covenant Gold
-     Box Star Gate ''Rod and Staff'' tools to destroy Hebrew Angelic Human
-    Tribe-2. Intend to claim Israel as their “Promised Land” as beginning of
-     intended global dominion pole shift Luciferian Covenant agenda. Serres-
-     Egyptian Maji Grail Kings exiled in desert retrieve Arc of the Covenant  
-
-                                                    Progression of Major events in Atlantian Conspiracy
-            Gold Box and tools preventing the Hyksos’ destruction of Hebrew Tribe-
-            2. Hyksos do not get their “Promised Land,” the story of the Hyksos Exo-
-            dus intentionally integrated into Hebrew and Christian historical teach-
-            ings to conceal Hyksos Annu-Melchizedek presence. 
-                         • 1458 BC Hatshepsut Invasion: Serres-Egyptian Maji Grail King Pharaoh
-Queen Hatshepsut of Egypt receives Arc of the Covenant Gold Box and
-tools from desert Maji Grail kings after they stop Hyksos Israel Invasion.
-Her part-Drakonian half-brother Tuthmosis III invades Hatshepsut’s
-     Temple and steals Arc Box.
-         • 1353 BC Fall of Akhenaton: Attempt to enter Hyksos-Egyptian King line
-into Serres-Egyptian Maji Grail King line for Galactic Federation-Hyk-
-sos Emerald Covenant entry and Hyksos genetic Bio-Regenesis Program.
-Pharaoh Akhenaton fails in his intended Emerald Covenant Mission in
-favor of Anunnaki Luciferian Agenda and is killed by competing Drako-
-nian Agenda Uncle. Galactic Federation defects from Emerald Cove-
-nant.
-              • 906 BC Fall of Solomon’s Temple: King Solomon, (Hyksos Annu-
-Melchizedek + Serres-Egyptian Maji Grail Line), son of Hyksos King
-David, is guided by Galactic Federation to use stolen Arc of Covenant
-Gold Box tools to destroy Hebrew Angelic Human Tribe-2 races of Israel
-to claim “Promised Land” and advance global dominion. Pleiadian-Serres
-Emerald Covenant race of Alcyone intervenes directly with beam ship,
-intending to teleport Arc Box and tools out of Solomon’s Temple and
-return it to Maji Grail king protection, preventing Solomon’s assault on
-Hebrews and advancement of the pole shift agenda. Galactic Federation
-attempts to teleport Arc Box to their Pleiadian Ship but miscalculate, de-
-stroying Solomon’s Temple completely with a Photo-Radionic Wave         
-beam. Pleiadian-Serres retrieve Arc Box and prevent pole shift agenda.
-             •  26 BC Roman Invasion: Omicron-Drakonian legions of Orion move their   
-Nephedem Annu-Melchizedek Illuminati races into political power
-within the Ionian Empire of  Italy, deposing Angelic Human Tribe-5 
- of Italy and Ionian exiled Celtec, Druidec and Seminol Atlantian Maji  
-      Grail Kings to create stronghold of Roman Empire dominion. Progres-
- sively infiltrate and transpose their race identity over the Angelic Hu-
- man Tribe-5 and Maji Grail Line Ionians of Italy and begin corruption 
- of Ionian Grail Kings’ Sacred CDT-Plate Spiritual Teachings to create
- the foundations for the “Church of Rome” Catholic Religious Control 
- Dogma political machine. 
-                 •  23 AD Essene Divide: Galactic Federation unites groups of Luciferian
-  Hyksos King and Jehovian Hassa King Annu-Melchizedeks to raid Em-
-  erald Covenant Mission of Maji Grail King Essenes, Jesheua (Jesus
-   Christ), John the Baptist and Miriam in Tel el Amerna, Egypt. Due to 
-   Essene Divide raids, Jesheua’s Grail King Essenes are unable to fulfill in-
-  tended mission of disengaging the Nibiruian Diodic Crystal Grid to free 
-   Solar Star Gate-4 and Earth’s Star Gate-11 to prepare for the 2000-2017
-  AD SAC and scheduled Planetary Christos Realignment Mission. The Maji 
-    Essenes had fulfilled part of the mission by reclaiming the Rod Star Gate     
-
-                   The Atlantian Conspiracy and Roundtables
-tool and its Arc of the Covenant Gold Box from Galactic Federation’s   
-Noah-Abraham-Moses Hyksos Annu-Melchizedek illuminati line, but  
-could not recover the Staff tool. Following failure of the intended Plane- 
-tary Security Mission, Jesheua, John, Miriam and several Maji Grail King   
-Essenes hid Arc of the Covenant Gold Box and its Rod tool in Vale of  
-Pewsey, England via Tel el Amarna Inner Earth portal passage.  
-•	 325 AD Council of Nicaea: Omicron-Drakonian legions motivated their  
-     Nephedem Annu-Melchizedek Illuminati races governing the Roman  
-      Empire to temporarily join forces with Galactic Federation and the Ple-  
-      iadian-Nibiruian Anunnaki. In this unholy alliance, the Nephedem, Lu-  
-      ciferian Knights Templar, Hyksos King and Jehovian Anunnaki Hassa  
-    King Annu-Melchizedeks assembled to ''come up with a cover story'' to  
-      hide from public record the realities of Jesheua’s Emerald Covenant Mis-  
-      sion. Groups of Hassa King Rabbis, Hyksos Kings and Knights Templar  
-      Priests, and Roman Nephedem Knights of Malta launched a Crusade to   
-      confiscate all records of the Emerald Covenant Essene CDT-Plate trans- 
-    lations. They combined various elements of true history and spiritual  
-      teachings with numerous falsifications and massive omissions of Templar  
-      and Ascension teachings, to create the patriarchal, false-God control  
-      dogma creed that became the “Canonized Bible”. Their intentions were  
-    to forcefully hide all knowledge of the Emerald Covenant Christos Re- 
-      alignment Mission while they searched for the Arc of the Covenant Gold   
-      Box. They intended to claim the Arc Box and prevent the “common peo- 
-    ple”from having the Maji Grail King knowledge of the Roundtables, to 
-    insure victory of their Anti-Christiac One World Order dominion agen-  
-      da during the 2000-2017 SAC.  
-•	 608 Arthurian Grail Quest: Maji Grail King Arthur (born 559AD) and the  
-   ''Knights of the Round Tabl'' were the Maji Grail King Melchizedek  
-   Cloister Regents who protected the “Holy Grail” Knowledge of Earth’s  
-   Planetary Templar Complex. Arthur, Guinevere and the Roundtable   
-   Knights held the Planetary Security Commission of reclaiming the Staff 
-   tool from the Hyksos Illuminati and were intended  to run the RRTs to  
-   disengage the Nibiruian Diodic Crystal Grid, in fulfillment of the   
-   Jesheua-John-Miriam Emerald Covenant Mission. Though Merlin assist- 
-   ed in the return of the Staff Star Gate tool (the “Sword Excalibur”) to 
-   Maji Arthur’s protection,''Merlin'' (Victorous) later betrayed the Emer- 
-   ald Covenant Mission in favor of the Hyksos-Knights Templar Galactic  
-   Federation World Dominion agenda. Arthur successfully returned the  
-   Staff tool to the Arc of the Covenant Gold Box and relocated the Arc 
-   Box containing the Rod and Staff from the Vale of Pewsey, England to  
-   where it remains hidden today. Arthur and his Knights were unsuccessful   
-   in disengaging the Nibiruian Diodic Crystal Grid. But at least they man- 
-   aged to hide the Arc of the Covenant Gold Box and Rod and Staff tools  
-   from Galactic Federation, their Hyksos-Knights Templar and the even-  
-   tually competing Nephedem-Drakonian Knights Malta, preventing them  
-   from fulfilling their planetary genocide and takeover agenda. The  
-   “Quest for the Holy Grail” and “Search for Arc of the Covenant Gold  
-   Box” has continued ever since.   
-
-                                              Progression of Major Events in Atlantian Conspiracy
-        . 1244 AD Albigensian Crusade: Church of Rome Nephedem Annu-  
-                        Melchizedek Illuminati, on behalf of the Omicron-Drakonian OWO  
-                        (One World Order) agenda, launch a genocide campaign against the Maji  
-                        Grail Line Catheri, the Tribe-12, Star Gate-12 Guardians in southern  
-             France. The campaign was initiated to stop the Catheri from using their  
-             Roundtable knowledge to disengage the Nibiruian Diodic Crystal Grid,  
-                        knowledge gained from CDT-Plate-12, which was in possession of the 
-                        Catheri at this time. The Catheri’s “last stand” was at Monsegur, Southern  
-                        France, an event historically recorded as the “Albigensian Crusade”, in  
-                        which the Catheri were cornered and burned alive at the order of the   
-                        Church of Rome and accomplices in the government of France. A small 
-                        group of Catheri escaped with CDT-Plate 12, and numerous volumes of 
-             pure Jesheua-Essene records, which were hidden in France and will one  
-             day provide witness to the realities of the Atlantian Conspiracy.    
-•	 1500 AD Ameka Crusade: The quest for the''Holy Grai'' continued as   
-    Hyksos-Knights Templar Annu-Melchizedek Illuminati races and Omi- 
-    cron-Drakonian Nephedem Annu-Melchizedek Illuminati races ad-  
-    vanced their OWO agenda in pursuit of the “Holy GRU-AL”.The Gru- 
-    AL POINT is the central control point for Earth’s Templar and both com-  
-    peting groups intended to hold dominion over the lands of the Gru-AL  
-    Point when the 2000-2017 SAC arrived. The''Protestant & Catholic   
-    Invasion'' of  Native American Tribes began. The name ''America''   
-    came from the name of one of the Emerald Covenant Maji Grail lines  
-    known as the Ameka, who were protectors of the Gru-AL Point. The  
-    Gru-AL Point was known to exist in the lands of the North American  
-    continent, a territory once held by Atlantis. Guided through “Mystical  
-    Secrets Societies” set up by their respective Fallen Angelic kin, competing   
-    groups of Annu-Melchizedek Illuminati races launched a progressive in- 
-    filtration and takeover of the North American continent. Each intended  
-    to destroy the exiled Lemurian and native Seminol and Ameka ''Native  
-    American'' Maji Grail Line Tribes who had knowledge of Running the 
-    Roundtables, in a systematic take-over of the North American Templar. 
-       ''America'' was founded by the Luciferian Hyksos-Knights Templar Annu- 
-              Melchizedek Illuminati, who now go by the name of “Free Masons”, on 
-              behalf of Galactic Federation and the Pleiadian-Nibiruian Anunnaki  
-              races of the 9560 BC Luciferian Covenant. Competing Illuminati groups  
-             and their Stellar co-conspirators intended to use the North American  
-              Gru-AL Point, and their holdings of Star Gate-11 Europe, Star Gate-4  
-              Egypt and Star Gate-10 Middle East, to gain full control of Earth’s Tem-  
-             plar on behalf of their Stellar contacts during the 2000-2017 SAC.
-                 It was anticipated by all that the “Final Conflict Drama” and the “Battle of  
-                  Armageddon” would take place as the competing Drakonian and Anun- 
-                  naki descendant Annu-Melchizedek Human Illuminati legions ''battled it 
-                  out'' for control of Earth’s Templar during the long-awaited 2000-2017 
-                  SAC. Neither side anticipated that there would be enough surviving An- 
-            gelic Human 12-Tribes and Maji races left with knowledge to run the   
-                  Roundtables to prevent the Illuminati, known as the “Leviathan Force,” 
-                  from succeeding  in their OWO agenda. Included in this OWO agenda    
-
-                The Atlantian Conspiracy and Roundtables
-        was the re-initiation of contact with the Fallen Angelic/ET Legions as
-the SAC   drew closer. The Fallen Angelics intended to slowly make their 
-presence known then come in to “stake their claim” as the 2000-2017
-SAC approached 2012 AD. The Drakonian- Reptilian-Centaurian de-
-scent Annu-Melchizedek Illuminati races attempted, but failed, to claim 
-world dominion over their Anunnaki adversaries via their representative
-Hitler in WW2. Both Illuminati forces have been competing for political 
-world dominion. They have been the predominant, hidden source of 
-war, race hatreds and territorial, financial and religious competition be-
-hind and within world governments, until the September 12th, 2000
-UIR. On September 12, 2000, most competing Illuminati races, and their 
-respective Fallen Angelic “ring leaders” agreed to take a united stand
-against Emerald Covenant races to ensure success of the OWO dominion 
-agenda and destruction of the Angelic Human races during the 2000-2017
-SAC.  
-  . 1750 AD Nibiruian-Re-acquaintance: Pleiadian-Nibiruian Anunnaki  
-            races and Galactic Federation began initiating remote “Channel Con-
-              tact” with their ''Chosen Ones,'' providing contrived spiritual teachings
-              intended to develop into the later “New Age Movement”, through
-                which direct Fallen Angelic/ET contact could be made with little human 
-           resistance. 
-    • 1916 Zeta Surveillance: Zeta races begin participating in the Earth drama 
-             on behalf of the Zephelium-Zeta Rigelian and Odedicron-Reptilian (Ori-
-             on) agenda. 
-•  1930-1940's Covert Treaties: The Zeta negotiate covert treaties with                                                        
-    Nephedem Annu-Melchizedek Illuminati human government, through                                            
-    which “Majestic-12” and the contemporary “UFO Movement” emerge
-          on behalf of the Drakonian OWO agenda, which initiated as a result
-          of the pending Anunnaki takeover agenda. Anunnaki Fallen Angelics ad-
-          vance their remote “Channel” contact with selected humans. 
-•  1983 Orion Intrusion: Omicron-Drakonian races of Orion get directly in- 
-    volved in the drama, forming alliances with the Odedicron-Reptilian and 
-    Dracos races; Zeta’s lose footing in Illuminati affairs as Drakonians take 
-    over Zeta Treaties, some Zetas leave, Rigelian Zetas join to strengthen 
-    Drakonian forces in Earth affairs. 
-•   1992 Pleiadian-Sirian Agreements: Pleiadian-Nibiruian Anunnaki and  
-     Galactic Federation races enter Emerald Covenant peace treaty when they  
-     realize that they may succumb to Drakonian Force in the anticipated 2000 
-     -2017 Final Conﬂict Drama. Agree to turn Solar Star Gate-4 control back   
-     over to Emerald Covenant races, to end the Atlantian Luciferian Cove- 
-     nant for co-evolution programs, to assist Emerald Covenant and Human 
-     races in running proper Roundtables to block further Drakonian infiltra- 
-     tion and promise to disengage Nibiruian Diodic Crystal Grid by January 1,   
-     2000. The “New Age Movement” takes a turn toward the Light.
-    •  1999 Centaurian-Necromiton Intrusion: Drakonian agenda Necromiton- 
-       Andromi and  Alpha-Omega Centauri races get involved to reinforce the  
-       Drakonian agenda in reaction to Anunnaki joining the Emerald Covenant.    
-
-                                                       Progression of Major events in Atlantian Conspiracy
-                      •  January 2000 SAC Rebellion: When Stellar Activations Cycle com-
-    menced on January 1, 2000, Galactic Federation and Pleiadian-Nibiruian
-      Anunnaki groups defect from Emerald Covenant once Stellar Activa-
-      tions Cycle was confirmed, as Fallen Angelic Annu-Elohim offer full sup-
-      port to the Anunnaki OWO agenda.
-•   July 5, 2000 Treaty of Altair: Galactic Federation and most Anunnaki 
-     groups grudgingly accept re-entry into the Emerald Covenant to secure 
-     greater protection when Annu-Elohim of Sirius A and Arcturus suffer 
-     heavy losses to the Fallen Seraphim Drakonian force in Density-3 Orion. 
-•   September 12th, 2000: Necromiton-Andromie and Alpha-Omega-Centau-
-                      ri races convince many Drakonian and Anunnaki legions to form a 
-        “United Resistance Alliance” (UIR) against the Emerald Covenant to 
-         ensure fulfillment of their common interest in the OWO dominion agen-
-         da. Galactic Federation, Ashtar Command and most Anunnaki Legions 
-         break the Treaty of Altair to join the UIR. UIR adopts the Anunnaki 
-         Luciferian Covenant agenda, which includes “termination” of the An-
-         gelic Human races of Earth and forced pole shift, induced via Battlestar
-         Nibiru (“Wormwood”) and the Nibiruian Diodic Crystal Grid. Septem-
-         ber 12, 2000 UIR offers Emerald Covenant races an ultimatum. UIR
-         would allow the Lyran-Sirian Guardian races to evacuate  50,000 of their
-         ''Indigo Children Maji Grail Lines,'' then the rest of Earth’s populations 
-         would fall prey to fulfillment of the Luciferian Covenant agenda. Emerald 
-         Covenant Races refuse on behalf of all Angelic Human and Hybrid pop-
-        ulations of Earth that desire to live in freedom and in order to prevent
-         Earth’s Halls of Amenti star gates from falling under UIR dominion. UIR
-         issued a formal Edict of  War on September 12, 2000, against Emerald Cov-
-         enant races and the Angelic Humans of Earth. 
-Galactic Federation and Ashtar Command is beginning to mobilize their 
-             “Human Ground Crews” teaching their followers to expect a''landing''
-              in which ''complete human compliance'' is promoted. The political arena
-              is now being set for the UIR’s intended 2003 Mass Mind Control initia-  
-             tive and most humans are completely unaware of what is taking place.
-              Emerald Covenant races are intending to awaken the Indigo Children as 
-              quickly as possible. The Indigo Children are being prepared now to run 
-              RRTs in order to disengage the Nibiruian Diodic Crystal Grid through 
-              which pole shift can be forced and to seal Earth’s portal system from 
-              planned Fallen Angelic 2003-2004 invasion. Before 2003, Emerald Cov-
-              enant races will know if the RRTs are successful and if fulfillment 
-              of the Atlantian Conspiracy can be prevented. If not, preparations are al-
-              ready underway to assist Humans in DNA Template Activation so some 
-              may become biologically capable of portal evacuation.   
-                          Sometimes truth is stranger than Fiction.            
-
-   The Atlantian Conspiracy and Roundtables
-                     CORE TEMPLATE GRIDWORK IS REQUIRED
-                       to prevent fulfillment of the UIR OWO Agenda
-• Through quickly re-learning how to ''Run the Rainbow Rounds,''Angelic
-     Human and Hybrid races can prevent pending Anunnaki-Drakonian 
-     OWO dominion during the 2000-2017 SAC. Properly executed RRTs
-     can fulfill the Emerald Covenant Christos Planetary Security Commission 
-       of disengaging the Nibiruian Diodic Crystal Grid and freeing Solar-Star   
-                         Gate-4, which will prevent Fallen Angelics any further access to Earth’s  
-                portal-vortex system. Running the Signet RRTs to reclaim Earth’s Tem-
-     plar from Fallen Angelic dominion has been known for thousands of years 
-     as the 11:11/12:12 Christos Reclamation Mission, the Divine Commis-
-     sion previously attempted by Jesus-John-Miriam, King Arthur-Guinev-
-     ere-Knights, the Catheri,  the Native Americans and numerous other 
-     Maji Grail Line Races throughout history since the  25,500 BC Luciferian
-     Rebellion.
-                                           Now it is up to Us. 
-CREATION OF THE LEVIATHAN FORCE &  RELATED HISTORY
-                                    798,000 BC - 33,000 BC
- 250,000,000 Years Ago—
-      Parallel Earth Human Seeding-1 five Palaidorian Cloisters
-25,000,000 Years Ago—
-      Five Human & Five Palaidorian Cloisters seeded on Earth
-5,500,000 Years Ago—Human Seeding-1 destroyed via Electric Wars
- 3,700,000 Years Ago—Human Seeding-2
- 848,800 Years Ago—Human Seeding-2 destroyed via Thousand Years War
-                       ANGELIC HUMAN SEEDING-3—
-                   CONTEMPORARY LINEAGE BEGINS
-798,000 BC—-five Palaida-Urtite-Cloisters Angelic Human Seeding-3: Round-1
-669,000 BC-250,000 BC—Rama & Temple Wars Anunnaki/Drakonian In-
-       vasions, Nephedem-Drakonian & Urantia-Jehovian-Anunnaki Illumi-
-       nati hybrid-humans
-250,000 BC—Enki-Enlil-Marduke Pleiadian-Nibiruian Anunnaki (Aquatic-
-       ape-hominid) create Lulcus-Neanderthal Primate-hominid slave-race via
-       raiding Angelic Human colonies
-246,000 BC—Maharaji bring Emerald Covenant Restatement peace treaty to
-       Earth races, Angelic Humans enter & Thoth-Enki Anunnaki enter for
-       DNA Bio-Regenesis
-208,216 BC—SAC, Drac Invasion, Fall of Brenaui, 10-Code Pulse & pole shift
-208,100 BC—Urtite-Cloister Human: Round-2 subterranean resettlements
-
-                                   Angelic Human Seeding-3— Contemporary Lineage Begins
-155,000 BC—Emerald Covenant Anunnaki Bio-Regenesis Program begins:
-      Lulcus-Neanderthal Hyperbornean-Human upgrade-1 to hybrid Luhari-
-      Cromagnon-1
-152,000 BC——Luhari Anunnaki-hybrid Ur-Antrian-Urtite-Cloister-Human
-      Emerald Covenant (EC) upgrade-2 to E-Luhli-Levi-Cromagnon-2, ﬁrst ca-
-      pable of natural procreation with Humans; Levi-hybrids raided by Drac &
-      Anunnaki Fallen Angelics, Anti-Christos Leviathan Force competing Illu-
-      minati genetic lines begin
-151,000 BC—E-Luhli-Levi hybrid Breanoua-Urtite-Cloister-Human EC up-
-      grade-3 to E-Luhli-Judah Homo-sapiens
-150,000 BC—Jehovian Wipe out. Competing Drac & Jehovian (Dolphin Peo-
-      ple) Anunnaki attempt to seize Earth & Inner Earth. Maharaji of Sirius B
-      prevent take over; Firmament Hydro-Suspension fields collapse initiating
-      glacial period.
-148,000 BC—E-Luhli-Judah hybrid Hibiru-Urtite-Cloister-Human EC up-
-      grade-4 to E-Luhli-Nephi.Jehovian Anunnaki launch aggressive raids on
-      Nephi hybrid races creating the Nephite-Jehovian-Hibiru Illuminati hy-
-      brid genetic line
-148,000 BC-75,000 BC—Anu Occupation; Sirius A & Arcturian Jehovian-
-      Anunnaki attempt Earth takeover, launch genocide programs against An-
-      gelic Human, Drakonian-Nephedem & Nibiruian Anu-Anunnaki Earth
-      races. Enlil-Enki-Marduke Pleiadian-Nibiruian Anunnaki lines unite,
-      overthrow Jehovians & seize control of Earth. Emerald Covenant races
-      exile & subterranean settlements. Nephedem- Drakonians, Jehovian-
-      Anunnaki & Nibiruian Anunnaki Raider Wars begin
-75,000 BC—Nibiruian Anu-Anunnaki attempt to seize Inner Earth portals,
-      Inner Earth races unite in Inner Earth Rebellion, overthrow Anu-Anunna-
-      ki dominion of surface Earth, reinstating Urtite-Cloister-Human sover-
-      eignty over surface Earth
-73,000 BC—Cloister-Human: Round-3 seeding begins with Ur-Antrian Cloister
-71,000 BC—Root Race-Human: Round-4 seeding begins with Lemurians
-72,000 BC—Breanoua-Cloister-Humans seeded
- 68,000 BC—Root Race-Human Atlantians seeded & E-Luhli-Nephi hybrid
-       Melchizedek-Urtite-Cloister-Human EC upgrade-5 to Annu-Melchizedeks.
-       Drakonian, Jehovian-Anunnaki & Anu-Anunnaki Leviathan Illuminati
-       hybrid races progressively raid Annu-Melchizedek races creating various
-       competing Anti-Christos Agenda hybrid “Templar-Meichizedek” Levia-
-       than “Super-races”—the Leviathan Force, leading to the Atlantian Con-
-       spiracy & present drama
-66,000 BC-Hibiru-Cloister-Humans seeded
-63,000 BC—Root-Race-Human-Aryans
-33,000 BC—Melchizedek-Cloister-Humans seeded & 22,500 BC Eieyani Grail
-       Line begins
-
-The Atlantian Conspiracy and Roundtables
-                               SUMMARY OF THE ATLANTIAN CONSPIRACY
-50,000 BC - Lemurian Holocaust
-28,000 BC - Atlantian Holocaust
-25,500 BC  -Lucifer Rebellion
-22,326 BC - Eieyani Massacre
-21,900 BC - Lohas-Celtec-Druidec Freeze Out
-20,000 BC - Vicherus-Sacheon Invasion
-10,500 BC - Luciferian Conquest
-9,560 BC - Luciferian Covenant
-9,558 BC - Atlantian Flood
-8,900 BC - Sumerian Invasion
-8,400 BC - Egyptian Invasion
-7,500 BC - Knights Templar Invasion
-5,900 BC - Centaurian War
-3,650 BC - Mayan Raids
-3,470 BC – Babble-On Massacre
-2,668 BC - Djoser Invasion
-2,024 BC - Dead Sea Conquest
-1,670-1,550 BC - Hyksos Invasion
-1,476 BC - Hyksos Exodus
-1,459 BC - Israel Crusade
-1,458 BC - Hatshepsut Invasion
-1,353 BC - Fall of Akhenaton
-906 BC - Fall of Solomon’s Temple
-26 BC - Roman Invasion
-23 AD - Essene Divide
-325 - Council of Nicaea
-608 - Arthurian Grail Quest
-1244 - Albigensian Crusade
-1500 - Ameka Crusade
-1750 - Nibiruian Re-acquaintance
-1916 - Zeta Surveillance
-1930-1940 - Zeta Treaties and MJ-12
-I983 - Orion Intrusion
-1992 - Pleiadian-Sirian Agreements
-November 1999 - Centaurian-Necromiton Intrusion
-January 2000 - SAC Rebellion
-July 5, 2000 - Treaty of Altair
-September 12, 2000 — United Intruder Resistance (UIR)
-February 2001 - Grid Spiking Campaign
-2003 - Intended Dimensional Blend Time Rip
-2004 - Intended Frequency Fence
-2008 - Intended Pole Shift via Nibiruian Battle Star and NDC-Grid
-2012 - Intended Resistance Re-settlement & Inner Earth Crusade
-
-
-                            Note On 12-Strand DNA Template Activation:  BE AWARE
-      NOTE ON 12-STRAND DNA TEMPLATE ACTIVATION:
-                                          BE AWARE
-              Averting the Seduction of the “Quick Fix” and “Ego Pat”
-• No Human on Earth at this time has true 12-Strand DNA Template ac-
-     tivation or consummation, as the Planetary Shields cannot yet sustain bi-
-     ological presence that holds continually activated D-12 frequency. 
-     Distortions in the Race Genetic Imprint caused by the Planetary Shield
-     severely block natural 12-Strand DNA Template activation, even if the
-     Planetary Shields could sustain 12-Strand Activated Biology. Without
-     consistent use of DNA Template Bio-Regenesis technology and related
-     Core Template Kathara Healing modalities, no human on Earth at this
-     time would achieve genuine 12-Strand activation during the contemporary
-     evolution cycle.
-• Competing false 12-strand DNA activation programs are presently being
-     run via unsuspecting New Age & UFO Movement “Channels & Contac-
-     ees,” by Jehovian¹ Dolphin People Anunnaki and Pleiadian-Nibiruian²
-     Anunnaki-Drakonian-Reptile hybrid races. The largest False DNA Ac-
-     tivation - “Ascension” Program is conducted by the ''Alpha-Omega Tem-
-     plar Melchizedek Anunnaki-Drakonian Alliance," which is composed of
-     Centaur & Drakonian-Anunnaki races of Density-2 & 3 Alpha Centauri and
-     Omega Centauri, the Necromiton-(Beetle-Reptile)-Anunnaki hybrid
-     race of Andromeda3 and several other related Fallen Angelic Collectives
-     following the Omicron-Drakonian-Zeta-Illuminati “One World Order”
-     dominion agenda. One of the most prominent expressions of the Alpha-
-     Omega-Centaurian-Andromie Anunnaki-Drakonian-Necromiton col-
-     lective refers to itself as the ''Archangel Michael'' Matrix, a Bio-neuro-
-     logical Mass Mind-control Program run via the Alpha-Omega
-     Collective, that is literally “broadcast into Earth’s airwaves to unsuspect-
-     ing channels” from Parallel Earth through the NDCG. False 12-Strand
-     DNA Activation Programs are geared toward ''Monadic Reversal'' - re-
-     versing the Fire Letter Sequences in the Human DNA Templates to cre-
-     ate Reverse Sequence 11-Strand Activation in humans, so human DNA
-     will assist the Fallen Angelic mission of gaining control of Earth’s Plan-
-     etary Shields & Star Gates on a reverse-11 activation4 during the 2000-
-     2017 SAC.
-• Fallen Angelic and Illuminati Human Leviathan races use the seduction of
-     false claims of “Easy DNA Template Activation” and false promises of As-
-     cension without providing the details of the mechanics by which these dy-
-     namics naturally take place. If we know the mechanics we can detect when
-     they are being intentionally misused to orchestrate Anti-Christiac Do-
-     minion agendas. The tactics of false “Quick-Fix Claims” and false promis-
-     es are further coupled with false “sugar and spice,” in which our egos are
- 1.  Sirius A, Arcturian, & ''Galactic Federation"
- 2.  Anu-Seraphim Aquatic-ape-hominid
- 3.  ''Andromies" &''Men-in-Black"
- 4.  34-CCW/21-CW Nibiruian Merkaba                                                                               
-
-                          The Atlantian Conspiracy and Roundtables
-     fed as we are told “what we want to hear” and “how great and Beloved we
-      are,” while being covertly “railroaded right under our own noses.” If we do
-      not “fall for” the age-old “Quick-Fix” and “Ego-Pat” Seductions, we can
-      avert Fallen Angelic and Illuminati manipulation tactics and learn how
-      things really work, so we become empowered to set ourselves, and assist oth-
-      ers, too to set themselves free. We can “Activate our 12-Strands of
-      DNA,”5  but it takes work, a labor of Divine Love, and it requires Divine
-      Sacred Science knowledge.
-  • DNA Template and Kundalini Activations do not occur via “wishful think-
-              ing” or “hopeful  spiritual intention”—they   are  processes  of    natural  Bio-Spiritu-
-     al Creation Physics, which occur via educated, conscious direction of
-     energy and genuine Spiritual Wisdom. There is a natural Divine Right
-     Order of energy mechanics that governs the manifestation of conscious-
-     ness in biological form; the mechanics of this order must be understood
-     and appropriately applied if one expects to attain genuine, essential, Bio-
-     Spiritual Mastery.
-           5.   24-48 Strands for Indigos
-
-                  The 9/11 WTC/Pentagon Attack
-                                      and the
-                      Illuminati One World Order        
-          Due to the continuing barrage of “stop-the-presses” new emergency
-release information provided by the Guardian Alliance (GA) since the
-United Intruder Resistance (UIR) Edict of War on September 12, 2000,
-preparations for this updated Second Edition (2e) printing of Voyagers II has
-taken far too long. Information that was originally intended to become a
-simple glossary for this book rapidly expanded in size to become another book
-in its own right. This partially completed new book was then quickly put “on
-hold” as a progressive series of GA emergency release dispensations rapidly
-accumulated over 400 pages. Meanwhile, our Planetary Shields Clinics
-workshop and site work excursions were scaled up to top GA priority,
-solidifying into an immediate Crisis Intervention Program called the
-Emerald Covenant Masters Templar Planetary Stewardship Initiative. As
-we began our new Ireland-England Planetary Shields Clinics tour in July
-2001, I was able to finally complete the “2001 Update” and related materials
-for Voyagers II , 2e. After a year’s worth of frustrating but unavoidable delays,
-the lovely people with Saintly Patience at Granite Publishing could finally
-''put the book to rest'' with fulfillment of its second printing—or so we all
-thought. As this book was about to go to press in September 2001, the
-''unbelievable'' occurred. The events of September 11, 2001, which we
-have all rapidly come to know so well, intruded into the American heartland
-and homeland with all of their inherent, numbing, horrific fervor, and “life as
-we’ve known it” in the USA was suddenly and abruptly “changed forever.”
-The events of the 9/11/2001, terrorist attacks upon the NYC World Trade
-Center Towers and the Pentagon in Washington, D.C., have literally and
-rapidly cast not only America, but literally the entire world, into a
-completely new and utterly “alien” uncharted political landscape, the
-implications of which most peoples of all nations are presently struggling to
-comprehend. 
-   The old American expression of shared national mourning and
-cultural, mental and emotional fixation that was once expressed by a
-generation before in the query of “Where were you when Kennedy was shot?”
-     has now been permanently deposed from its once-prominent position within
-
-The 9/11 WTC/Pentagon Attack and the Illuminati One World Order 
+                                                                                      
+ 
+The 9/11 WTC/Pentagon Attack and the Illuminati One World Order	
 the national collective mind. The old question has now been indelibly and
 forcefully replaced within THE collective cellular memory of the American
 psyche  by the query of “ Where were you on 9 /11/2001?” within this
@@ -534,7 +10,7 @@ general question and ''query of our times'' the answer to which is fully
 branded into the memory of many American citizens, resides the even more
 important silent questions of ''What in the world is going on?'' and ''How
 will all of this affect us?'' The horrific events of 9/ll, and even more so their
-potential ramifications, have made questions regarding the “Kennedy
+potential ramiﬁcations, have made questions regarding the “Kennedy
 Assassination” and other unresolved issues and shocking moments of our
 collective past seem almost irrelevant. Events prior to the Trade Towers/
 Pentagon attacks literally pale by comparison to anything we have known
@@ -548,16 +24,22 @@ and issues represents a potential healing catharsis within the collective
 psyche, as individuals and nations begin to reassess and redirect their
 priorities. But in other cases, distraction from pertinent past concerns can
 prevent us from acquiring the very answers we seek concerning the     
-contemporary drama. 
-              ''UFO INVESTIGATION” AND “TRIGGER EVENTS'' 
+contemporary drama.	
+	
+	
+	
+	
+	
+	
+    
+              ''UFO INVESTIGATION” AND “TRIGGER EVENTS''	
     One of the most important multifaceted issues that might readily and
 “conveniently” succumb to further malnutrition of mass attention is the
 highly complex issue of ''UFO investigation.'' The “UFO issue” is, in truth, a
 compendium of a variety of interrelated subjects: “UFO sightings”; crop
 circles; ET visitation/abduction; the “UFO Movement”; the “New Age
 movement”; “angelic” contact; “channeling” communication; “spiritual
-development”; “ascension teachings”; “official denial”; “Illuminati One-
-World-Order agendas”; “forbidden archeology”; and the multitudes of
+development”; “ascension teachings”; “official denial”; “Illuminati OneWorld-Order agendas”; “forbidden archeology”; and the multitudes of
 related, politically charged, ''conspiracy theories'' one must inevitably
 address if thorough investigation of the “UFO issue” is to be ascertained. In
 our present drama, seemingly born of very “3-D international political
@@ -575,6 +57,7 @@ world most needs to rapidly comprehend. In the immediate aftermath of the
 unspoken questions within the minds and hearts of the courageous people
 who have supported the GA work since 1999 were as follows. “Did the GA
 know this attack would occur?” “If not, and the GA supposedly knows so       
+336	         
 
                          OWO Master Plans, GA State of War Alert and Imminent Crisis Order
         much, then why didn’t they know?'' ''If they did know, then why didn’t
@@ -582,7 +65,7 @@ they stop it or warn us?'' Along with questions regarding GA awareness, the
 same questions were understandably directed toward myself, and
 m y  a s s o c i a t e s  M C . ' ' D i d  w e  k n o w ? ' '  “ W h a t  d i d  w e
 know?'' ''Couldn’t we, through our GA Guardian contacts, have done
-something to prevent it?'' 
+something to prevent it?''	
     As this book was ready to go to press, the “Unbelievable Events” of 9/
 11/2001, unfolded, and with them a massive wave of personal and public
 questions that cried out for answers. Though the final text of this book was
@@ -593,7 +76,7 @@ As “fate” or ''Divine Synchronicity'' would have it, the printing deadline f
 this book had not yet passed when these monumental events of mass mayhem
 occurred. In this final emergency release update of Voyagers II 2e, I will do my
 best, as GA representative Speaker, to address the most obvious questions
-regarding the “9/11 Disaster.” More importantly, I will try to brieﬂy explain
+regarding the “9/11 Disaster.” More importantly, I will try to briefly explain
 within the limited space remaining in this book, the relationship between
 the “9/11 Disaster” event and the GA emergency release materials that we
 have been progressively teaching within the public forum since the end of
@@ -606,32 +89,36 @@ orchestrated by seemingly unrelated ''hidden forces'' from “behind the
 scenes”—an event that represents the “pressing of the start button” within
 the invisible Illuminati World Management Team machine. Trigger Events
 are orchestrated strategically from off-planet sources in order to set in
-motion, through remote psychotronic mobilization of the unsuspecting on-
-planet Illuminati force, a series of national and global changes that are
+motion, through remote psychotronic mobilization of the unsuspecting onplanet Illuminati force, a series of national and global changes that are
 intended to move the global arena toward fulfillment of hidden Fallen
 Angelic/Intruder ET objectives. It is through understanding these hidden
 objectives as they exist behind and within the global drama that we, as
 individuals and nations, are empowered to choose educated, effective action
 through which the ideals of peace, freedom, brotherhood and love can be
-attained . 
-               OWO MASTER PLANS, GA STATE OF WAR ALERT 
-                              AND IMMINENT CRISIS ORDER  
+attained .	
+               OWO MASTER PLANS, GA STATE OF WAR ALERT	
+                              AND IMMINENT CRISIS ORDER	 	
     The ''2001 Update'' materials preceding this text were completed
 and submitted to the publisher in early July 2001. They contain a brief
 summary of GA emergency release dispensations that have been
 progressively provided since the September 12, 2000, Edict of War was
 issued by the Fallen Angelic/''Intruder ET'' UIR.¹ Before any obvious
+                
+       ________________________________ 	
+         
                           1.     Anunnaki/Andromie/Centaurian/Zeta/Drakonian/Reptilian/Illuminati “Unholy Alliance"
+                                     
+                            337	
 
-The 9/11 WTC/Pentagon Attack and the Illuminati One World Order 
+                                                                                                                              
+The 9/11 WTC/Pentagon Attack and the Illuminati One World Order	
 indication was made apparent within the “external world,” the GA’s
 information provided since September 2000 and brieﬂy summarized in the
 original “2001 Update” section of this book, revealed that contemporary
-Earth is caught within a long-anticipated, “presently hidden” inter-
-dimensional, Interstellar War. A war that would become “all too real” to
+Earth is caught within a long-anticipated, “presently hidden” interdimensional, Interstellar War. A war that would become “all too real” to
 us in “3D” terms if humanity was unwilling to assist Emerald Covenant
 nations in peacefully securing Earth’s Templar/Star Gate Complex from
-further Fallen Angelic/Intruder ET/Illuminati infiltration before 2003.
+further Fallen Angelic/Intruder ET/Illuminati inﬁltration before 2003.
 Within the GA security release dispensations we were gently shown that not
 only was humanity facing the challenges of planetary physics inherent to
 natural SAC’s, but we were also faced with progressively growing obstacles
@@ -643,15 +130,15 @@ commonality between the various competing Fallen Angelic/Intruder ET
 races since 9560 BC Atlantis. This information revealed the true scope of
 the drama we are presently in3, the scope of this drama and the long-term
 Illuminati OWO Master Plan is massive and “bone chilling” (if you don’t
-understand the peaceful solutions). 
-    Of greatest significance, the 2001 GA revelations brought into focus the
+understand the peaceful solutions).	
+    Of greatest signiﬁcance, the 2001 GA revelations brought into focus the
 details of the intended stages of the contemporary phase of the Illuminati
 Master Plan, so we can become aware of the basic progression of events we
 would see should the Illuminati Master Plan advance. When the Anunnaki
 races defected from the Emerald Covenant to support the UIR’s September
 12, 2000, Edict of War, the various Illuminati OWO Master Plan agendas of
 previously competing Fallen Angelic/Intruder ET factions were blended into
-a dominant unified strategy. This unified strategy combined various previous
+a dominant uniﬁed strategy. This uniﬁed strategy combined various previous
 initiatives of several Fallen Angelic groups into the UIR Illuminati OWO
 Master Plan, directed by the Necromiton-Andromie force. Renegade Fallen
 Angelic legions of Omicron-Drakonian,4 Odedicron (Reptile-avian),
@@ -667,21 +154,26 @@ maneuverings of various nations since October 2000. The subtle shifts
 place since October 2000 in response to the covert influence of the
 September 2000 UIR Edict of War, represent only the beginning
 externalization of the UIR OWO agenda into the visible “Official Reality”
-arena. 
+arena.	
+                             ________________________________
                    2.     See Forbidden Testaments of Revelation, forthcoming.
                      3      lbid.
                      4.     Dragon Moth
                      5.     Andromie Beetle-insectoid-hominid 
+                  338	  
 
+                                                 
+                                                                
                              Star Gate-6 and the Selenite Crystal Temple Network
-                                                      STAR GATE-6 
-                       AND THE SELENITE CRYSTAL TEMPLE NETWORK 
+                                                      
+                                                      STAR GATE-6	
+                       AND THE SELENITE CRYSTAL TEMPLE NETWORK	
+                
     Since the GA’s direct intervention with initiation of the Bridge Zone
 Project in 1983 (see “The Bridge Zone Project” on page 142), the GA have
 been peacefully and diligently working to prevent advancement of the
 various competing Fallen Angelic/Intruder ET and Illuminati OWO agendas
-on Earth. Through the peaceful tools of inter-stellar Emerald Covenant Co-
-evolution Peace Treaty negotiations and strategically applied and directed
+on Earth. Through the peaceful tools of inter-stellar Emerald Covenant Coevolution Peace Treaty negotiations and strategically applied and directed
 Masters Inter-Galactic Templar Mechanics, there was great hope of averting
 the long-anticipated 2000-2017 SAC Final Conﬂict drama. The GA had also
 explained from the beginning that whether or not Illuminati OWO
@@ -706,44 +198,46 @@ Imminent Crisis Order was issued due to the progressively increasing
 instability of Earth’s planetary Templar Complex and potentially
 cataclysmic reactions, in terms of planetary physics, that may now occur
 during the 2000-2017 SAC as a result of the UIR’s more aggressive use of EM
-scalar pulse technologies. 
+scalar pulse technologies.	
     During our Labor Day 2001 workshop of September l-3, the GA
 provided a new level of high security data pertaining to two areas of pending
 crisis. Attending Indigo Children were asked to assist Emerald Covenant
 nations in an immediate Top Priority Crisis Intervention strategy, and we
 were provided with additional introductory training in even more advanced
 Masters Templar Mechanics, called “Veca-Code Mechanics,” and planetary
-healing outreach. The first area discussed was that of the present acceleration
+healing outreach. The ﬁrst area discussed was that of the present acceleration
 of Stellar Wave Infusions (see “Stellar Wave Infusions” on page 466) into
 Earth’s Planetary Shields. In May 2001, as necessitated by the September
 12, 2000, Anunnaki defection from the Treaty of Altair agreements, the
 Maharaji Council triggered early activation of the D-6 Sirius B Star Gate
 (Density-2), in order to begin overriding Nibiru’s Photo-sonic hold on
-Earth’s planetary Merkaba, Templar and EM fields. If this initiative were not
+Earth’s planetary Merkaba, Templar and EM ﬁelds. If this initiative were not
 taken, the Anunnaki of the UIR intended to use the Nibiruian Templar      
+339	                    
 
+                                            
+    
                     The 9/11 WTC/Pentagon Attack and the Illuminati One World Order
 connection to force cataclysmic pole shift on Earth by 2008; Earth’s Templar
-had to be freed from its artificial Nibiruian alignment by 2003 or pole shift
+had to be freed from its artiﬁcial Nibiruian alignment by 2003 or pole shift
 could not thereafter be prevented. Star Gate-6 was not originally scheduled
 to enter its opening cycle until 2008, four years after the 2004 opening cycle
 of Star Gate-5 Alcyone. One of the greatest challenges posed to Earth by
 expedition of SG-6 activation is that of retaining the delicate EM balances
 of the planetary grids as Earth’s Planetary Shields6 rapidly activate in
-accelerated sequence in response to amplified and expedited D-4, D-5 and D-
-6 Stellar Wave infusions. The Emerald Covenant nations took this step of
+accelerated sequence in response to ampliﬁed and expedited D-4, D-5 and D6 Stellar Wave infusions. The Emerald Covenant nations took this step of
 mandatory Crisis Intervention as a ''Calculated Risk,'' knowing that it would
 be very difficult to realign and hold balance within Earth’s Templar as the
 SG-6 infusions progressed. This step would never have been taken if it had
 not been the only remaining strategy available to prevent the UIR
-Anunnaki from using Nibiru’s artificial link (Nibiruian Diodic Crystal, or
+Anunnaki from using Nibiru’s artiﬁcial link (Nibiruian Diodic Crystal, or
 NDC, Grid; see page 311) to Earth’s Templar to force rapid pole shift. The
 only other option for protecting Earth populations from pending cataclysm
 during the 2000-20l7 SAC would be physical evacuation; an action that
-would have its own inherent set of nearly insurmountable challenges. 
+would have its own inherent set of nearly insurmountable challenges.	
     Following the September 12, 2000, UIR Edict of War, the UIR had
 initiated accelerated reactivation of the Montauk Project (see page 136)
-facilities in Long Island, NY, for use in amplified ULF EM scalar pulse
+facilities in Long Island, NY, for use in ampliﬁed ULF EM scalar pulse
 transmission. If the UIR was successful in their intention of forging a link
 between the Rigelian Zeta controlled Montauk facility and the Anunnaki
 controlled NDC-Grid at Stonehenge, nothing would be able to prevent
@@ -753,11 +247,11 @@ Crisis Intervention efforts; as part of this emergency intervention initiative,
 SG-6 and the l2-dimensional Star Gate passage known as the Halls of
 Amorea7 were activated. Since May 2001, continual Photo-sonic
 transmissions from SG-6 Sirius B have been progressively used to hold
-stable and gently realign the vertical axis of Earth’s planetary Merkaba field;
+stable and gently realign the vertical axis of Earth’s planetary Merkaba ﬁeld;
 to prevent geoclimatic and tectonic instability as Earth’s Planetary Shields
 commence rapid D-6 activation. ln July 2001, the central control
 installation of the NDC-Grid beneath Stonehenge was re-coded to a D-12
-program, severing the long-standing, artificial link between Earth’s Templar
+program, severing the long-standing, artiﬁcial link between Earth’s Templar
 and that of Nibiru. There are 24 subterranean main control ''Nibiruian
 Crystal Temple Networks'' on Earth that serve as the main global
 transmission networks of the NDC-Grid “Checkerboard Matrix” Planetary
@@ -767,6 +261,732 @@ Earth must also be manually re-coded to a 12—code Pulse before the end of
 Azurite “Signet Rainbow Roundtables” Templar Security Team, the GA
 have been advancing these planetary healing efforts through a program called
 the Emerald Covenant Masters Templar Planetary Stewardship Initiative
-(AKA “Planetary Christos Realignment Mission”). 
+(AKA “Planetary Christos Realignment Mission”).	
+             
+                   ____________________________
   6.   scalar templates
-  7.   see Masters Templar Coursebook, forthcoming.
+  7.   see Masters Templar Coursebook, forthcoming.    
+ 340	
+
+                                                        
+                                                       Star Gate-6 and the Selenite Crystal Temple Network
+    
+    Note: A few of the many “Supplicant Sites,” or smaller Selenite and
+Quartz Crystal Matrices that are connected to the main Nibiruian Crystal
+Temple Network sites as transmission tributaries, were discovered recently
+in Mexico by scientists. Information of this discovery was released to the
+public this year, with expedition photographs showing breath-taking, massive
+Selenite Crystal rods. These Selenite rods are small by comparison to those of
+the many main network installations. Photos and information concerning the
+“Official Science” aspects of this discovery can be found on various Internet sites.
+Since childhood, I knew that this ancient Inter-stellar Crystalline Photo-sonic
+communications and transmitting network existed. On several occasions, GA
+Priests of UR escorted me through the Cloaking Shield (Photo-sonic security  force
+ﬁeld) of the subterranean Crystal Caverns system that links Earth to the portals
+of the Inner Earth Time Cycle. The Nibiruian Crystal Temple Network
+communications and transmission network is connected to and run through the
+Crystal Caverns system. The Emerald Covenant Maharaji of Sirius B seeded
+the original installations of the Crystal Temple Network over 3 million years ago,
+during Human Seeding-2; since that time additions of “younger” Nibiruian
+Selenite rods were added during different historical periods when Nibiru was under
+Emerald Covenant protection. Nibiruian Anunnaki seized control of the
+Nibiruian Crystal Temple Network during the 25,500 BC Lucifer Rebellion in
+Atlantis and used it in conjunction with the NDC-Grid, to control the main
+Axiatonal and Ley Lines of Earth’s Templar, and to progressively block
+Guardian nation communication within Earth since the 9558 BC Atlantian
+flood. .	
+     During the 1992 Emerald Covenant Pleiadian-Sirian Agreements the GA
+gained partial, temporary access to the Nibiruian Crystal Temple Network,
+which has enabled them to regain partial protection over some of Earth’s Templar
+and to open limited communication and Photo-sonic transmission lines to Earth.
+The Nibiruian Annunaki and Galactic Federation began activating the
+Crystal Temple Network for scalar pulse transmission in 1942, in an
+unsuccessful attempt to block Zeta and Illuminati races from conducting the
+1943 Philadelphia Experiment, which would hamper the Anunnaki’s intended
+2000-2017 OWO dominion agenda. Presently “the battle is on” as the UIR,
+several smaller competing Fallen Angelic collectives and Emerald Covenant nations
+covertly struggle to gain primary control over Earth’s Crystal Temple Network
+before 2003, using Planetary Templar and Merkaba (EM ﬁeld) Mechanics and
+scalar pulse technologies. The recently revealed Selenite caves in Mexico are a
+very small Supplicant Matrix, recently activated by the UIR as a scalar
+transmitting station; this installation connects to the larger tributary systems
+surrounding the main Nibiruian Crystal Temple base in Central Mexico. The
+UIR permitted this Selenite cave to be “found” by releasing the Cloaking
+Shield surrounding it, in preparation for their intended covert physical
+infiltration of   Earth. For the Nibiruian Crystal Temple Network bases to activate
+ at full scalar-transmission capacity, the Cloaking Shield buffer must be deactivated, which leaves the usually invisible/cloaked installations vulnerable to
+   inadvertent Human “discovery.” Other, related Crystal Temple cavern systems,
+    containing Selenite, Quartz, Amethyst, Diamond and various types of Beryl
+     deposits, will be “found” within the next 3-9 years; two are due for activation
+       and ''discovery'' around the end of 2002 (locations not yet revealed to me by GA   
+        341	
+          
+
+                   
+                   
+                    The 9/11 WTC/ Pentagon Attack and the Illuminati One World Order
+for security reasons). More information on the Nibiruian Crystal Temple Network
+and related subjects can be found in our Masters Templar Coursebook (now
+available) and forthcoming Forbidden Testaments of Revelation book.
+    The UIR and Illuminati collectives have a vested interest in
+preventing the Emerald Covenant nations from re-coding the Nibiruian
+Crystal Temple Network to a 12-Code Pulse, as this would place these
+Planetary Templar Control scalar pulse transmission stations out of the
+UIR’s D-11 frequency range. Under natural D-12 programming, the NDCGrid and Crystal Temple Network would be inaccessible to UIR
+manipulation and could then be used by Emerald Covenant nations to
+rapidly place Earth’s Templar, and the “Montauk Problem” under a D-12
+Security Seal. If Earth’s natural D-I2 Planetary Maharic Seal can be
+stimulated into activation, any further advancement of the UIR Illuminati
+OWO Master Plan and pole-shift agenda will be prevented. The UIR OWO
+Illuminati Master Plan, which now hinges on their ability to implement a
+global mass ''Frequency Fence'' by 2003, requires the use of the Nibiruian
+Crystal Temple Network for continual transmission of the Frequency Fence
+Sub-ULF scalar pulse program. During the GA/Eieyani Labor Day 2001
+workshop of September 1-3, the GA explained that the UIR had initiated an
+aggressive, expedited step of advancement of their Illuminati OWO Master
+Plan. Expedition of their already delayed OWO Master Plan was successfully
+initiated by August 30, 2001, in an attempt to gain control of the Nibiruian
+Crystal Temple Network before Emerald Covenant nations could complete
+their intended l2-Code Pulse re-programming before 2003. GA Templar
+Mechanics conducted during the January 2001 Florida Azurite gathering
+had temporarily thwarted the UIR from achieving full activation of the
+Montauk facility. The GA had successfully re-programmed to a natural 12Code Pulse, the main planetary Axiatonal Line connected to Montauk,
+which had been used for UIR global scalar pulse transmission. By September
+2001 the UIR had activated, and interconnected for purposes of frequency
+amplification, a series of   smaller global   Ley   Line tributaries   running   through
+the Montauk facility.	
+            
+   TRION-MEAJHÉ FIELDS AND EXPEDITED AMENTI OPENING
+     Due to the UIR’s August 12-30, 2001, full activation of the Montauk
+facility, combined with the May 2001 early activation of Sirius B Star Gate6, Earth is now in “Big Trouble.” During our Labor Day 2001 workshop, the
+GA/Eieyani calmly explained that due to this recent advancement of the
+UIR Illuminati OWO Master Plan they would now have to take “final
+emergency measures” to prevent pole shift and to stop further expedition of
+the UIR agenda. We were provided with new, introductory teachings on
+Veca-Code and Trion Field Masters RRT Templar Mechanics, through
+which we can assist the Emerald Covenant nations in creating a Planetary
+Trion (or “Trinity”) Field. A successful Trion Field will allow Earth’s now
+precariously balanced EM grids, Planetary Shields and Merkaba Field to be
+directly linked into Planetary Shields of the Inner Earth time continuum.
+Earth’s Templar will be simultaneously linked into the Planetary Shields of a
+free counter-part of “Future Earth” that exists in a Trans-Harmonic
+Accelerated Time Cycle called the Meajhé Zone.8 The Planetary Shields  
+342	      
+
+                                                      
+                                                         Trion-Meajhe’ Fields and Expedited Amenti Opening
+from the two other Time Matrices will serve as massive Photo-sonic
+Anchoring Rods (huge standing-columnar-waves of 15-dimensional,
+inaudible sound) called Trion Pillars. Once anchored in Earth’s Planetary
+Shields, the Trion Pillars will draw Earth’s Star Gates and Shields into
+natural alignment with the Inner Earth time continuum, so the Bridge Zone
+Time Continuum Shift can progressively proceed. This “three-way link” or
+“Trinity Bond” between the three Time Matrix systems will create enough
+D-12 (and higher) frequency thrust to allow the Guardian nations to
+complete their 12-Code Pulse re-programming of the Nibiruian Crystal
+Temple Network and Earth’s Templar before 2003. If the Trion Field is
+successful, the UIR will be unable to fulfill their intention of expediting their
+Frequency Fence project in 2002-2003 to rapidly advance their OWO
+agenda. Earth’s Planetary Shields will progressively return to their organic
+EM balances under a natural D-12 Planetary Maharic Seal, averting pole
+shift and preventing further Fallen Angelic/Intruder ET infiltration and
+manipulation during the SAC. This is the focus of the Founders’ Planetary
+Healing endeavors and Peace Efforts, from now until 2003 end. Much hangs
+in the balance.	
+    Presently Earth’s Planetary Shields are activating at an alarming rate,
+drawing in massive amounts of frequency from Sirius B SG-6 due to the
+UIRs’ full activation of the Montauk facility and related installations. This is
+causing a progressive Time Acceleration of Earth’s passage through the 20002017 SAC. If Earth does not succumb to the now-advancing UIR Illuminati
+OWO Master Plan, the ''Amenti Ascension Schedul'' (see page 201) will
+reach fulﬁllment much earlier than originally anticipated. Emerald
+Covenant races are unable to prevent this undesired acceleration of Earth’s
+SAC, as the UIR’s psychotronic transmissions have triggered the automatic
+frequency acceleration sequences in Earth’s Planetary Shields; the most the
+GA can hope to do is to stabilize Earth’s Templar as the SAC rapidly
+unfolds. The opening of the Halls of Amenti Star Gates, originally due to
+occur in 2012, the coming 2017 “Three-Day Particle Conversion Period”
+and all Stellar Wave infusions initially due prior to 2012 will now occur
+between 2003-2006. If the Trion Field is successfully created before 2003, a
+''frequency blanke'' called a Meajhé Field, can be constructed within
+Earth’s magnetosphere and outer atmosphere, which will buffer Earth from
+many effects of these accelerated frequency infusions. The Meajhé Field,
+created through a temporary merging of Earth’s Planetary Merkaba Field  and
+that of the Meajhé Zone Time Matrix, can absorb much of the excessive
+frequency that will otherwise bombard Earth’s Planetary Shields and
+collapse Earth’s magnetic fields and atmosphere during the Three-Day
+Particle Conversion period.	
+     In the Labor Day 2001 workshop most of us were deeply sobered by the
+GA/Eieyani’s technical physics answer to the question of “What will Earth
+life experience during this accelerated phase before the Three-Day Particle
+Conversion Period?” This information is too lengthy for inclusion in this
+book; I will simply say that if the Meajhé Field is not created “you wouldn’t
+_____________________________	
+8.      See: Forbidden Testaments of Revelation, forthcoming. 	
+343	
+
+                       
+                        The 9/11 WTC/ Pentagon Attack and the Illuminati One World Order
+want to be here.” One summary clue is the scientiﬁc term called Hydrogen
+Burning. All Emerald Covenant Crisis Intervention efforts are now
+directed to creating the Trion Field and Meajhé Field on Earth and blocking
+the UIR Frequency Fence, between now and 2003. There is no time left for
+wasting energy with Illuminati sparring matches or countering
+disinformation campaigns; “the Game is On,” people, and the advanced
+Masters Planetary Templar Mechanics is literally the only solution to this
+dilemma. If the real truth as explained above is a “bit too much to handle,”
+then perhaps the Big Picture will begin to make more sense through
+understanding the smaller, but equally bothersome, reality of the nowrapidly advancing UIR Illuminati OWO Master Plan. On the last day of
+our Labor Day 2001 workshop, September 3, eight days prior to the 9/11/
+2001 Trade Towers/Pentagon Terrorist attack, the GA revealed the
+second, interconnected “pending crisis” issue. The UIR and Illuminati had
+ﬁnally managed to fully expedite activation of the Montauk facility and its
+global scalar pulse transmission network. The UIR’s schedule of advancing
+their Illuminati OWO Master Plan, which originally involved initiation of
+the “2003 Dimensional Blend Experiment” (see page 110) and “2004
+Frequency Fence,” had been expedited and fully set in motion. Phase 1 of
+their intended Frequency Fence would need to be forcibly implemented
+before 2003 if they were to prevent Emerald Covenant nations from
+permanently securing under a natural 12-Code Pulse the 24 Nibiruian
+Crystal Temple Network transmission sites. More disturbingly, the GA
+revealed that the ﬁrst major move in expediting the UIR Illuminati OWO
+Master Plan into externalized motion had just begun. The GA security
+release data revealed in the Labor Day 2001 workshop was not the ﬁrst
+warning the GA had provided regarding the potentials of horror inherent to
+the Illuminati OWO agenda. My ﬁrst chilling glimpse at this reality came in
+October 1999, about one year before the inter-stellar political drama
+escalated to its present state of chaos through the consolidation of Fallen
+Angelic invasion forces in the September 7-12, 2000, formation of the UIR.
+                     
+                THE OCTOBER 1999 CLASSIFIED DOCUMENT,	
+                  PSYCHOTRONICS, MONTAUK AND OWO	
+    In the only ''Classifie'' dispensation of data the GA had ever given, a
+53-page manuscript was transcribed in October 1999, detailing some of
+what the then-dominant Zeta Rigelian-Dracos/Drakonian and Anunnaki
+OWO forces had in store if the GA Peace Effort could not prevent
+advancement of their agendas. Only a few copies of this transcript were
+produced, and I was permitted to share them with only a few close friends and
+people directly involved in the GA work. The information contained in this
+GA dispensation detailed some disturbing Illuminati actions that were
+already occurring in 1999 and revealed data on a few very frightening
+potential events that would emerge into “Official 3-D reality” if the Emerald
+Covenant Crisis Prevention Initiative failed. The Emerald Covenant
+Founders’ races had deemed the October 1999 Classified information
+unsuitable for public release at that time. They knew the information would
+generate unnecessary fear over events we might likely avert via GA Peace 
+344	
+                 
+
+                                           The October I999 Classified Document, Psychotronics, Montauk and
+ Efforts. These revelations of Illuminati activities would also serve to initiate
+ an even great slander/disinformation/public attack campaign against the
+    GA work and me personally, among Anunnaki representatives within the
+     New Age Movement and Zeta-Dracos representatives in the UFO
+ Movement. The deciding factor preventing this data from being authorized
+ for public release was that disclosure would cause the then-extremely fragile
+  and rapidly disintegrating 1992 Pleiadian-Sirian Agreements to be
+ shattered completely.	
+                      Unknown to me at the time, in 1999, Emerald Covenant nations were
+deeply immersed within terribly volatile, top-security politically sensitive
+negotiations with major Anunnaki nations, attempting to persuade them to
+honor their 1992 peace treaty promises. In 1999, Emerald Covenant nations
+still had hope that the 2000-2017 Final Conﬂict drama on Earth could be
+averted through fulﬁllment of the 1992 Pleiadian-Sirian Agreements. The
+''last ditch attempt'' at resurrecting this failed 1992 peace treaty between
+Guardian and Anunnaki legions was the July 5, 2000, Treaty of Altair,
+which had failed miserably by September 12, 2000, resulting in the UIR
+Edict of War. Throughout 1999, the GA and Emerald Covenant nations had
+been trying desperately to prevent the event of war with the Anunnaki,
+due to their NDC-Grid stronghold over Earth’s Templar. Factions of the
+Anunnaki legion (ruling portions of Galactic Federation, Ashtar Command,
+Alpha-Omega Order Melchizedeks and Nibiruian Thoth-Enki-Zephelium
+Anunnaki) had defected from the Pleiadian-Sirian Agreements and made
+“friendly enemies deals” with a faction of the competing Dracos Omicron
+Drakonian hybrid race in March 1999. In the Dracos-Anunnaki agreements,
+the Nibiruian Councils (of “Nine,” “Twelve” and “Twenty-Four”) mandated
+that a program of Human Genocide would be immediately initiated to
+reduce the numbers of Human populations, so easier advancement of the
+Anunnaki-Dracos Illuminati OWO Master Plan could proceed.	
+        The October 1999 Classiﬁed information detailed that a type of  
+Psychotronic scalar-pulse technology called a “Phantom Pulse” would be
+transmitted to key locations on Earth via the Montauk facility and lowscale activation of portions of the Nibiruian Crystal Temple Network. The
+“Phantom Pulses” would progressively amplify over time, beginning within
+the areas of Earth’s Planetary Shields into which they were sent, due to the
+progression of the SAC. The purpose of the Phantom Pulse transmissions was
+to progressively send digitally encoded Psychotronic Mind Control
+directives to certain segments of international populations, through which
+the “3-D event” of Human war, escalating rapidly into a WW3
+“Armageddon” scenario, would unfold within the Human drama. The
+progression of ''Trigger Events'' through which this “Human War” would be
+   progressively instigated via Psychotronic transmission, would not begin until
+  the Phantom Pulses had reached a critical mass transmission strength in
+    Earth’s grids. In synchronization with the originally scheduled progression of
+   Earth’s SAC, the first set of Psychotronically induced “Trigger Events,” and
+  their resulting “3-D political actions” orchestrated by targeted individuals
+    and collectives, were intended to begin in 2002. The October 1999 classiﬁed
+     document further explained that a smaller, less developed version of this            
+technology had been tested by the Rigelian Zeta-Dracos Alliance in the area  
+             345	  
+
+                         
+     
+       The 9/11 WTC/Pentagon Attack and the Illuminati One World Order
+of Bosnia, and that it was “working successfully” to instigate Human
+political unrest. The document further revealed that between June-July
+1999 the Zetas, with assistance from the Anunnaki, reactivated a portion of
+the Zetas’ scalar transmission facility at Montauk to amplify the capabilities
+of this Psychotronic technology.	
+    It was further explained in the October 1999 dispensation, that on
+August 11, 1999, the ﬁrst set of Three Phantom Pulses, directed to
+American targets, was issued by the UIR. The ﬁrst pulse sequence was sent
+into the Roswell, NM, vortex system, the second to the Castle Rock Vortex
+in Sedona, AZ, and the third was transmitted into the Montauk-Long
+Island-Manhattan, NY, vortex system. The document then mentioned that a
+second set of Phantom Pulses was intended to be issued into Primary
+Vortex-2 Jerusalem, Israel on November 18, 1999 and the third and ﬁnal
+set of “ﬁrst phase” pulses were scheduled for China on December 12, 1999.
+All of these targets were hit with ampliﬁed Psychotronic scalar Phantom
+Pulses as scheduled.9 The information pertaining to the Anunnaki-DracosZeta intended dates of ﬁrst wave Phantom Pulse transmissions was obtained
+by Enoch, the Density-3 Immortal Jehovian Anunnaki-Human hybrid, who
+had appealed for an Emerald Covenant Redemption Contract in 1983.
+Since 1983, Enoch had remained loyal to the Emerald Covenant, and also
+throughout the 1992-1999 Pleiadian-Sirian Agreements, following his long
+stint of service as a major player within the Jehovian Anunnaki OWO
+dominion agenda between 10 AD and 1983. In 1999, Enoch was able to
+secretly obtain this Anunnaki military strategic information from his
+contacts within the Jehovian Anunnaki legion (Arcturus, Orion, Sirius A).
+The information presented in the October 1999 Classiﬁed document was
+entrusted to me only so that I would begin to really understand the
+seriousness of Earth’s position, and so that I could present some of the
+information on solutions to the public in 1999. This public presentation
+was conducted and ﬁlmed on December 12, 1999, in a large NYC
+workshop, through which the ﬁrst grouping of the Azurite Templar Security
+Team was formed. At this time the Emerald Covenant agenda was focused
+exclusively upon continuing GA/Founders Emerald Covenant inter-stellar
+political negotiations in hopes of bringing the Anunnaki and their Illuminati
+forces back into the Pleiadian-Sirian Agreements peace treaty, and upon
+preparing the Azurite Security Team for Masters Planetary Shields Clinics.
+Planetary Shields Clinics are the only technology through which this OWO
+agenda and Phantom Pulse technologies can be stopped.	
+    The Emerald Covenant nations, with help from the East Coast U.S.
+Azurite Team, achieved the ﬁrst major, and utterly essential preliminary
+victory in their Crisis Intervention Program—“Grounding of the Stellar
+Bridge” on a “12-Code Pulse” during the “Transcendence Day Stand” of
+January 1, 2000. With this accomplishment, Emerald Covenant nations
+were ﬁnally “in the game” and had a decent chance of protecting Earth and
+humanity from the advancing Illuminati OWO agenda and Nibiruian
+                        __________________________
+                 
+                     9.     GA began immediate intervention measures, but due to Nibiruian Anunnaki hold over
+                             the Crystal Temple Network, could not fully prevent the Phantom Pulse transmissions
+                   
+                  346
+                 
+               
+
+                                    
+                                                     Sleepers, Terrorists, Remote Viewing, RITs and the NET
+Council mandate of Human Genocide. The “Frequency War” was on
+between the Guardian and Fallen Angelic nations; the victor would control
+Earth’s Planetary Templar Complex and thus the ultimate fate of the 20002017 SAC and consequently Earth’s immediate destiny. When Anunnaki
+legions ﬁnally fully defected from the Emerald Covenant Treat of Altair on
+September 12, 2000, joining and expanding the forces of the UIR, the
+Emerald Covenant nations went under a State of War Alert. The October
+1999 Classiﬁed document covered a variety of related issues, focusing on
+peaceful solutions; this document is too large to include here and more
+recent data is far more pertinent. The most intriguing aspect of the October
+1999 dispensation is that it clearly identiﬁed that the GA had learned that
+the then-dominant OWO dominion agenda of Fallen Angelic/Intruder ET
+forces had an established agenda of orchestrating Human Genocide for
+speciﬁc mass population reduction. The Zeta-Dracos-Anunnaki force
+intended to covertly use Psychotronics to “Trigger” speciﬁc actions within
+the ranks of their Illuminati “puppets” in the Interior World Government,
+to remotely instigate WW3 among Human nations. Reducing speciﬁc
+Human and Indigo Child populations on Earth was part of their larger Earth
+inﬁltration and physical invasion plan, through which they intend to
+progressively secure, ﬁrst covert then overt, physical presence on Earth, in
+preparation for seizing dominion of Earth and the Halls of Amenti Star
+Gates.	
+                     SLEEPERS, TERRORISTS, REMOTE VIEWING,	
+                                           RITs AND THE NET	
+    Following the October 1999 classiﬁed dispensation, the GA
+infrequently provided bits of additional non-speciﬁc information pertaining
+to various Fallen Angelic/Intruder ET and Illuminati intentions, such as
+Psychotronically triggered Illuminati terrorist acts, including the use of Bioterrorism. I was told, in various brief personal discussions with GA members
+in 1999 and early 2000, that there were “Illuminati Sleeper groups”
+(unnamed and unidentified) of various nationalities scattered within about
+15 major (unnamed) countries. They said world governments knew since
+their beginning formation in the 1960s-1980s that the various “Sleeper”
+Terrorists Groups existed and had most of them already under constant
+surveillance. The “Sleepers” were intended as the eventual targets of
+Psychotronic ''Triggering'' launched by the Zeta-Dracos-Anunnaki Fallen
+Angelic collectives if their OWO Master Plan progressed beyond 2002. The
+GA did not stress the “Sleepers” as being the primary threat to planetary
+security; the greatest threat was the intention of the Fallen Angelic forces to
+trigger Wars between Nations. In 1999-early 2000, the Illuminati Sleeper
+groups were not intended as the force that would start the ''WW3'' drama;
+the Fallen Angelics simply intended to use them after the fact of major
+global war, as covert militia operatives. The GA intended to warn the
+public of any known Sleeper activity if that ''time ever came.'' Our
+attentions were focused upon securing Earth’s Templar from further Fallen
+Angelic/Intruder ET inﬁltration and upon peacefully preventing further
+347	
+                                                                                                                                      
+
+  
+                      
+                       The 9/11 WTC/ Pentagon Attack and the Illuminati One World Order
+advancement of the Zeta-Dracos-Anunnaki Illuminati OWO Master Plan
+through Masters Planetary Templar Mechanics, in order to prevent WW3.
+  The Emerald Covenant nations have kept Sleeper groups under
+surveillance whenever possible, but this is often difﬁcult, as they are
+frequently moved around to different locations. The GA explain that
+Illuminati “Sleeper” groups are moved about within the many geographical
+locations on Earth where the planetary Axiatonal Lines, Ley Lines,
+Planetary Shields and Crystal Temple Networks are controlled by Fallen
+Angelic/Intruder ET collectives. In these areas Emerald Covenant nations
+face great difficulty in electronic, Photo-radionic and Photo-sonic
+surveillance as the Fallen Angelics use “jamming” scalar pulse frequencies to
+“retain their privacy.” “Remote Viewing,” or mental surveillance through
+projection of 3-D consciousness into the D-4 “Astral” field, is the most
+effective method of Sleeper surveillance, but this too has its drawbacks in
+relation to monitoring of Fallen Angelic/Illuminati operatives. A small
+group in each Illuminati Sleepers force collective is trained in Remote
+Viewing detection, by their Fallen Angelic directors; these individuals can
+sense “incoming astral presence.” Remote Viewing technology is far more
+developed than is realized in mainstream society. Not only are there many
+human and Illuminati Remote Viewing surveillance teams presently active
+on planet, but there are also several collectives of highly trained “Remote
+Interactive Teams” or “RITs” that utilize advanced astral ﬁeld technologies
+for D-4 astral interaction and manipulation of individuals and populations.
+These groups of “higher ranking,” Ultra-security clearance Illuminati
+operatives are trained literally in Astral Combat and Inﬁltration.	
+            In some Earth locations, large underground Illuminati laboratories are
+set up for training, tracking and directing RIT programs; these facilities
+utilize advanced bio-electrical technologies and mechanically transmitted
+EM currents combined with induced neurochemical compounds to “force”
+RIT subjects “out of body” via DNA Template/Pineal stimulation. Most
+Illuminati RIT members do not realize that they themselves are fully
+Tagged and that their training agents keep them under continuedsurveillance mind control. More advanced “Master RIT Programs” utilize
+skilled consciousness projection without the use of mechanical, chemical or
+external electrical support. Such “Master RITs” are few and far between
+because development of natural consciousness projection skill requires
+sustained DNA Template activation and higher-dimensional consciousness
+integration, which presents the opportunity for the personal Soul, Over-Soul
+             or Avatar consciousness level to intervene and inspire the RIT to peaceful 
+           solutions. Fallen Angelic Master RIT Programs involved with Earth do not
+  use Human or Illuminati subjects, as there is too great a risk of the earthly  
+   subject becoming free from Fallen Angelic covert manipulation. Master RITs 
+     are composed fully of Fallen Angelic/Intruder ET ''dark soul/oversoul/avatar
+        collectives, whose higher station of consciousness are also corrupted into
+           exploitative,power-conquest agendas. Non-terrestrial Master RITs often       
+       target Human and Illuminati individuals for intended ''bio-energetic field/
+         
+          
+           348	
+	
+	
+   
+
+                            
+                                                   Sleepers, Terrorists, Remote Viewing, RITs and the NET
+Astral Attachment,” or in some cases for partial or full-body possession via
+DNA Template bonding.The lower echelons of Illuminati RITs are often sent to deliver
+frequency implants called ''Tag'' into the D-4 astral-ﬁeld of unsuspecting
+humans. These digitally encoded EM implants serve as dormant triggers that
+are activated and deactivated via targeted remote scalar pulse transmission,
+causing the individuals to fall into Illuminati mind control at times when
+they are needed as covert Illuminati operatives. When the implant is deactivated, the person “returns to normal” often with no conscious memory of
+what transpired when the implant was active. Astral Frequency Implants, or
+Tags, are very often used to control, activate and “awaken” Illuminati
+Sleeper groups, as they allow for speciﬁc instructions of action to be
+remotely transferred via digital scalar pulse into the subject’s mind. The
+subject experiences them as “personal thoughts” or sometimes as “voices
+from spirit/God,” etc. The Tags utilized by Illuminati RIT forces have a short
+“life span”—their EM frequency programs become non-distinct and disperse
+over time, thus requiring repeated remote “Tagging.” Tags also have a limited
+receiving range; if the subject’s body moves out of range of the intended
+scalar pulse transmitting facility, the Tag will fail to operate. For this reason
+there are a multitude of Tag Tracking Units orbiting around Earth in the D4 frequency bands; these mechanical constructs track the Tags and serve as
+scalar pulse relay stations for roving Tag activation. People can easily protect
+themselves from these seemingly elaborate Illuminati and Fallen Angelic/
+Intruder ET schemes by simply consistently and frequently using the Maharic
+Seal technique (see page 496). The Maharic Seal manually activates the
+natural D-12 frequency sub-harmonics within the Human and Illuminatihybrid DNA template, creating an organic, temporary D-12 ''Frequency
+Sea'' in the personal bio-ﬁeld, DNA and consciousness. This D-12
+Frequency Seal will clear astral Tags, prevent further Tagging and block
+Master RITs from bio-field Astral Attachment and DNA bonding. Our lack
+of awareness as to the existence of these technologies and how to easily
+protect ourselves against them is the only reason these forces can affect us.
+          In relation to Emerald Covenant nations tracking Illuminati Sleeper
+groups on Earth, Remote Viewing is the only effective method of
+surveillance, but it is not a “foolproof” technology. Planetary Shields scalarpulse interference creates perceptual “buffer screens” even to the D-4
+Astral perception, and many Sleeper groups are hidden beneath''holographic
+insert fields,'' which are mechanically generated to “give false readings” in
+Remote Viewing surveillance. Presently, the D-4 frequency bands of Earth
+are literally surrounded by multiple layers of Fallen Angelic constructed
+buffer screens, holographic insert ﬁelds and EM “Detection Blankets”; this
+planetary ''Astral Mess'' is referred to in the English language as “The
+NET”; the “Nibiruian Electra-static Transduction” ﬁeld. The NET was
+originally constructed in Atlantis by invading Nibiruian Anunnaki races
+beginning in 25,500 BC, and was “anchored” into Earth’s Shields via the
+NDC-Grid and Nibiruian Crystal Temple Network. In 9558 BC the
+Anunnaki fortified the NET, as they have at various times since then,
+progressively intercepting all natural electrical transmission lines to and from
+            Earth. Since 9558 BC the Anunnaki have been preparing the NET to be
+                           
+                            349	
+                        
+
+                        
+                    
+                       
+                         The 9/11 WTC Pentagon Attack and the Illuminati One World Order
+“lowered” into D-3 frequency bands as a Frequency Fence, through which
+they intended to gain easy control over Earth populations during their
+scheduled 2000-2017 SAC invasion. 10 In the 1943 Philadelphia
+Experiment, Zeta Rigelian races “poked holes” (electromagnetic openings)
+in the NET, enabling them to create a “doorway” into our space-time
+coordinate. Emerald Covenant nations have been working to “break through
+the NET” for many thousands of years, having some temporary, localized
+victories in certain periods.	
+           In the 1992 Pleiadian-Sirian Agreements peace treaty, the Nibiruian
+Anunnaki permitted Emerald Covenant nations limited use of smaller
+frequency relay transmission lines of the NET for communication purposes,
+and promised to disengage the NET and its manipulative programs by 2000,
+in preparation for the SAC. From 1992-1994 the NET was used to amplify
+frequency through which the Zeta-Rigelian/Dracos Montauk facility was
+temporarily disabled. During mid 1998-1999, as the Nibiruian Anunnaki
+launched their ﬁrst mass defection from the Pleiadian-Sirian Agreements,
+the NET was interfaced with the Zeta-Rigelian/Dracos Montauk facility.
+The NET-Montauk interface was a collaborative Zeta-Rigelian/Dracos and
+Nibiruian-Anunnaki effort to prepare for “Lowering the NET” into the D-3
+Frequency bands via interface with earthly electrical grid technologies, to
+create their jointly-intended sinister ''Frequency Fence” mass mind control
+network in 2004. In September 2000, the NET and Frequency Fence
+initiative came under UIR control and the intended target date for
+beginning the Frequency Fence was pulled forward from 2004 to 2002.
+Since 1998 Emerald Covenant nations have used their limited access to
+NET transmission lines to begin “poking holes” in the NET. They are now
+progressively working to dissolve the NET through progressive 12-Code
+Pulse re-programming of the 24 Nibiruian Crystal Temple Network bases
+through which the frequencies of the NET are anchored into Earth’s
+Planetary Shields.	
+    Over the last 100 years, Anunnaki races have been using the NET to
+transmit speciﬁc technological information to strategically positioned,
+selected Illuminati Sleepers, through which “Human science” could “slowly
+advance” via covert Anunnaki “inspiration.” Since 1943 the Zeta-Dracos
+have been running a counter “ET technology training program” on Earth in
+hopes of capturing full control of the Anunnaki NET for use in their own
+agendas. In 1999 the Anunnaki and Zeta-Rigelian/Dracos forces agreed to
+“work together” to prevent Emerald Covenant nations from disengaging the
+NET.	
+    The “Intruder ET technology training” that has been literally
+electronically inserted “into the minds of men” was “paced” so that Human
+science would selectively advance to the development of the speciﬁc
+technologies that would be needed to “lower the Frequency Fence” into the
+D-3 frequency bands. The “man-made” electrical grid networks of Earth, and
+literally all core radio, television, ﬁber optics, digital, EM pulse, sonic pulse
+and microchip technologies have emerged in human civilization through the
+                           _______________________                                                                             
+                  
+                      10. “Galactic Federation” has been the primary “NET Maintenance Crew.”
+                       350	
+
+ 
+                             
+                                                     Sleepers, Terrorists, Remote Viewing, RITs and the NET
+“genius” of people selected for covert “Fallen Angelic/Intruder ET
+inspiration.” If Emerald Covenant races had been able to provide humanity’s
+technological education over the past 10,000 years, natural, thoughtdirected subtle-wave technologies built upon organic Creation Physics,
+Core Scalar Template Dynamics and Sacred Planetary Templar Merkaba
+Mechanics would have long ago transported Earth’s peoples beyond all
+“Earthly Limitations.” A race does not need airplanes when knowledge of
+natural portal and star gate passage is used effectively. One does not need
+light bulbs when one knows how to project self-contained, luminescent BioDion Field standing-waves, or when a civilization utilizes the natural global
+free energy systems inherent to Earth’s Templar Complex. (A few things to
+which we can eventually look forward when Earth becomes a free planet.)
+Emerald Covenant training would have also served to provide the cultural
+Spiritual and Social Ethics through which the power of science can be used
+to enhance and free consciousness within the manifest experience, rather
+than degrade and enslave it.	
+     The earthly “ground technologies” that are now commonplace in
+developed nations are not the benign and helpful “miracles of human
+science” that they appear to be. Their development was covertly
+orchestrated off-planet, with the following intentions in mind:	
+       • To strengthen the frequencies of the D-4 NET, progressively
+drawing the NET into the D-3 frequency band.	
+     • To suppress the natural DNA Template and Pineal activation in
+Humans that would normally occur during the 2000-2017 SAC, in order to
+harness human consciousness into the 3-D ﬁeld. If our fourth DNA strand
+were not partially blocked from activation, we would all be able to see that
+the D-4 frequency bands surrounding Earth and our local galaxy presently
+look like an “ET Parking Lot”! If Human and Indigo DNA is suppressed,
+they cannot effectively run the natural 12-dimensional Kundalini-Maharata
+Life Force Currents through the body, which are needed to run RRTs into
+         the Planetary Shields during SACs.	
+         • To amplify existing DNA mutations in Human, Indigo and
+   Illuminati races for lowered immune system response, to expedite biological
+  deterioration of select populations in preparation for, and during, the 200020l7 SAC.	
+          • To create frequency weakness in the D-4 Human, Indigo and
+  Illuminati Astral body so astral Tagging, bio-field inﬁltration and Mind
+    Control can be easily and covertly orchestrated on a mass level.	
+           • To interfere with natural function of human brain-waves, blood
+    and hormonal systems in order to amplify humanity’s present entrapment
+  within the biological form.	
+           • To distract human attention fully into the external world and into
+  disempowering dependence upon external technologies, so the natural
+     powers of mind, spirit and DNA remain undeveloped. These are only some
+   of the things our “modern” technologies were intentionally designed to do
+  for us; while keeping us joyfully enamored with their apparent advantage
+  (Atlantis revisited! ).	
+            But now that these technologies are here, they can be used to promote  
+                 well being rather than damage. (We are not an “anti-technology” religious351	
+                       
+                                                                                                                              
+
+                             
+               
+                        The 9/11 WTC/ Pentagon Attack and the Illuminati One World Order
+dogma group!) At the expense of sounding redundant, I will point out that
+the D-12 frequencies generated in the personal biology via consistent use of
+the Maharic Seal will progressively clear and neutralize the personal effects
+of damaging electromagnetic emissions. If you can generate, through
+educated mental direction of bio-energy, organic D-12 sub-harmonics
+through nano-second activation of the dormant portions of your DNA
+Template and bio-field, you do not need external “devices” such as “Tachyon
+Field Interceptors” to protect you from Earth’s present environment. There
+are numerous other natural means of protection that, if used with the
+Maharic Seal, will amplify personal immunity to such damaging ''invisible
+Wave fields''	
+         If Emerald Covenant nations successfully create a D-12 Planetary
+Maharic Seal during this SAC, Earth’s environment will also progressively
+heal, clear and neutralize the damaging effects of these technologies; the
+technologies themselves will be steadily evolved to a more advanced, ethical
+order of Sacred Physics applications. In greater terms, advancement of our
+Fallen Angelic/Intruder ET inspired “Human technology” was intended not
+only as a control mechanism for Human populations; our “deceitful Stellar
+neighbors” have bigger plans in mind. Contemporary Global technologies
+such as the HAARP project, Montauk facility (see page 136), electrical and
+nuclear power plants, computers, satellites and EM-sonic scalar-pulse
+technologies were “given to us” so we would already have core technological
+installations built on planet. These technologies all have the capacity to be
+linked together, through the Nibiruian Crystal Temple Network and interdimensional space craft, to create a massively powerful Photo-sonic Pulse
+generation and transmission system. “Conveniently,” this is the precise
+system that the Fallen Angelic/Intruder ET races need to forcibly ''blow
+through'' the Cloaking Shields (Photo-sonic security force ﬁelds) that
+protect the portals connecting surface Earth and the Inner Earth Time Cycle,
+where the Halls of Amenti Star Gate control Temples11 are located.
+     Over the last 100 years, Human and Illuminati races have served the
+Atlantian Nibiruian Anunnaki invasion force well as a source of amnesiac
+''technological slave labor”; and our ''slave masters'' are intending to soon
+reap the harvest we have so painstakingly cultivated unknowingly on their
+behalf. It’s time to “Wake up, world!” and face the hard fact that what we
+are now experiencing in “3-D” is the beginning of an anticipated and highly
+strategic climax of the long-nurtured Anunnaki Luciferian Covenant
+agenda of 9560 BC. (An agenda that has recently become more tightly
+focused, powerful and organized, via consolidation of a variety of oncecompeting OWO agendas, through formation of the UIR.) The diabolical
+Luciferian Covenant itself is part of a much older, larger, less organized
+collection of competing Fallen Angelic/Intruder ET intended invasion
+forces that have been collectively orchestrating the Atlantian Conspiracy,
+                  the roots of which go back over 200,000 years. All of these competing
+                    OWO Fallen Angelic/Intruder ET dominion agendas have always shared one
+                           core ''Prime Initiative''—full physical conquest of surface Earth as the	
+             
+                           _______________________
+                             11.       See Crystal Pylon Temples, in Forbidden Testaments of Revelation, forthcoming  
+                              352
+                           
+
+                                                   
+                                                     Sleepers, Terrorists, Remote Viewing, RITs and the NET
+strategic location from which full physical invasion of the Inner Earth Time
+Cycle and Halls of Amenti control sites was intended to be launched.
+Between 50,000 BC-9560 BC the advanced Human civilizations of
+Lemuria (Mu’a) and Atlantis were progressively invaded by competing
+Anunnaki and Drakonian agenda races, via forced Fallen Angelic/Intruder
+ET hybridization, through which the Illuminati-hybrid “puppet races” (the
+“Leviathan Force”) was created. Between 9560 BC-9558 BC the Anunnaki
+invader race gained control of what remained of Atlantis through use of the
+NET and its mind-controlled Illuminati hybrid team. In 9558 BC they
+orchestrated a massive “Planetary House Cleaning, editing and re-writing” of
+our Human historical records, and have methodically orchestrated each
+stage of the Luciferian Covenant since, in preparation for the ﬁnal intended
+invasion of the 2000-2017 SAC. Sometimes truth is, indeed, much stranger
+than ﬁction.12 The Anunnaki would have us totally “under their spell” by
+now if the Zeta-Rigelian and Drakonian OWO forces, and the Illuminatihybrid Sleepers hadn’t been “giving them a run for their money” since
+         1943.	
+          This explanation of our history and present circumstances seems surreal
+and perhaps “fanciful.” Even if this information were not drawn directly from
+the CDT-Plate ancient history records (which it is), this scenario takes a
+turn toward the plausibly real when we begin to see how contemporary
+global 3-D events fit into the context of this advancing Illuminati OWO
+Master Plan. What do Sleepers, RITs, the NET, Intruder ET Technology
+and the Fallen Angelic ''Atlantian Conspiracy dram'' have to do with the
+9/11 Disaster? Everything. A review of recent history directly pertaining to
+these subjects, and a glimpse at the Fallen Angelic UIR Illuminati OWO
+Master Plan, will provide the context through which the direct connection
+between mass events such as the very real “9/ll Disaster” seemingly “unreal”
+Atlantian Conspiracy can be most easily understood. The recent historical
+context from which our present drama has emerged begins with the 1930s’
+Zeta Treaties and ends with the 1992 Pleiadian-Sirian Agreements and
+their final September 12, 2000, dissolution into the UIR Edict of War.
+              
+                
+             
+                          ________________________
+                             12.   The long and war-torn real history of this ongoing Amenti conquest is detailed in Forbidden Testaments of Revelation, forthcoming.
+                                
+                         353	
+                                            
+
+                                                          
+                                    
+                                        17               
+                            
+                                                                           
+                      
+                     
+                   
+                        
+                 The Phi-Ex Wormhole and
+                              Illuminati OWO
+                                           THE BERMUDA TRIANGLE, PHI-EX WORMHOLE,
+                                                 FALCON MATRIX AND WORLD WAR II
+          
+    Prior to the Anunnaki’s September 12, 2000, defection from the Treaty
+of Altair Emerald Covenant peace treaty, GA Races were hopeful that
+cooperation between Guardian races and the previously ill-intended
+Anunnaki would allow for a peaceful resolution to the Final Conﬂict drama
+that had been “brewing” since the 9560 BC Luciferian Covenant. Since
+November 1992, Emerald Covenant races have had to make concessions
+regarding the expedient release of data in order to maintain peaceful
+cooperation from Anunnaki collectives controlling the NET. In 1992, the
+GA knew that the interstellar political circumstances were extremely volatile
+as Earth approached the 2000-2017 Stellar Activation Cycle (SAC). They
+also knew, since the last failed SAC of 22,326 BC had ended in a 
+''stalemate'' between the competing agendas of the Drakonian/Reptilian,
+Anunnaki and Emerald Covenant races, that the 2000-2017 SAC would
+represent the climax of a long-term battle between the forces of freedom and
+those of dominion.	
+          		
+	
+	
+	
+	
+      The 1992 Pleiadian-Sirian Agreements arose out of necessity, if peace
+were to be maintained and cataclysm averted during the 2000-2017 SAC.
+The opportunity for these well-intended but ill-fated peace agreements arose
+from the actions of numerous Illuminati hybrid-human collectives since the
+early 1930s. As explained in Voyagers I, certain factions within several world
+governments had made covert treaties with the Drakonian Agenda Rigelian
+Zeta-Zephelium¹ races of Orion—and thus the ''Zeta Treaties'' and ''MJ12'' were born. Because of these intended “One World Order ”Drakonian/ 
+Reptilian dominion treaties, competing Anunnaki forces who, since 
+Atlantis, had been “nurturing” their Illuminati hybrid “Sleeper” races on
+ Earth for their intended 2000-2017 takeover, suddenly found that their longanticipated position of covert power had been compromised. Since formation 
+of the Anunnaki Luciferian Covenant of 9560 BC, Anunnaki legions had
+________________________	
+                                1.     insectoid/reptile
+                            354
+               
+                         
+

@@ -52,7 +52,14 @@ html_theme = 'furo'
 
 html_theme_options = {
     "light_logo": "logo-light.png",
-    "dark_logo": "logo-dark.png"
+    "dark_logo": "logo-dark.png",
+    "dark_css_variables": {
+        "color-brand-primary": "#7cd992",
+        "color-brand-content": "#9fe6ad",
+    },
 }
 
 html_static_path = ['_static']
+html_css_files = [
+    'custom.css',
+]
