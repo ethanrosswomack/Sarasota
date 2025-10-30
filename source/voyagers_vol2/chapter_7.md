@@ -1,603 +1,13 @@
-# Chapter 7
+# Chapter 7: Countdown to Amenti
 
-strand, and several hybrid race strains contain the full l2-strand DNA pack-
-age in dormant form. Individuals possessing these genetic codes have a per-
-sonal advantage in terms of ascension, if their codes are fully activated. ln
-order to be born into bodies with the advanced genetic lines these souls,
-(unless they are over-souls or avatars birthing directly from HU-3 and
-above), had to evolve through incarnations carrying the smaller gene-code
-imprint, in order to attain the frequencies within their consciousness that
-would allow them energetic compatibility with the larger gene-code body. In
-other words, humans with larger gene-code imprints have earned this privi-
-lege through their evolutionary progression, just as present-day souls within
-smaller gene-code bodies are in the process of evolving into larger gene-code
-bodies. All human souls are involved with the exact same process of evolving the
-genetic package and consciousness to higher-dimensional levels; some souls are just
-further along in this journey. 
-    Humans carrying the larger gene-code packages are a gift to other
-evolving souls, because, as they assemble their fifth and higher DNA strands,
-they pull higher-dimensional frequency into the Earth’s grid. Once this
-higher-dimensional frequency reaches a certain peak concentration within
-the Earth’s grid, the race morphogenetic field/Sphere of Amenti opens into
-the Earth’s core morphogenetic field, and the individual race morphogenetic
-fields open into the Sphere of Amenti collective. At this point within the
-energy mechanics, the Earth’s grid begins transmitting fifth-dimensional fre-
-quency directly into the bio-energetic fields of everyone on the planet. This
-infusion of fifth-dimensional frequency then sets the energetic imprint for the
-fifth DNA strand within all of the races, even those whose personal, organic
-morphogenetic imprint did not originally contain the fifth DNA strand.
-Because of the races with the larger gene-code packages, the entire species
-has the opportunity to rapidly evolve this larger DNA imprint and to trans-
-mute the limitations of the genetic codes with which they were born. 
-    The ability to fully transmute the personal genetic imprint is not always
-available on Earth. It is dependent upon whether or not enough of the larger
-gene-code races are present on the Earth, which is dependent upon whether
-or not the Earth’s energetic grid vibrates high enough to sustain a concentra-
-tion of beings with higher frequency genetic codes. If the Earth vibration is
-too low, due to imbalances in its bio-energetic systems, souls carrying higher
-frequency energies cannot birth onto the planet, for the frequencies con-
-tained within their bio-energetic fields would literally overload the Earth’s
-grid and cause it to collapse. The evolution of DNA within the races is dependent
-upon the vibrational evolution of the Earth. If the condition of the Earth’s bio-
-energetic field is poor, due to pollution and abuse of its natural environment
-and digression of the consciousness upon the planet, Earth cannot sustain a
-concentration of high-frequency soul essence. This also means that Earth
-cannot hold the UHF of the Sphere of Amenti at its core. If the Sphere of
-
-Ascension Mechanics 
-Amenti is not within the Earth’s core, its frequencies cannot be opened into
-the Earth’s grid, and thus the bio-energetic fields of the races will not receive
-an infusion of fifth-dimensional frequency. It is the infusion of fifth-dimen-
-sional frequency that allows the imprint for the fifth DNA strand to manifest
-within all races. Thus in order for the races to have the opportunity for accel-
-eration of evolution, Earth must be able to sustain a concentration of souls
-with higher frequency gene codes and be able to hold the Sphere of Amenti
-at its core. The Earth grid must be in balance for this evolutionary accelera-
-tion of the races to occur. 
-                                       EARTH TIME CYCLES 
-                                            Morphogenetic Waves 
-    There are only certain points within each 26,556-year cycle of time
-that the Earth grid reaches a vibration rate high enough to accommodate an
-infusion of fifth-dimensional energy. It is during these times that Earth can
-sustain larger concentrations of higher-frequency souls, and thus it is only
-during these periods that the Sphere of Amenti can be fully opened within
-the Earth core, to allow assembly of the fifth DNA strand for all of the races.
-There are other periods, such as during the time of Pharaoh Akhenaton,
-when the Sphere can be returned to Earth core and the Halls of Amenti
-opened. But the full frequency patterns of the Sphere of Amenti can be trans-
-mitted through Earth’s grid only during the periods of dimensional blending
-that occur four times in each 26,556-year cycle. Akhenaton was able to open
-the Halls of Amenti and orchestrate ascension only for those individuals who
-had the fifth DNA strand imprint, but he could not release the Sphere of
-Amenti directly into the D-2 Earth core morphogenetic field to create mass
-DNA assembly and ascension. During the four periods in a 26,556-year cycle
-when dimensional blending occurs, certain energetic conditions take place
-within the morphogenetic fields of the planet that do not occur at any other
-time. During these periods, the energetic grid of Earth fuses with the ener-
-getic grid of its double within the parallel universe, or with its counterpart’s
-parallel double from the next Harmonic Universe up. In the first 4,426-year
-cycle of the 26,556-year cycle, Earth fuses twice with its own double in HU-
-1, once at the half-point in the 4,426-year period and once at the end of that
-period. These two time periods are called Primary Conjunction Points. In
-the last 4,426-year cycle of the 26,556-year cycle Earth fuses twice with its
-HU-2 counterpart double, once at the half-point and once at the end of that
-4,426-year period. The two time periods when Earth fuses with its counter-
-part double are called Primary Coordinate Points. Tara is Earth’s HU-2
-counterpart, so, during the Primary Coordinate Points, Earth’s grid fuses with
-the energetic grid of parallel Tara. The two 4,426-year cycles at the begin-
-ning and end of a 26,556-year cycle, in which Primary Conjunction Points
-
-                                                                                                                Earth Time Cycles
-and Primary Coordinate Points occur, are collectively referred to as Ascen-
-sion Cycles. Ascension cycles occur only twice within a 26,556-year Har-
-monic Time Cycle. Earth fuses with its double twice within the first 4,426
-years after entering a 26,556-year Harmonic Time Cycle. Earth fuses twice
-with its counterpart double parallel Tara, once after being in the 26,556-year
-cycle for 24,343 years (half-cycle Coordinate Point in the second ascension
-cycle) and once after completing the full 26,556 years of the Harmonic Time
-Cycle, at the end of the second ascension cycle. 
-    When Earth encounters its first Coordinate Point within the second
-Ascension Cycle, all of its particles that are composed of the overtone fre-
-quencies of dimensions one, two and three merge and fuse with the anti-par-
-ticles of parallel Tara that are composed of the base-tone frequencies of
-dimensions four, five and six within the parallel dimensional scale of HU-2.
-As Earth’s particles fuse with Tara’s anti-particles, both particles and anti-par-
-ticles enter hyper-space; they momentarily return to their higher-dimem
-sional morphogenetic fields. Earth’s D-1 overtone particles return to their D-
-15 morphogenetic field, the D-2 particles return to D-14 and D-3 particles
-return to D-13. Tara’s D-4 anti-particles return to their morphogenetic fields
-in D-12, the D-5 anti-particles return to D-11 and the D-6 anti-particles
-return to D-10. 
-    When the particles and anti-particles again leave the morphogenetic
-field, they reverse their spin and polarity, shift their angle of rotation by 45°,
-and then return to the frequency bands of one Harmonic up. D-1 particles re-
-appear as anti-particles within the fourth-dimensional frequency bands, D-2
-particles re-appear as anti-particles within the fifth-dimensional frequency
-bands and D-3 particles re-appear as anti-particles within the D-6 frequency
-bands. Earth’s particles shift from HU-1 into Tara in HU-2. Tara’s anti-parti-
-cles also reverse spin and polarity, and re-appear one Harmonic Universe up.
-Tara’s D-4 anti-particles reappear as particles in D-7, D-5 anti-particles
-become non-matter-based particles in D-8 and D-6 anti-particles reappear as
-non-matter-based particles in D-9. Tara’s anti-particles shift from HU-2 into
-Gaia’s etheric matter body in HU-3 This transformation of particles consti-
-tutes a full shift of Earth’s overtone particles from the time cycles of the parti-
-cle universe in Harmonic Universe 1, into the time cycles in the parallel/
-anti-particle universe in Harmonic Universe 2. 
-    Tara’s base-tone anti-particles simultaneously shift from the time cycles
-of the anti-particle universe in HU-2, into the time cycles of the etheric par-
-ticle universe in HU-3. This is the process by which planetary bodies (and
-the life-forms residing upon them) evolve their matter particles and anti-par-
-ticles upward through the l5-dimensional scale, from dense matter solidity to
-pure, non-matter-based conscious energy substance. Ascension through the
-time cycles represents the progressive acceleration of particle and anti-parti-
-cle pulsation speeds, created through the systematic merging of particles and
-
- Ascension Mechanics 
-anti-particles, from the lowest dimensions to the highest, within the 15-
-dimensional scale. 
-    The progressive release of particles and anti-particles into the morpho-
-genetic field at the Primary Coordinate Points in the second ascension cycle
-constitutes the release of a particle/anti-particle wave of energy. This parti-
-cle/anti-particle energy wave is called a morphogenetic wave. The morpho-
-genetic wave represents the energy released as particles and anti-particles
-fuse, exploded into the morphogenetic field/hyper-space and undergo fission
-and replication, through which they re-appear in expanded form within the
-dimensional frequency fields of the next highest Harmonic Universe.
-    At the beginning of a 4,426-year second ascension cycle, the Earth draws
-patterns of frequency into its morphogenetic field at Earth’s D-2 core from the
-dimensional Unified Field of energy. When Earth approaches the half-point in
-the cycle, the core morphogenetic field has expanded to its full capacity of
-energy holding. About 15 to 20 years before the half-cycle point the Earth’s
-energetic grid begins to interact with that of Tara, just as the Earth’s core mor-
-phogenetic field reaches full energy-holding capacity and explodes, releasing a
-rush of energy through the Earth’s grid. As this energy is released, the particles
-carrying overtone frequencies begin merging with Tara’s anti-particles carrying
-base-tone frequencies. As Earth’s particles and Tara’s anti-particles progres-
-sively merge, they enter hyper-space and transmute into their respective
-dimensional morphogenetic fields. 
-    This particle/anti-particle transmutation progressively accelerates, as the
-energetic grids of Earth and Tara come into alignment, transmuting more and
-more overtone particles and base-tone anti-particles into the morphogenetic
-fields. The progressive transmutation of particles and anti-particles creates a
-building wave of energy moving from Earth and Tara, into the higher-dimen-
-sional morphogenetic fields. And like the undertow of a tide, this energy wave
-creates a backﬂow energy wave, from the morphogenetic fields, through which
-Earth’s overtone particles re-manifest as Tara’s base-tone anti-particles and
-Tara’s base-tone anti-particles re-manifest as Gaia’s particles. 
-      The height of the process occurs when the grids of Earth and Tara come
-into full alignment at the half-point in the cycle, at which time the morpho-
-genetic wave fully crests, and the grids of Earth and Tara begin pulling away
-from each other. The crest of the morphogenetic wave begins about five years
-before, and extends up to the half-cycle point. During the five-year crest of
-the morphogenetic wave, all of Earth’s overtone particles, and Tara’s base-
-tone anti-particles, fully transmute into the morphogenetic fields. As Earth’s
-overtone particles become progressively suspended in hyper-space and the
-dimensional base-tone frequencies left within the Earth’s grid begin to blend
-with the overtone anti-particles in Tara's grid, an Harmonic Resonant Tone
-is formed. Through the Harmonic Resonant Tone the spin and polarity of
-
-                                                                                         Earth Time Cycles
-Earth’s base-tone particles and Tara’s overtone anti-particles temporarily
-reverse, and their angle of rotation shifts 45°. When the polarity of Earth’s
-particle base is reversed, Earth’s magnetic poles spin, reverse and shift 45° in
-their angle of rotation, and the Earth enters the faster moving parallel time
-cycle in the HU-1 anti-particle universe. As this occurs during the five-year
-cresting of the morphogenetic wave, Tara’s anti-particles are also going
-through a pole reversal and time cycle shift. The electrical fields in Tara’s
-grid spin, reverse and shift 45°, and anti-particle Tara shifts into the parallel
-time cycle in the HU-2 particle universe.  
-        The particle pulsation rate of Earth’s parallel, anti-particle time cycle in
-HU-1 is twice the speed of the same cycle in the HU-1 particle universe. The
-particle pulsation rate of Tara’s HU-2 particle time cycle is also twice the
-speed of Earth’s particle time cycle. When anti-particle Tara enters its paral-
-lel particle time cycle in HU-2, and particle Earth enters its parallel anti-par-
-ticle time cycle in HU-1, the two planetary grids are entering the same
-particle pulsation rate and thus the same time cycle. Base-tone particle Earth
-and overtone anti-particle Tara temporarily merge in the dimensional fre-
-quency bands of D-4. As long as the electromagnetic fields of both planets
-are in balance, this simultaneous 45° shift in angular rotation and reversal of
-polarity in particles and anti-particles will not cause a shift of the physical
-Earth on its axis. The electromagnetic fields of each planet keep the fields of
-the other in balance. Some ﬂuctuation in Earth’s magnetism may be detected,
-and some tectonic movement may occur in areas that are not fully energetic-
-cally balanced, but the basic structure of the Earth’s body will remain intact.
-If the grids are not balanced, however, a full 45° tilt of Earth’s rotation upon
-its axis could result, which would create massive Earth changes. It is very
-important that the Earth’s bio-energetic structure and electromagnetic grid are bal-
-anced during this ﬁve-year period. 
-    In this five-year transition during the crest of the morphogenetic wave,
-the magnetic grid of particle Earth becomes electrical, and the electrical grid
-of anti-particle Tara becomes magnetic. The two planetary grids merge and
-some of the land mass contours of Tara emerge on Earth as etheric overtone
-structures. When particle Earth returns to its particle time cycle in HU-1,
-these land masses will manifest first on the anti-particle Earth, and by the
-close of the full ascension cycle 2,213 years later, these new land configure-
-tions will manifest physically on the particle Earth. (This is what is meant by
-the New Age concept of literal “Atlantis Rising”. These lands of Tara will
-indeed rise up on Earth, but normally they will do so progressively over a
-period of 2,213 years, not all at once.) 
-    At the height of the morphogenetic wave crest, during the half-point
-in the cycle, there is an approximately three-day period when Earth’s mag-
-netic fields temporarily collapse as the spin of particles and anti-particles
-slows, polarity again reverses, and the angle of particle rotation shifts back
-
-Ascension Mechanics 
-45° to its original position. Within that three-day period, particle Earth
-returns to its HU-1 time cycle in the particle universe, and anti-particle Tara
-returns to its HU-2 time cycle in the HU-2 anti-particle universe. There will
-be difficulty with the functioning of earthly electrical and magnetic devices
-during this period, and the human mind and body will experience an exces-
-sive feeling of tension, pressure and fatigue. Strange atmospheric anomalies
-may occur, including a prolonged period of darkness and daylight, and the
-possible appearance of a double moon, depending upon the balance of the
-Earth’s grid. These symptoms will release as soon as the transfer of time cycles
-is completed, but during the three-day period tremendous stress will be
-placed upon the human’s body, mind and emotions. 
-    Prior to this three-day shifting period, during the five-year crest of the
-morphogenetic wave, electrical energy is magnetically pulled from particle
-Earth’s core into anti-particle Tara’s core and the fifth-dimensional frequen-
-cies of Tara’s core blend into Earth’s D-2 core morphogenetic field. At this
-time, the fastest-vibrating base-tone particles of Earth—those that vibrate to
-the particle pulsation rate of the fifth-dimensional frequencies—are trans-
-ferred from particle Earth’s D-2 core morphogenetic field into anti-particle
-Tara’s D-5 morphogenetic field. These mechanics of energy create a ﬂuctua-
-tion within the electromagnetic fields of both Tara and Earth, which operate
-as a warp in space-time. This naturally occurring time warp serves as a portal
-passage between Earth and Tara, which opens at the beginning of the five-
-year period, reaches its height of activity during the half-point of the ascen-
-sion cycle five years later, then progressively closes from the half-point to its
-full closing five years following the half-point. 
-                                 THE HOLOGRAPHIC BEAM  
-                 The Holographic Beam, the Photon Belt and the Pleiades 
-    During the course of this 10-year period, five years prior to and after the
-half-point, fifth through ninth-dimensional frequencies are progressively
-infused into Earth’s grid, then into the bio-energetic fields of all life-forms on
-Earth. The infusion of frequency from the higher-dimensional fields and
-Tara’s core in D-5 into Earth's core in D-2 follows a natural path of interdi-
-mensional energy circulation, through which HU-1 through HU-5 are con-
-nected. Each Harmonic Universe has a Harmonic Time Cycle, such as that
-of HU-1, which is 26,556 years long. All of the Harmonic Time Cycles are
-synchronized through the particle pulsation rates within each of the 15
-dimensions. When Earth enters the half-point in its second ascension cycle,
-its grid fuses with the grid of anti-particle Tara precisely because these Har-
-monic Time Cycles are synchronized. When Earth reaches its half-point, not
-only does a warp in space-time occur within HU-1, it occurs all the way up
-through the five Harmonic Universes. A time-warp portal opens all the way
-
-                                                                                   The Holographic Beam
-up through the 15-dimensional scale. This opening of interdimensional por-
-tals, which creates the morphogenetic wave, allows a beam of UHF energy to
-pass from the Meta-galactic Core in D-8, through all of the Harmonic Uni-
-verses. We refer to this as the Holographic Beam, for it is the primary spiral
-of transmitting energy that feeds and sustains all of the dimensional systems
-and the holograms of matter which take place in those systems. The path of
-the Holographic Beam follows a particular route into the time cycles of HU-
-1. lt spirals down through various planetary cores from HU-2 and HU-3,
-through the planetary core of Alcyone in the Pleiades, through various other
-planets and then enters your solar system through the core of the sun. From
-there the Holographic Beam moves outward and through the cores of the
-planets in your solar system. As the planets move within the cycles of their
-orbits, at certain points they align with the sun in a particular way, and pass
-through the projection of this Holographic Beam. 
-    The Holographic Beam is released when the portals open during the
-half-point of the ascension cycle and again at the close of the ascension cycle
-2213 years later. The Holographic Beam that was released during the ascen~
-sion cycle at the end of the previous 26,556-year period leaves its trace
-within the HU-1 galaxy. The beam from the past cycle will appear as an area
-of concentrated photon activity surrounding the planet Alcyone, through
-which the beam entered HU-1. The Holographic Beam follows a path
-through the Pleiades to Earth because Earth’s sun is actually the eighth star in
-the Pleiadian system. As discussed in earlier chapters, during the cataclysm
-550 million years ago, fragments of Tara's morphogenetic field were pulled
-through the center of this Pleiadian star. The planets of Earth's solar system,
-which are fragments of Tara, then re-formed around this star in HU-1.
-(Recent speculation in the private scientific communities suggests that our
-solar system is a binary solar system having two suns. Alcyone, the central sun
-of the Pleiadian star system is actually the primary sun of our solar system. Our
-sun is a star within the Pleiadian solar system.) The area of photon energy
-around the Pleiades has been referred to as the Photon Belt, which was dis-
-covered by Earth scientists in 1961 through mechanical observation of that
-star system. (Photons are created through the fusion of multidimensional par-
-ticles and anti-particles, so the Photon Belt is the residual energy left over
-from the last morphogenetic wave. That energy is replenished every 26,556
-years as the Holographic Beam projects through Alcyone twice during each
-second ascension cycle.) 
-     As Earth moves through its next 26,566-year cycle following the release
-of the last Holographic Beam, completing a full round of its Harmonic Time
-cycle, it will appear as though the Photon Belt is moving closer to Earth and
-its solar system. They are actually moving toward each other, as the Pleiades
-and the Earth’s solar system travel in their orbits within the HU-1 and HU-2
-Harmonic Time cycles. When Earth completes its half-point in the second
-
-Ascension Mechanics 
-ascension cycle, its overtone particles will pass into the Photon Belt, just as a
-new release of the Holographic Beam takes place. The new release of the
-Holographic Beam creates the morphogenetic wave that allows portions of
-Earth and Tara to temporarily merge within the fourth dimension. The infu-
-sion of Earth’s grid with D-5 through D-9 frequency occurs through the Holo-
-graphic Beam. When that energy infusion begins, five years prior to the half-
-point, Earth begins passing into the Holographic Beam as it merges with Tara
-and enters the D-4 time cycle. As this occurs, Earth’s overtone particles move
-into the Photon Belt. While particles and anti-particles reverse polarity and
-spin, and the angular rotation of particles shifts 45°, the morphogenetic fields
-of D-2 Earth’s core and D-5 Tara’s core come into direct alignment with the
-Holographic Beam. The beam allows the D-2 and D-5 planetary core mor-
-phogenetic fields to open into each other, which creates an infusion of D-5
-frequency into Earth’s grid. 
-    At the height of the morphogenetic wave crest, at the half-point in the
-cycle, the Holographic Beam is aligned directly through the planetary cores
-of Earth, Tara and Gaia for about three days, and the grids of Earth and Tara
-are in complete alignment. The Holographic Beam runs from the D-8 Meta-
-Galactic Core, upward into the D-9 Galactic Core, then downward, directly
-through the cores of Gaia in HU-3, Tara in HU-2 and Earth in HU-1. This
-creates an infusion of D-8 and D-9 frequency through the three planetary
-grids, and allows an ascension passage from Earth, through Tara and into
-Gaia and beyond, to open during the three-day period. The morphogenetic
-fields of each planet absorb as much UHF energy from the beam as they can
-hold, at which point the morphogenetic wave reaches its full crest and parti-
-cle/anti-particle spin begins to slow in preparation for Earth’s return to its
-HU-1 time cycle. Particles and anti-particles reverse spin and polarity, and
-their angular rotation shifts 45° back to its original position, as Earth begins
-to shift out of direct alignment with the Holographic Beam and Tara’s grid.
-After a three-day period Earth returns to its HU-1 time cycle and the time
-warp portal between D-2 and D-5 begins its five-year closing period, and the
-portals between D-9, D-8 and D-7 close. The grids of Earth and Tara begin
-their five-year period of moving out of alignment with each other, and Earth’s
-overtone particles remain within the Photon Belt. Normally Earth’s overtone
-particles would remain within the Photon Belt for 2213 years, until the next
-morphogenetic wave, when the base-tone particles would also enter the Pho-
-ton Belt and Earth would shift fully into the HU-2, D-4 time cycle to begin
-another 26,556-year Harmonic Time cycle. 
-
-                                                   DNA and the Halls of Amenti
-                           DNA AND THE HALLS OF AMENTI 
-                 DNA, the Morphogenetic Wave, the Halls of Amenti, 
-                                            and the Doreadeshi 
-    During the period of five years prior to and five years after the half-
-cycle point, the imprint of the fifth DNA strand is made available to all of
-the races, and the opportunity for ascension to Tara is made available to all
-who can fully activate that strand before the close of the dimensional time
-warp portal five years following the half-point. Ideally, the Sphere of Amenti
-race morphogenetic field and the Blue Flame Staff of Amenti, Earth’s portion
-of Tara’s morphogenetic field, will be placed within this time-warp portal in
-Earth’s D-2 core during the half-point in the second ascension cycle. During
-this 10-year period, the Halls of Amenti portal passages to Tara, and to other
-time fields of Earth in HU-1, become open to the masses. In order for the
-morphogenetic wave, mass ascension and evolutionary leap in time to occur,
-the Sphere of Amenti must be held and opened within the D-2 Earth core
-morphogenetic field, and the Blue Flame must be embodied within 8% of
-Earth’s populations. 
-    Individuals whose body, bio-energetic field and consciousness pulsate
-at the rate of fifth-dimensional frequency will experientially perceive either
-direct, bodily transmutation through a time portal passage from Earth to Tara,
-or a time travel transport to Tara via interdimensional spacecraft (arranged
-by guardian groups to assist those who cannot quite make it through the
-dimensional transmutation of the portals). They will end up on Tara in a
-space-time coordinate about 5,532.5 years in the future from Earth’s original
-space-time position. At the end of the five-year period following the crest of
-the morphogenetic wave, people who have not fully assembled the fifth DNA
-strand will find that the assembled portions of that strand begin to disassem-
-ble. 
-    When Earth returns to its time cycle in the particle universe, the ener-
-getic imprint of the fifth DNA strand will remain in their bio-energetic field,
-and will manifest within their anti-particle double on parallel Earth, but the
-fifth strand will no longer manifest into the person’s operational gene code.
-The Halls of Amenti will no longer be passable for such individuals until the
-fifth strand slowly assembles over the course of the next several incarnational
-cycles within HU-1. These individuals will be stuck in the HU-1 incarna-
-tional cycles until they can build the fifth strand or until the next morphoge-
-netic wave period 2213 years later, whichever comes first. The Halls of
-Amenti will remain passable only to those who organically possessed the fifth
-DNA strand imprint. The 10-year period, starting five years before and end-
-ing five years after the half-cycle point, allows the races the opportunity for
-an evolutionary leap in time. This opportunity occurs only twice in a 26,556-
-year cycle, during the second ascension cycle. During this period many
-
-      Ascension Mechanics 
-human souls, who cannot fully assemble the fifth strand while embodied, but
-have assembled the fourth strand, choose to drop their physical bodies, so
-they may rapidly assemble D-5 frequency into their morphogenetic field from
-D-4. Such individuals will ascend to Tara as soul essence from D-4, so they do
-not have to continue incarnational cycles in HU-l. There are frequently
-localized disaster events during these periods through which masses of people
-die and leave their bodies at one time. The events may appear tragic from an
-earthly perspective, but from the soul perspective participation in these events is
-planned in order to catch the morphogenetic wave and ascend. 
-    During the five-year period prior to the half-point in the cycle, when
-Earth and Tara shift into the fourth-dimensional frequency bands, the part of
-Earth’s particles that vibrate/pulsate at D-5 speed, begin to fully transmute
-and appear on Tara, within the time cycles of HU-2. The highest vibrating
-particles enter hyper-space and re-appear in the future. The portions of
-Earth’s particles that pulsate the slowest fall further in vibration at the release
-of the higher pulsating particles and drop into the Unified Field of the base-
-tone frequency patterns of D-1. The slowest vibrating particles break apart
-their form construction and re-appear as part of the Earth’s particle-base in
-the past, at a time period in the beginning of the present 26,556-year cycle.
-The particles pulsating at a middle range rate of speed enter the faster time
-cycle of D-4 for five years, then return to their original time cycle in HU-1 to
-complete the remaining 2213 years of the ascension cycle. The mid-range
-vibration particles appear within the present time continuum in the parallel
-anti-particle universe (which is the same time continuum as the D-4 cycle in
-the particle universe), then after five years return to their original present D-
-3 HU-1 time continuum. 
-    What this process constitutes in terms of the human perspective, is the
-opening up of three tracks of time, or three time continua, during the 10-year
-period surrounding the half-point within the second ascension cycle. Human
-beings and their consciousness are made up of energy particles. As Earth under-
-goes this particle separation, transmutation and dimensional transfer, the ener-
-getic structures of human biology and consciousness also undergo this
-transformation via the makeup of their particle content. Humans possessing
-the slowest vibration rates would find their consciousness fragmenting into the
-distant past and their body form returning to the unified field of the first dimen-
-sion. Not to worry, however, as the collective race consciousness now vibrates
-high enough, thanks to the efforts of visiting guardian races, so humans would
-not experience this evolutionary digression into D-1 in the event of a morpho-
-genetic wave. 
-      Humans possessing mid-range vibration rates, which is presently the
-majority of the population, would normally find themselves within the present
-time continuum, where things look the same, but this continuum, in actuality,
-
-                                                                            DNA and the Halls of Amenti
-would be taking place within the D-3 time cycle of the parallel universe. The
-D-3 time cycle of parallel anti-particle Earth is, in reality, the same time cycle
-as the fourth dimension cycle in the particle universe. Thus humans possessing
-mid-range vibrational rates would find themselves on Earth entering the time
-cycle of the fourth dimension for a period of five years. Humans who have the
-highest vibration rates will enter hyper-space then re-appear on Earth within
-the next Harmonic Universe up, HU-2, which constitutes a position in time
-5532.5 years in the future. Humans with the highest vibration rates will find
-themselves traveling through time, experientially either by portal passage or via
-spacecraft, to the future parallel Earth of HU-2. The future Earth and its paral-
-lel in HU-2 represent the planet Tara and its double, at a point in time 225 mil-
-lion years in the future from the time of Tara’s cataclysm.¹ 
-    Normally, within five years following the half-point morphogenetic
-wave crest, the overtone particles of Earth will have entered the HU-2 time
-cycles. During the morphogenetic wave 2213 years in the future, at the natu-
-ral close of the ascension cycle, the remaining base-tone particles of Earth
-would transmute in the same manner. Earth would shift completely out of
-HU-1 and fully enter the D-4 time cycle, the first 4,426-year cycle of the
-26,556-year cycle in HU-2. This natural close of an ascension cycle is called
-the Doreadeshi. Earth’s natural shift from the HU-1 to the HU-2 time cycles
-would normally occur in two stages. The overtone particles of Earth shift in
-the morphogenetic wave at the half-cycle point, and the base-tone particles
-of Earth shift 2213 years later, in the second morphogenetic wave at the close
-of the cycle. At that point the full particle base of Earth would be stationed
-in HU-2, having evolved through dimensional ascension, out of HU-1. The
-particles composed of overtone frequencies undergo this transformation half-
-way through the ascension cycle, and the particles composed of base-tone fre-
-quencies follow suit, 2213 years later, at the end of the ascension cycle.
-                          The Sphere of Amenti, Halls of Amenti, 
-                             the Blue Flame and Human Evolution 
-    The complex processes of particle mechanics, morphogenetic waves
-and time cycles that we have just outlined, represent the natural hidden
-dynamics of planetary dimensional ascension and the evolution of conscious-
-ness through time. An essential part of this process is the relationship
-between these multidimensional energy mechanics and the operation of the
-Sphere of Amenti. For the Halls of Amenti to open to the races during the
-1.   Cataclysm occurred 550 million years ago from the perspective of  HU-1 Earth time. HU-
-2 time cycles are the same amount of time in terms of evolutionary distance covered, but
-they move twice as fast. D-4 time cycles cover the same block of time in half the number
-of years it would take to complete that block of time in the D-3 cycle. Thus 550 million
-years on Earth in the D-3 time cycle represents 225 million years on Tara in the D-4 time
-       cycle.  
-
-Ascension Mechanics 
-10-year time warp/dimensional blend period surrounding the half-cycle
-point, the Earth grid vibration must raise high enough to spark/open the Arc
-of the Covenant. The Sphere of Amenti must descend through the Arc into
-Earth’s D-2 core, and the Sphere must have its 12-year period of disbursing its
-frequencies through the Earth grid, before the grids of Earth and Tara begin
-to intersect five years prior to the half-point. The Blue Flame Staff of
-Amenti, Earth’s portion of Tara’s D-5 morphogenetic field, allows Earth’s grid
-to merge with Tara’s in D-4. If the Blue Flame is not embodied on Earth when the
-grids begin to intersect, the infusion of D-5 energy from Tara’s grid and the Holo-
-graphic Beam cannot run through Earth’s grid during the crest of the morphogenetic
-wave. In such a case the Earth’s grid cannot link with Tara’s to receive the
-energy infusion, so Tara’s grid will link with whatever planetary core the Blue
-Flame is stored within. The fifth-dimensional energy infusion would then
-pass down from that planet, through the energy spiral of the Holographic
-Beam and remain within the overtone particles of Earth, unable to pass into
-Earth’s base-tone particles and grid. In this case Earth and the races would be
-trapped for another 26,556 years within HU-1, the mass assembly of the fifth
-DNA strand would not occur, and the majority of Earth’s people would have
-to reincarnate into HU-1 until the next morphogenetic wave. This is only
-the beginning of the problems that would occur if the Blue Flame were not
-embodied on Earth during the time of grid intersection. 
-    If the Earth grid could not link with Tara’s, the Earth grid speed would
-slow in vibration due to the excessive particle content that it could not
-release through the first morphogenetic wave. After 2,213 years had passed
-and the final morphogenetic wave of the cycle was due, the Earth grid vibra-
-tion would be too low to hold the Sphere of Amenti and the Blue Flame, so
-the grids of Earth and Tara again would be unable to merge. At the close of
-the ascension cycle Earth’s excessive particle content and density would
-make its grid speed and particle pulsation rate slow to the speed of the D-l
-frequency bands. Earth would plunge from the sixth, and final, D-3 time con-
-tinuum cycle in HU-1, back into the First D-1 time continuum cycle, of HU-
-1. From this D-1 position, Earth would have to evolve through another
-26,556-year Harmonic Time cycle in HU-1, before having another opportu-
-nity to ascend to HU-2. 
-    As you can perhaps now see, it is very important that the Sphere of
-Amenti is appropriately placed in Earth’s core, and the Blue Flame success-
-fully embodies, during the half-point in the second ascension cycle. If this
-process does not occur, the Earth becomes trapped in HU-1 time. This digres-
-sion and repetition of HU-1 time cycles has occurred seven times in the past
-of Earth’s evolution. Earth is presently within its eighth repetition of the
-26,556-year Harmonic Time cycle in HU-1. Earth’s evolution has been stunted
-within the  HU-1 time cycle for  nearly 212,448 years. Though some progress was
-made in dimensional ascension at several different points in time, Earth and
-
-                                                                                DNA and the Halls of Amenti
-the human races repeatedly ended up returning to the start of the 26,556-year
-HU-l cycle. 
-    Since 840,000 years ago, when the guardian races from HU-2 and above
-created the Arc of the Covenant, they have watched, waited, nurtured,
-guided, assisted and prayed (yes, prayed!) for the time to come when the lost
-souls of Tara could return home from their long and troubled evolutionary
-journey on Earth. They did this because your race was loved. They have waited
-patiently for the distant time when Earth, and the 11 other missing fragments
-of Tara, could be returned into Tara’s energetic body, so Tara herself could
-ascend. Great wars have been fought and great catastrophes endured to
-secure your species’ right to evolve, and to uphold and protect the Covenant
-of Palaidor, through which the integrity of your species’ evolutionary blue-
-print is ensured. 
-    Can you understand how important the next morphogenetic wave will
-be in relation to the evolution of Earth and the souls who continue to repeat-
-edly incarnate there? The next morphogenetic wave in your present 26,556-
-year cycle is your potential ticket to freedom, after being imprisoned within
-the illusion of HU-1 matter for over 200,000 years. If you are unable to utilize
-that potential, you will sentence yourselves to yet another 26,556 years in the
-prison of your Earth school, if your planet could survive long enough to com-
-plete its next cycle. 
-We    are    taking    great    pains    to    explain    the   dynamics  of    morphogenetic  waves 
-to you because you are presently within the second ascension cycle of your
-                                 26,566-year Harmonic Time Cycle. 
-                 The ascension cycle began 2194 years ago in 196 BC. 
-                 The half-point in your current time cycle is 2017 AD. 
-                                           You have 19 years before 
-             the first morphogenetic wave of this cycle completes its crest. 
-                                   Do you think you will be ready? 
-                             If the Guardian races had not intervened, 
-                         your planet would not have made it this far.
-
-                   Countdown to Amenti 
-     Several events have occurred during the last 98 years of your evolution
-that could have drastically altered the course of your history. One such event
-took place in the early 1900, which was repeated again in 1982. During
-both of these periods large asteroid masses came into alignment with Earth’s
-orbit, and if they had not been destroyed or diverted in deep space by interdi-
-mensional Guardian ﬂeets, before they entered your solar system, conditions
-supportive of life on Earth would have been destroyed. Because you were so
-close to the coming 2017 AD morphogenetic wave, and the potentials of
-ascension it holds, numerous Guardian races petitioned the Azurite Council,
-Elohim and Ra Confederacy on your behalf, to allow non-direct intervention
-in Earth’s affairs. Permission was granted. On the first occasion in 1906, the
-asteroid was destroyed, and only portions of its debris bombarded Earth’s sur-
-face. On the second occasion, in 1982, the asteroid was broken into two
-pieces and its path was diverted using electromagnetic, Keylontic technolo-
-gies. The asteroids are the least of the problems you have encountered within
-your current century. 
-                                              RECENT HISTORY
-                           The Original Zeta Agenda and the Zeta Seal 
-                                                  1926 AD -6643 AD 
-     In 1926 time traveling members of the Zeta/Zephelium races, originally
-from the planet Apaxein-Lau began interacting with private factions within
-several Earth governments. The Zeta agenda is discussed in earlier chapters.
-In recent years the Zetas conducted several projects that had a highly detri-
-mental effect upon the vibration rate of Earth’s grid and which damaged
-Earth’s bio-energetic fields. If  the Sirian Council had not intervened, Earth’s pop-
-ulations would have been decimated between 1972 and 1974, and Earth would
-have experienced a pole shift during the mid-1980s. The Zetas and their Dracos
-(Drakon-human hybrid) and Rutilia (Zeta-Dracos hybrid) accomplices desire
-
+                                                                                        
                                                                                                                Recent History
 to take over Earth’s territory. The Dracos, being created as a hybrid race of
 Drakonian and human genetic structure about one million years ago on
-Earth, feel dominion of Earth is their birthright, as Earth is their planet of ori-
-gin. The Dracos are Earthlings who were banned from their home planet
+Earth, feel dominion of Earth is their birthright, as Earth is their planet of origin. The Dracos are Earthlings who were banned from their home planet
 Earth, and exiled to the Orion star system one million years ago. The Zeta/
 Zephelium races were involved with Atlantean and Atlanian Earth cultures,
-and for a time colonized Mars. Both groups share a common interest in pos-
-sessing Earth to facilitate the continuation of their races’ evolution. 
+and for a time colonized Mars. Both groups share a common interest in possessing Earth to facilitate the continuation of their races’ evolution.	
     The Zetas’ original plan was born out of their need to retain control of
 a future human society. In the future of Earth, between 4230 AD and 6443
 AD, the Zeta/Dracos alliance has successfully overtaken the human world
@@ -608,15 +18,12 @@ Tara, following completion of its present cycle in 4230 AD. The Sixth Root
 Race Muvarians and descendants of the present human races live there now
 in a Zeta-ruled society, controlled by Frequency Fence and Holographic
 Insert technology. These events are taking place now, in that future time-space
-coordinate. In order for the Zetas to retain control over that society, they have trav-
-eled backward through time to Earth’s present. Humanity’s upcoming opportu-
-nity for accelerated evolution between 2012-2017 AD poses a direct threat
+coordinate. In order for the Zetas to retain control over that society, they have traveled backward through time to Earth’s present. Humanity’s upcoming opportunity for accelerated evolution between 2012-2017 AD poses a direct threat
 to the Zetas’ ability to retain control of that society. If 8% of present day
 humans are able to successfully take this evolutionary leap, the humans of
 4230 AD-6443 AD will be set free from the Zeta Collective Mind Frequency
-Fence through which they are presently controlled in their space-time coor-
-dinate. The Zetas do not want this to occur. 
-    The Zetas’ original Earth agenda involved first creating Zeta-human
+Fence through which they are presently controlled in their space-time coordinate. The Zetas do not want this to occur.	
+    The Zetas’ original Earth agenda involved ﬁrst creating Zeta-human
 hybrid strains that could comfortably thrive on Earth. In the second phase of
 their plan, they intended to make sure that the grids of Earth and Tara did
 not merge during the 2012-2017 half-cycle point. By stopping this event,
@@ -625,217 +32,196 @@ human populations could not accelerate their evolution and activate their
 fifth DNA strand. If the Zetas could keep Earth in the HU-1 time band and
 gain control of the planet here, they would insure the continuation of their
 future stronghold on D-4 Tara-Earth. If Earth successfully merged with Tara
-between 2012-2017, and the morphogenetic wave allowed fifth-dimensional
+between 2012-2017, and the morphogenetic wave allowed ﬁfth-dimensional
 frequency to move through Earth’s grid, the Frequency Fence through which
-the D-4 Zeta controlled their human populations would be released. If ascen-
-sion of Earth humans could be stopped by 2012, the Zetas could retain con-
-trol of their D-4 holding. If humans began ascension to the D-4 time cycles
+the D-4 Zeta controlled their human populations would be released. If ascension of Earth humans could be stopped by 2012, the Zetas could retain control of their D-4 holding. If humans began ascension to the D-4 time cycles
 of Tara, their assembled fifth-strand DNA imprint would correct the D-4
 DNA mutation the Zetas used to keep their humans under the Frequency
 Fence. Humans in the D-4 time cycle would be set free if 8% of the D-3
+123	
+                                                                                                             
 
-        Countdown to Amenti 
-humans of Earth activated their fifth DNA strand. These present-day humans
-would correct, within the race morphogenetic field of the Sphere of Amenti,
+        Countdown to Amenti	
+humans of Earth activated their ﬁfth DNA strand. These present-day humans
+would correct, within the race morphogenetic ﬁeld of the Sphere of Amenti,
 the Zeta-created D-4/fourth-DNA strand distortion that keeps the future
 humans controlled. By ascending through Amenti, humans with activated
-fifth DNA strands would realign the morphogenetic field of the future races,
-reversing the genetic mutation the Zetas use to control the future humans. 
+ﬁfth DNA strands would realign the morphogenetic ﬁeld of the future races,
+reversing the genetic mutation the Zetas use to control the future humans.	
     In this future period, Muvarians and descendants of present human
 races are kept from ascension and evolution to higher consciousness and
 immortality by a seal the Zetas placed within their fourth DNA strand. The
-Zeta Seal stopped the fifth DNA strand from plugging into the lower strands,
+Zeta Seal stopped the ﬁfth DNA strand from plugging into the lower strands,
 so these future soul essences are trapped within Tara’s First time cycle in the
 D-4 astral planes. As long as the future races carry this fourth strand DNA
 distortion, humans on Earth will also carry this distortion of the fourth DNA
 strand, and they will be unable to evolve past that D-4 time cycle. The Zetas
-infiltrated the D-4 future time continuum about 400 years ago in Earth time,
+inﬁltrated the D-4 future time continuum about 400 years ago in Earth time,
 and successfully implemented the Zeta Seal Frequency Fence there about 250
 years ago. The Zeta Seal and Frequency Fence have thus manifested within
-the present-day human genetic pool and within Earth’s morphogenetic field,
+the present-day human genetic pool and within Earth’s morphogenetic ﬁeld,
 for the past 250 years, since about 1748 AD. All human souls incarnating on
 Earth since 1748 AD have the Zeta-Seal distortion within their fourth DNA
 strand. As your life span is presently only about 75-100 years long, this
-implies that all people on your planet at this time carry the Zeta Seal genetic muta-
-tion. 
+implies that all people on your planet at this time carry the Zeta Seal genetic mutation.	
+      
     The second base tone and second and third overtones of the fourth DNA
-strand were unable to manifest in the operational DNA, because these fre-
-quency patterns were taken out of the morphogenetic field of Tara-Earth in
-that future time period, in order to create the Frequency Fence. This block-
-age within the future Earth’s morphogenetic field also caused blockage of
-these frequencies in your Earth morphogenetic field in 1748, a distortion
+strand were unable to manifest in the operational DNA, because these frequency patterns were taken out of the morphogenetic ﬁeld of Tara-Earth in
+that future time period, in order to create the Frequency Fence. This blockage within the future Earth’s morphogenetic ﬁeld also caused blockage of
+these frequencies in your Earth morphogenetic ﬁeld in 1748, a distortion
 which then manifested within the human gene code as souls from Amenti
-passed through the Earth’s morphogenetic field to birth on Earth. This mor-
-phogenetic distortion of Earth, created by Zeta manipulation in the future,
-has created a hidden Zeta Frequency Fence on Earth since 1748. 
+passed through the Earth’s morphogenetic ﬁeld to birth on Earth. This morphogenetic distortion of Earth, created by Zeta manipulation in the future,
+has created a hidden Zeta Frequency Fence on Earth since 1748.	
       The fourth DNA strand mutation has created an unnatural blockage
 between the higher self aspect of identity (the portion of personal identity
-focused in the UHF bands of D-3) and the D-4 astral awareness. This block-
-age manifests as greater fragmentation within the dream state, difficulty in
+focused in the UHF bands of D-3) and the D-4 astral awareness. This blockage manifests as greater fragmentation within the dream state, difficulty in
 orchestrating and remembering astral/“out-of-body” travel, an unnatural
 blockage within the fourth chakra, repression of the natural intuitive senses
-and an inability to fully assemble the fourth DNA strand. The Zeta Fre-
-quency Fence on Earth made it easy for the Zetas to directly inﬂuence human
+and an inability to fully assemble the fourth DNA strand. The Zeta Frequency Fence on Earth made it easy for the Zetas to directly influence human
 behavior, as it connected the human DNA directly into the Zeta Collective
 Mind complex that controlled the populations in the future. Since 1748,
+124	
 
+                                                                                                                     
                                                                                                                        Recent History
+                         
                    human behavior has been directly inﬂuenced on subconscious and subliminal
  levels, by the Brainwashing Program that is broadcast by the Zeta Collective
  Mind Complex, from this future time period. This influence has played a
- major role in the development of human cultures since that time. 
+ major role in the development of human cultures since that time.	
        If these circumstances had been left to evolve unabated, the entire
 human race would now be under the mental control of the Zeta Collective
 Mind, and Earth’s vibration would have dropped too low to hold the Sphere
-of Amenti for the 2017 half-point. The Zetas would not have had to do any-
-thing to stop the grids of Tara and Earth from merging, as this would have
+of Amenti for the 2017 half-point. The Zetas would not have had to do anything to stop the grids of Tara and Earth from merging, as this would have
 been a natural consequence of the effects of their Frequency Fence in the
 future. In 1902 Guardian groups intervened and began “poking holes” in
 Earth’s Zeta Frequency Fence by orchestrating astral-body realignments from
-D-4, on various portions of the human population. The astral-body realign-
-ments repaired the fourth DNA strand and added the fifth strand imprint to
+D-4, on various portions of the human population. The astral-body realignments repaired the fourth DNA strand and added the ﬁfth strand imprint to
 these groups of humans, progressively bringing the corrected fourth strand
-imprint back into the Earth’s morphogenetic field. When at least 8% of
+imprint back into the Earth’s morphogenetic ﬁeld. When at least 8% of
 Earth’s populations carried the corrected imprint, the Earth’s morphogenetic
-field would realign and the morphogenetic field of Tara-Earth in the future
+ﬁeld would realign and the morphogenetic ﬁeld of Tara-Earth in the future
 would follow suit and begin realigning. Through this astral involvement
 with humans, the Guardians were able to begin dismantling the Frequency
 Fence on Earth and on Tara-Earth. In 1986, Earth populations carrying the
 re-aligned fourth DNA imprint peaked at 8%, and the Zetas’ Frequency
 Fence on Earth deteriorated. The Tara-Earth Frequency Fence of the future
 also began to unravel, and the Zetas began losing control over their future
-human populations. 
+human populations.	
+	
+     
     The Zetas began interacting directly with Earth’s present cultures in
-1926, in order to survey the effects of Guardian intervention on their Fre-
-quency Fence, and to monitor the progression of the fourth-strand mutation
+1926, in order to survey the effects of Guardian intervention on their Frequency Fence, and to monitor the progression of the fourth-strand mutation
 within the human DNA. They were aware of the upcoming half-point
 ascension cycle and that their Frequency Fence would be collapsing at some
 point before 20l2. The Zetas knew that they would have to reconstruct the
 Frequency Fence and take action to prevent Earth’s grid from receiving its
 scheduled infusion of D-5 through D-9 frequency. They decided they would
 create Zeta-human hybrids, which possessed mutated fourth-strand genetic
-codes, to repopulate the Earth following 2017. After the hybrids were cre-
-ated, and their Frequency Fence on Earth was reconstructed, they planned to
-eradicate all races carrying the realigned fourth and fifth DNA strand
+codes, to repopulate the Earth following 2017. After the hybrids were created, and their Frequency Fence on Earth was reconstructed, they planned to
+eradicate all races carrying the realigned fourth and ﬁfth DNA strand
 imprint, by using Holographic Insert technology to vaporize the unwanted
-specimens by passing them through UHF portals. In order to maintain con-
-trol of their stronghold in the future, the Zetas returned to the past (Earth’s
+specimens by passing them through UHF portals. In order to maintain control of their stronghold in the future, the Zetas returned to the past (Earth’s
 recent past and present) to create the structures that would hold their control
-of future populations in place. They began physical infiltration of Earth
+of future populations in place. They began physical inﬁltration of Earth
 between World Wars l and ll. Working with the Allied Governments in
+125	
 
-    Countdown to Amenti 
-World War ll, they formed covert agreements that would allow them to con-
-duct experimentation on the human populations in order to begin the cre-
-ation of hybrids to replenish their declining race and through which they
+    Countdown to Amenti	
+World War ll, they formed covert agreements that would allow them to conduct experimentation on the human populations in order to begin the creation of hybrids to replenish their declining race and through which they
 could take over Earth after 2017. The covert human Majestic 12 (MJ-12)
 group was formed within the Allied human governments at this time, to
 secretly oversee treaties they formalized with the Zetas. The Zetas then
 began the next phase of their plan, a scheme of which MJ-12 knew nothing.
-    During the late 1930s and early 1940s, the Zetas began their hybridiza-
-tion program, then turned their attention toward reconstruction of the Fre-
-quency Fence and stopping the grid merge of Earth and Tara scheduled for
+    During the late 1930s and early 1940s, the Zetas began their hybridization program, then turned their attention toward reconstruction of the Frequency Fence and stopping the grid merge of Earth and Tara scheduled for
 2012-2017. The Zetas possess the knowledge and technology that would
-allow them to misalign the electromagnetic fields of Earth and Tara, so the
-planetary grids could not begin to merge in 2012. They understand the elec-
-tromagnetic relationships between Earth’s planetary energetic fields and
+allow them to misalign the electromagnetic ﬁelds of Earth and Tara, so the
+planetary grids could not begin to merge in 2012. They understand the electromagnetic relationships between Earth’s planetary energetic ﬁelds and
 those of the Sun. With this understanding, they devised a plan to shift the
-electromagnetic fields of Earth and Tara by altering the electromagnetic fields
+electromagnetic ﬁelds of Earth and Tara by altering the electromagnetic ﬁelds
 of Earth’s Sun. Before exploring the Zetas’ manipulation of the Sun, let us
 review a brief lesson in the mechanics of multidimensional, electromagnetic
-fields. 
-                                           MERKABA FIELDS 
-                                        Merkaba Field Mechanics 
+ﬁelds.	
+                                      
+                                           MERKABA FIELDS	
+                                        
+                                        Merkaba Field Mechanics	
     All planetary spheres possess sets of counter-rotating electromagnetic
-fields, within and surrounding the planetary body. In the first-dimensional
+ﬁelds, within and surrounding the planetary body. In the ﬁrst-dimensional
 frequency bands, Earth has a magnetic spiral of energy composed of the 12
-base tone frequency patterns of D-1. This counter-clockwise rotating mag-
-netic spiral pulls energy transmitted by the Sun into the D-1 portion of
-Earth’s morphogenetic field, Earth’s D-1 Iron Core Crystal. Earth also has a
+base tone frequency patterns of D-1. This counter-clockwise rotating magnetic spiral pulls energy transmitted by the Sun into the D-1 portion of
+Earth’s morphogenetic ﬁeld, Earth’s D-1 Iron Core Crystal. Earth also has a
 clockwise-rotating, electrical, D-l energy spiral composed of the 12 overtone
 frequency patterns of D-1. The electrical spiral transmits energy from the D-1
-portion of Earth’s morphogenetic field downward, where the energy is then
+portion of Earth’s morphogenetic ﬁeld downward, where the energy is then
 picked up by the D-1 magnetic spiral of the Sun. A planetary sphere has such
-a set of counter-rotating electromagnetic spirals within each dimensional fre-
-quency band. The two spirals form two pyramidal shaped energy constructs,
+a set of counter-rotating electromagnetic spirals within each dimensional frequency band. The two spirals form two pyramidal shaped energy constructs,
 and the magnetic spiral is inverted within the upright electrical spiral. The
-collective construction of the two energy fields is that of a Star tetrahedron,
+collective construction of the two energy ﬁelds is that of a Star tetrahedron,
 and this structure is referred to as a Merkaba Field. Every planet, object and
 person has such a Merkaba Field within each of the 15-dimensional bands. It
 is the energy construct through which energetic substance emerges from and
-returns to the morphogenetic field, the structure through which energy and
-consciousness enter and leave manifestation. 
+returns to the morphogenetic ﬁeld, the structure through which energy and
+consciousness enter and leave manifestation.	
+126	
 
+                                                                                          
                                                  Merkaba Fields
     Earth’s D-1 Merkaba Field is located deep within the Earth's core. It
 exists as a minute crystal encased in elemental iron and serves to ground
-Earth’s morphogenetic field into HU-1. Surrounding this iron core crystal of
+Earth’s morphogenetic ﬁeld into HU-1. Surrounding this iron core crystal of
 D-1 is the D-2 Merkaba Field, which is located within the Earth’s core at the
-D-2 frequency level and serves to hold the morphogenetic imprint and parti-
-cle base of Earth in place. Earth’s D-3 Merkaba Field extends about 444,000
+D-2 frequency level and serves to hold the morphogenetic imprint and particle base of Earth in place. Earth’s D-3 Merkaba Field extends about 444,000
 miles out into space and serves to hold Earth’s atmosphere in place. (The
-hole in Earth’s ozone layer represents a disruption within Earth's D-3 Merk-
-aba Field). 
-     The D-4 Merkaba Field of Earth exists as a minute crystal encased in ele-
-mental gold, which is presently located within a black hole at the center of
-Earth’s Sun at the D-4 frequency level. It serves to ground Tara’s morphoge-
-netic field (portions of which are presently scattered within the planetary
+hole in Earth’s ozone layer represents a disruption within Earth's D-3 Merkaba Field).	
+     The D-4 Merkaba Field of Earth exists as a minute crystal encased in elemental gold, which is presently located within a black hole at the center of
+Earth’s Sun at the D-4 frequency level. It serves to ground Tara’s morphogenetic ﬁeld (portions of which are presently scattered within the planetary
 cores of your solar system) into HU-2, and also connects the planets of your
-solar system in HU-l to Tara’s D-5 core in HU-2. 
+solar system in HU-l to Tara’s D-5 core in HU-2.	
     Tara-Earth’s D-5 Merkaba Field surrounds the D-4 gold crystal at the
-Sun’s core at the level of fifth-dimensional frequency, and thus your Sun and
-solar system are encased within this fifth-dimensional Merkaba Field. The D-
-5 Merkaba Field serves to hold Tara-Earth’s morphogenetic field and particle
-base in place. 
-     Tara-Earth’s D-6 Merkaba field extends thousands of miles out from Tara-
-Earth into outer space in HU-2, at the sixth-dimensional frequency level. It
+Sun’s core at the level of ﬁfth-dimensional frequency, and thus your Sun and
+solar system are encased within this ﬁfth-dimensional Merkaba Field. The D5 Merkaba Field serves to hold Tara-Earth’s morphogenetic ﬁeld and particle
+base in place.	
+     Tara-Earth’s D-6 Merkaba ﬁeld extends thousands of miles out from TaraEarth into outer space in HU-2, at the sixth-dimensional frequency level. It
 serves to keep Tara’s atmosphere in place and encompasses within its energy
-field HU-2 planet Tara, the planets of Tara’s solar system, the planets orbiting
+ﬁeld HU-2 planet Tara, the planets of Tara’s solar system, the planets orbiting
 around Alcyone in the Pleiades in HU-1 and all of the planets orbiting
 around Earth’s Sun in HU-1. The multidimensional structures of planetary
-Merkaba Fields are referred to as Stellar Spirals. They represent vast con-
-structs of electromagnetic energy through which all planetary systems in the
-15-dimensional galaxy are energetically connected. 
+Merkaba Fields are referred to as Stellar Spirals. They represent vast constructs of electromagnetic energy through which all planetary systems in the
+15-dimensional galaxy are energetically connected.	
     The Merkaba Fields of the higher dimensions encompass the Merkaba
 Fields of the lower dimensions and all matter forms contained within them.
 The frequencies of the 15 smaller-dimensional Merkaba Fields combine to
-form larger Harmonic Universe Merkaba Fields. Harmonic Universe Merk-
-aba Fields combine to form the largest Merkaba Field, the Meta-galactic
-Merkaba Field. The Meta-galactic Merkaba Field is composed of a 15-
-dimensional, inverted, counterclockwise spiraling magnetic field and an
-upright, 15-dimensional clockwise spiraling electrical field. The magnetic
+form larger Harmonic Universe Merkaba Fields. Harmonic Universe Merkaba Fields combine to form the largest Merkaba Field, the Meta-galactic
+Merkaba Field. The Meta-galactic Merkaba Field is composed of a 15dimensional, inverted, counterclockwise spiraling magnetic ﬁeld and an
+upright, 15-dimensional clockwise spiraling electrical ﬁeld. The magnetic
 spiral extends from D-1 upward through the Meta-galactic Core at D-8 and
-into the 15th dimension. This spiral of magnetic energy serves to draw elec-
-trical energy from the anti-particle universe through the dimensional mor-
-phogenetic fields in D-9 through D-15, into dimensions 1 through 7 of the
+into the 15th dimension. This spiral of magnetic energy serves to draw electrical energy from the anti-particle universe through the dimensional morphogenetic fields in D-9 through D-15, into dimensions 1 through 7 of the
 particle universe, then back into the Meta-galactic Core. The electrical spiral
 extends from D-15, downward through the Meta-galactic Core and into D-1.
+127	
 
-   Countdown to Amenti 
-The  electrical spiral serves to transmit electrical energy from the Meta-galac-
-tic Core, into the anti-particle universe, through the morphogenetic fields,
+ 
+   Countdown to Amenti	
+The  electrical spiral serves to transmit electrical energy from the Meta-galactic Core, into the anti-particle universe, through the morphogenetic ﬁelds,
 then into dimensions 1-7 of the particle universe. These are the energy
 mechanics through which the universe is perpetually sustained. The Zetas are
-aware of these energy mechanics, which gives them a tremendous technolog-
-ical advantage over present-day human technological capability. The energy
+aware of these energy mechanics, which gives them a tremendous technological advantage over present-day human technological capability. The energy
 mechanics of the Merkaba Fields holographically creates the perceptual/experiential
 illusions of matter, space and time through the refraction of energy particles. The
-reality behind this illusion is an eternal Uniﬁed Field of energy within which every-
-thing resides, and out of which all things are composed. The following example
-will give you some idea of how that holographic projection tricks human per-
-ceptions into the experience of space, time and matter. 
+reality behind this illusion is an eternal Uniﬁed Field of energy within which everything resides, and out of which all things are composed. The following example
+will give you some idea of how that holographic projection tricks human perceptions into the experience of space, time and matter.	
+                                                
 Agartha  
     The civilizations of Agartha, the Inner Earth, which exist in a frequency
 modulation zone between Earth and its parallel-universe double, between D-3
-and D-4 time bands, actually exist at the core of Earth’s Sun, within the 3.5-
-dimensional frequency level. Particles in the D-3.5 vibration spin at a 22.5°
+and D-4 time bands, actually exist at the core of Earth’s Sun, within the 3.5dimensional frequency level. Particles in the D-3.5 vibration spin at a 22.5°
 reverse angular rotation to the particles in D-3 (Earth’s atmosphere) and at a
 22.5° angular rotation to the particles in D-4. (D-4 particles spin at a 45°
 reverse angular rotation to D-3 particles). The gold core crystal of Tara-Earth’s
 D-4 Merkaba Field appears as a Sun to those of the Inner Earth. This D-3.5
 area is called the Inner Earth because one must travel through the Earth’s
-external portals, downward through the Earth into the D-2 Earth morphoge-
-netic field, then into the D-1 iron core crystal in the center of Earth (which in
+external portals, downward through the Earth into the D-2 Earth morphogenetic ﬁeld, then into the D-1 iron core crystal in the center of Earth (which in
 reality exists inside of the sphere of the Sun) in order to re-emerge within the
 D-3.5 frequency level of the Sun where Agartha exists. Just as the gold core
 crystal of Tara-Earth’s D-4 Merkaba Field appears as a Sun when viewed from
@@ -843,13 +229,565 @@ Agartha at the 3.5-frequency level, the iron core crystal of Earth’s D-1 Merka
 Field appears as Earth’s Sun when viewed from the D-3 frequency level.¹ What
 you perceive as the Sun actually represents the iron core crystal D-1 Merkaba
 Fields of the 11 planets plus the Sun in your local solar system. Though the
-planets and Sun appear to be externalized from the Earth, in reality, the sub-
-stance of the Earth and the local planets exists within the energetic substance
+planets and Sun appear to be externalized from the Earth, in reality, the substance of the Earth and the local planets exists within the energetic substance
 of what you perceive as the Sun. (As your Sun is actually the eighth star within
 the Pleiadian system, your Sun and its contents are likewise contained within
 the energetic substance of Alcyone, the central sun of the Pleiades.) Your D-2
 telluric/elemental and D-3 atmospheric Earth, and those levels of the planets in
 your local solar system, are in reality orbiting around the iron core crystals of
-1.   Note: your present perceptual field is that of the D-3 frequency bands. You are able to per-
-     ceive the D-3 frequency bands as manifest reality because your consciousness is presently
-       stationed in D-4.
+   ______________________	
+1.   Note: your present perceptual ﬁeld is that of the D-3 frequency bands. You are able to perceive the D-3 frequency bands as manifest reality because your consciousness is presently
+       stationed in D-4.	
+128	
+
+                                                                                             
+                                                                                                   Merkaba Fields
+their D-1 Merkaba Fields, which exist within the core of each planet and collectively manifest as your Sun. When viewed from the vibration level of the
+third dimension, which is where your consciousness and instruments are presently focused, the D-1 Merkaba Fields, which exist within the core of Earth and
+the local planets, and which are within the core of the Sun, appear to be
+located outside of the planets, many miles away in outer space. You are dealing
+with multi-layered reality ﬁelds that take place in the same space, but appear to
+be separated due to the relationship between particle pulsation rhythm and
+angular rotation of particle spin.	
+    The perceivable experience of movement, passing time, matter, space,
+distance between objects and separation of forms is an illusion created by the
+multidimensional, holographic refraction of particles and anti-particles,
+which pulsate and spin at varying speeds and angular rotations in relation to
+each other. The movement of particles itself is a holographic illusion; movement
+only appears to be such when consciousness views itself through the layered prisms
+of multidimensional order. It will be centuries before your scientists begin to
+comprehend these facts of reality construction. However, while your consciousness is focused within the multiple layers of dimensional reality, the
+concepts of space, time, matter and movement will indeed appear to apply, so
+we will continue our discussion following that paradigm of perception.
+     You can begin to stretch your perceptual and conceptual ﬁelds by simply
+pondering the following concepts and allowing your intuitive senses to bring to
+you a sensed cognition of these realities of which we speak. When you look at
+your Sun from the third dimension, you are seeing the D-1 Merkaba Field of
+Earth and her sister planets. From the D-3 frequency level, when you view the
+D-2 Merkaba Field surrounding Earth’s iron core crystal, which holds Earth’s
+morphogenetic ﬁeld, it appears to be the solid matter makeup of your Earth’s
+body and elemental/telluric kingdom. From the D-3 view, the D-3 Merkaba
+Field is the Earth’s atmosphere within which your present reality takes place.
+The distance of outer space that you perceive between Earth, the Sun and the
+planets represents the magnetic repulsion zone that separates the D-1, D-2 and
+D-3 frequency bands of HU-1 from the counter-rotating D-4, D-5 and D-6 frequency bands of HU-2.	
+     All dimensions exist in the same space, but seem to operate separately due
+to the particle pulsation rates of which they are composed. Particle pulsation
+rates are created by the degrees of angular rotation at which particles and antiparticles spin in relation to each other. In one universe there are 15 primary
+dimensional bands. Dimensional frequency bands group in sets of 3, and each
+set of three dimensions represents a Harmonic Universe. Thus there are ﬁve
+Harmonic Universes within one 15-dimensional Universe. The degree of angular rotation of particle spin shifts 90° from one dimension to the next within
+one Harmonic Universe. In each Harmonic Universe containing three dimen129	
+                                                                                                                                                                                                                  
+
+     
+     Countdown to Amenti	
+sions, there are two 90° shifts of the angular rotation of spin between the particles. Between one Harmonic Universe and the next there is a 45° reverse
+angular rotation of particle spin. This 45° reverse angular rotation of particle
+spin creates a Magnetic Repulsion Zone, or “void” between Harmonic Universes, which keeps the reality ﬁelds contained there within separated from
+each other. These Magnetic Repulsion Zones are what you perceive as the
+seemingly endless vestiges of outer space. Through this structure of relative
+angular rotations of particle spin, the holographic illusions of multidimensional
+reality, matter, time, space, movement and individuation of form are perpetually created and sustained. This will conclude our brief introductory lesson in
+multidimensional physics; we hope we have provided some interesting ideas for
+your more courageous scientists to explore.	
+                
+ THE PHILADELPHIA EXPERIMENT AND SOLAR CRISIS	
+                                   
+                                 The Philadelphia Experiment 1943	
+     We will now resume our discussion of the Zetas plan to stop the merger of
+Earth and Tara’s grid and what they did to the Sun in 1943 that almost caused
+the extinction of the human population on Earth in the 1970s.	
+    The Zetas determined that in order to retain control of the human society within the future space-time coordinates where they had successfully
+achieved dominion over Tara-Earth’s territories in the D-4 time cycle, they
+had to stop the ﬁfth DNA strand from manifesting within the human populations of present-day Earth. Re-alignment of the fourth DNA strand by
+Guardian groups had broken down their D-4 Frequency Fence and they were
+losing control of their human subjects in the future. If the ﬁfth DNA strand
+activated within 8% of Earth’s present human populations, the race Morphogenetic Field in the Sphere of Amenti would realign the Frequency Fence
+distortions in the grids of Earth and Tara, and the Zetas’ Frequency Fence and
+Zeta Collective Mind Complex in D-4 would be destroyed. The upcoming
+morphogenetic wave period of 2012-2017 in Earth's present time cycle would
+allow all Earth humans to begin assembly of their ﬁfth DNA strand and the
+D-4/strand-four Zeta Seal would be released in all humans. After 2017 the
+Zetas would totally lose control of the future human populations, if they did
+not stop the ﬁfth DNA strand from activating within Earth humans and stop
+the present Earth grid from receiving its scheduled infusion of ﬁfth to ninthdimensional frequencies.	
+    From the beginning of their involvement with the covert human governments, the Zetas held this secret agenda of Earth inﬁltration. When they
+offered the Allied Governments technological information that helped them
+win World War II, the Zetas had ulterior motives. In 1943 the Zetas offered
+the U.S. Navy a rudimentary technology that would allow them to make
+objects appear invisible. On August 12th, 1943 the experiment was con130	
+
+                                                     
+                                                   
+                                      The Philadelphia Experiment and Solar Crisis
+ 
+ducted in Philadelphia, PA, using a battle ship, the U.S.S. Eldridge. The
+event became known as the Philadelphia Experiment. We will not detail the
+experiment here, as there are several published accounts of this event, but we
+would like you to understand the Zetas’ motivation for instigating this
+project. The Zetas knew that in creating such an experiment, which utilized
+the creation of an external, manufactured Merkaba Field, that the functions
+of Earth’s natural Merkaba Fields would be disrupted. They failed to share
+this knowledge with the US. government. The experiment created a “rip in
+space-time,” or a tear in the natural Merkaba Fields, which served as a dimensional warp through which the Zetas could secretly pass their ships to Earth
+from their D-4 future location. Using this rip in space-time, the Zetas were
+able to transport large numbers of their spacecraft, undetected by human
+observation, into Earth’s D-2 Merkaba Field, and, from there, the ships could
+be used to broadcast speciﬁc electromagnetic pulses directly into Earth’s D-1
+Merkaba Field at the center of the Sun.	
+    Because the Earth is directly connected to Sun through the Stellar
+Spirals of the multidimensional Merkaba Fields, the Zetas knew they could
+misalign the grids of Earth and Tara by manipulating the Merkaba Fields of
+the Sun. They desired to create a Frequency Fence on Earth that would cause
+the grids of Earth and Tara to repel each other in 2012. Earth would be
+unable to receive its infusion of D-5 frequency, which would stop the fifth
+DNA strand imprint from manifesting in the races and keep Earth trapped
+within HU-1 for another 26,556-year cycle. They also knew that such a Frequency Fence, applied during the half-point in the second ascension cycle,
+would cause a pole shift on Earth, creating cataclysmic changes on Earth,
+wiping out the majority of the populations, once the environment had re-stabilized, the Zetas and Dracos planned to claim Earth’s territories as their own.
+      The covert human government had no idea of the Zetas’ real plan when they
+entered treaties with them during WW2, and they still do not know the extent to
+which they have been manipulated by the Zetas. The Interior Government was
+not aware of the dire consequences that could have resulted from these
+actions. Violation of human rights through covert forced abductions of citizens for hybridization experimentation was the least of the troubles created 
+by the Zetas’ involvement. In 1943 the Zetas used the opportunity presented
+by the Philadelphia Experiment to begin their plan of shifting the Earth’s grid
+out of alignment with Tara via manipulating the energy ﬁelds of the Sun. To
+the present day, the Interior Government does not realize that it was this
+event which triggered abnormal activity on the Sun between 1949 and 1972,
+activity which had some of Earth’s scientific community very concerned
+about the probability of a major pole shift occurring sometime during the
+1970s or 1980s. The Merkaba Fields of the Earth, the Sun and Tara are intimately intertwined with each other and with the Pleiadian star system and
+131	
+
+      Countdown to Amenti	
+others, so following 1943 the Zetas plan brought many different Guardian
+groups into Earth's drama.	
+    After the rip in space-time was made on August 12th, 1943, the Zetas
+secretly positioned their spacecraft beneath Earth’s surface in the D-2 frequency bands and began beaming electromagnetic pulses into the Sun.
+Using these EM pulses, the following effects were created:	
+    The spin of the base tone particles/magnetic ﬁeld of the Sun’s D-1 Merkaba Field was reversed, which made the Sun’s D-1 magnetic spiral become
+electrical. This change in the Sun created a reciprocal shift of polarity within
+the D-1 Merkaba Field of Earth. Earth’s D-1 base tone particles/magnetic spiral became electrical. This, in turn, caused Earth’s D-1 electrical/overtone
+particle spiral to reverse and become magnetic. Through spacecraft positioned within the D-4 frequency bands, the Zeta next reversed the spin on
+the Sun’s D-4 Merkaba Field, which set the pattern for Tara's grid through
+the gold core crystal at the center of the Sun. The D-4 Merkaba Fields of particle and anti-particle Tara were reversed. These actions constituted a full
+reversal of Earth’s D-1 electromagnetic Merkaba Fields, and a partial reversal
+of Tara’s D-4 electromagnetic Merkaba Fields, putting both out of alignment
+with the Merkaba Fields of D-2, D-3, D-5 and D-6.	
+    Normally, when the grids of Tara and Earth begin to enter alignment
+with each other about five years before the half-cycle point, the D-1 and D-4
+Merkaba Fields line up as follows:	
+    Earth’s electrical overtone spiral in D-1 aligns with Tara’s base tone magnetic spiral in D-4, and Earth’s magnetic base tone spiral in D-1 aligns with
+Tara’s electrical overtone spiral in D-4.	
+    This alignment of D-1 electrical to D-4 magnetic and D-1 magnetic to
+D-4 electrical creates an interdimensional Resonant Tone through which the
+planetary grids can fuse. Following the reversal of Tara’s D-4 and Earth’s D-1
+Merkaba Fields, the new alignment between Earth’s and Tara’s Merkaba
+Fields became D-1 electrical to D-4 electrical and D-1 magnetic to D-4 magnetic. The particles, which compose the planetary grids, would magnetically
+repel each other and the grids of Earth and Tara could not fuse. But this plan
+also causes major imbalance within the D-2, D-3, D-5 and D-6 Merkaba
+Fields. If the Sirian Council and other Guardian groups had not intervened, the
+human populations of Earth would have been vaporized between 1972-1974.	
+    By 1950 Earth scientists began to notice odd phenomena occurring on
+the Sun, as the Sun appeared to release periodic spirals of energy toward the
+Earth. This phenomenon was heavily observed between 1952 and 1968, and
+there was great concern that this solar anomaly would alter the wobble of
+Earth upon its axis, creating a pole shift of the planet. Although most of this
+information was blacked out of the media and kept from the public, some of
+these studies were published in scientiﬁc journals and news papers, especially
+after 1968, when the scientists calculated that if events continued as they
+132	
+
+                                                                         
+                                                                            Solar Crisis and 11:11/12:12
+    were, by 1972 there would be a huge explosion on the Sun that would cause
+pole reversal and wipe out humanity by about 1984. On August 7, 1972 the
+solar explosions began to occur. Earth scientists observed a rapid increase in
+solar flares for several days, which peaked on August 7th, with the most
+intense flare ever recorded. Solar winds accelerated at an alarming rate in the
+most intense solar storm ever witnessed by Earth scientists. Published
+accounts of these observations can be found in scientiﬁc literature from this
+time period. The solar winds increased rapidly between August 7th and
+August 10th I972, then strangely the winds began a rapid decrease in speed
+and the solar storms appeared to die down in the month that followed. This
+was a perplexing observation to Earth scientists; they had no idea that the Sirian
+Council had intervened.	
+                                
+                                 SOLAR CRISIS AND 11:11/12:12	
+                                 	
+	
+	
+	
+	
+	
+                                             Wave-of-Flame and Red Pulse 
+        
+      In January of 1972 members of the Sirian Council, Sirian-Arcturian
+Coalition for Interplanetary Defense, the Pleiadian Star League and several
+other Guardian groups entered the UHF bands of Earth’s atmosphere, aware
+of the solar events that were to occur. If they had not intervened, Earth’s
+populations would have been wiped out by 1974. When the electromagnetic
+Merkaba Fields of the Sun are artificially manipulated, such as they were by
+the Zetas following the Philadelphia Experiment, erratic electrical energies
+build up within the Sun’s energetic grid, throwing all of the Sun’s Merkaba
+Fields out of balance. As the misalignment of the Sun’s EM fields progresses,
+it manifests as an acceleration of solar-flare activity, which eventually culminates in surface explosions and temporary expansion of the Sun’s Merkaba
+Fields, lasting about 950-970 years.	
+      In 1972, the first explosions began to occur. The explosions would have
+continued until about September of 1973, when the Sun’s D-1 Merkaba Field
+would have burst open and expanded. The expansion of the Sun’s D-1 Merke
+aba Field would have sent an intense wave of ULF energy out through all of
+the planets in the local solar system. This wave of energy would cause a
+chain reaction within all of the planetary Merkaba Fields, through which
+pole reversal and vaporization of surface life would result. This wave of
+expanding D-I energy is called a Red Pulse (red denoting its D-I frequency),
+and it constitutes a wave of solar flame within the D-1 frequency bands. Lifeforms on planets in the First Harmonic Universe cannot survive such an infusion of ULF D-1 energy, because it would implode the molecular structure
+before the genetic code could expand enough to process those frequencies.
+    In order to avert the pending termination of Earth life, the Guardian
+races, under the direction of the Sirian Council, altered several layers of the
+morphogenetic ﬁelds of Earth and the local planets. As the Red Pulse Wave
+133	
+                                                                                                                                                             	
+
+      Countdown to Amenti	
+of Flame would be coming in on the electrical overtone D-1 frequency bands,
+all of the D-1 overtones were temporarily removed from the planetary morphogenetic ﬁelds. This served to create a D-1 seal around Earth’s core, so the
+ULF of the Red Pulse could not enter Earth’s grid, or the grids of the neighboring planets. Next, a frequency seal was placed within the D-4 frequency
+bands, in order to block D-4 frequencies from entering into Earth’s morphogenetic ﬁeld. Once the overtones of D-1 were removed, Earth’s core could
+not synthesize incoming D-4 frequency, and the core would explode, so D-4
+frequencies had to be temporarily blocked from Earth. To create the D-4 seal,
+the first 11 (out of 12) base tones and overtones of D-4 were removed from
+Earth’s morphogenetic ﬁeld, which meant that Earth’s lower three Merkaba
+Fields connected with the D-4 Merkaba Field only at the level of the 12th
+base tone and 12th overtone. These morphogenetic manipulations created
+another Frequency Fence, which served as a protective barrier around Earth
+and the neighboring planets. In energetic terms the 11:11/12:12 Frequency
+Fence took the form of a spherical band of energy surrounding Earth, within
+the D-1 and D-4 frequency bands—a protective “bubble” of multidimensional energy.	
+    Following the implementation of the Guardians’ Frequency Fence,
+humanity was under three layers of frequency modulation, the original Frequency Fence Quarantine from 9540 BC, the Zeta Seal Frequency Fence
+from 1748 AD and the 11:11/12:12 Frequency Fence of 1972. All three of
+these Frequency Fences would need to be lifted in order for the Blue Flame of
+Amenti to become embodied on Earth between 2012 and 2017. As Frequency Fences are morphogenetic manipulations, they also manifest within
+the DNA imprint of the races. The DNA of 8% of the human populations
+would have to be realigned and purged of the three Frequency Fence Seals
+and the remaining mutations from the earlier Amenti, Palaidorian, Templar
+and Templar-Axion Seals by January 1, 2012. Guardian races began conducting mass-level, consensual, soul-agreement abductions of humans since 1972,
+in order to help humans begin repairing these genetic mutations, and also to
+begin education on preparation for 2012. Memory repression tactics were
+used to spare humanity the terror of facing events that it was not yet prepared
+to understand. The Zetas had been conducting frequent forced abductions
+since the late l940s as part of their hybridization program. They also used
+memory repression tactics. Guardians did not participate in these forced
+abductions, nor did they participate in intrusive experimentation.	
+    When the 11:11/12:12 Frequency Fence was established in 1972, the
+Guardians knew it was a temporary measure to buy the time they needed to
+rebalance the Merkaba Fields of Earth and the Sun. Balancing the Merkaba
+Fields was the most important project in the Guardian agenda. Since 9558 BC,
+when the islands of Atlantis sank and the Earth tilted on her axis, the Guardians knew they would have to assist in realigning the Merkaba Fields of Earth
+134	
+
+                                                                              Solar Crisis and 11:11/12:12
+before the 2012-2017 ascension cycle. Following the events of 1943-1972,
+this re-balancing effort would be much more difﬁcult to achieve. Originally
+the Guardians planned to slowly accelerate the vibration rate of Earth’s grid
+through occasional infusions of D-4 energy that would slowly bring the grid
+into alignment and correct the pole tilt over the course of about 2,000 years.
+These occasional energy transmissions began in 196 BC, when Earth entered
+its present 4,426-year cycle. In their original plan the Guardians intended to
+raise Earth’s grid vibration into the UHF bands of the third dimension beginning in the 1950s, so the ﬁrst seal on the Arc of the Covenant could be
+released no later than October of 1986. Following the release of the ﬁrst seal
+on the Arc, the Sphere of Amenti would begin its 12-14 month descent into
+Earth’s core.	
+    The Sphere of Amenti had to be in place no later than 1/1/1988 so the
+Sphere would be able to fulﬁll the ﬁrst 12-year phase of its activation cycle no
+later than 2,000 AD. Once the Sphere was fully activated to the 3-dimensional level in Earth’s D-2 core, it would cause Earth’s grid to send a spark of
+D-5 frequency into the Arc of the Covenant, releasing the second seal on the
+Arc. This would begin the 12-year descent of the Blue Flame of Amenti and
+the shift of Earth from the D-3 to the D-4 time cycle. The second seal on the
+Arc of the Covenant had to spark open no later than 6/1998 so the shift into
+the D-4 time cycle would begin by 1/1/2000, in order for the Earth’s grid to be
+prepared for proper fusion with Tara’s grid between 2012-2017. The D-5 frequencies of the Blue Flame had to be embodied within the populations of
+Earth, no later than 5/5/2012, or else Earth changes would result when the
+grids began to merge.	
+    When the Zetas’ Frequency Fence and genetic mutation from the
+future began affecting Earth in 1748, creating blockages of the D-4 frequencies in Earth’s morphogenetic ﬁeld and fourth-strand DNA mutations in the
+races, the Guardians began construction of an artiﬁcial D-4 grid imprint
+within the Earth’s morphogenetic ﬁeld. They re-entered the aligned D-4 frequency patterns into the gold core crystal D-4 Merkaba Field at the center of
+the Sun, which began to restore the D-4 imprint in the Earth’s morphogenetic ﬁeld and within the Sphere of Amenti. This allowed the Guardians to
+continue infusing Earth with D-4 frequency to slowly reverse Earth’s unnatural tilt on its axis. This artiﬁcial D-4 imprint also began the deterioration of
+the Zetas’ Frequency Fence and a reverse mutation of the fourth DNA strand.
+The new D-4 imprint manifested as a band of UHF energy surrounding the
+outer portions of the Earth’s atmosphere, about 444,000 miles out in space,
+just beyond the 12th overtone of the third dimension. It allowed human
+consciousness to continue its expansion into D-4 perception and allowed the
+Earth’s infusion of D-4 energy accelerations to continue. This artiﬁcial D-4
+grid which the Guardians began constructing in 1748, has frequently been
+referred to in New Age terminology as the “artiﬁcial Christ Consciousness     
+135	                                                                                                                
+                                                                                                                   
+
+        Countdown to Amenti	
+Grid”. This term was chosen because the upper frequency bands of D-4 represent the beginning levels of the Turaneusiam 12-strand DNA consciousness, which was exempliﬁed on Earth by Jesheua-12 in 12 BC-27 AD. When
+the problems arose with the Zetas’ manipulation of the Sun between 19431972, the artiﬁcial D-4 grid became blocked by the 11:11/12:12 Frequency
+Fence.	
+    In 1972, the Guardians had to accelerate their whole energy infusion
+program in order to reverse the damage the Zetas had caused, which meant
+that humanity would be put on a course of very rapid evolution between 1972
+and 2012. For the artiﬁcial D-4 grid to become operational again, the 11:11/
+12:12 Frequency Fence had to be removed, which meant that the D-4 and D1 Merkaba Fields of the Sun had to be returned to their original polarity. This
+would correct the D-1 Merkaba Field of Earth and the D-4 Merkaba Field of
+Tara-Earth so the grids could fuse in 2012, if the Earth grid vibration was
+raised high enough in time to hold the Sphere of Amenti.	
+    The Earth’s grid had to reach the speed of the UHF bands of D-3 for the
+ﬁrst seal on the Arc of the Covenant to spark and release the Sphere of
+Amenti by 10/1986. It would be difficult, if not impossible, for the Guardians
+to raise Earth's grid speed that high without the infusions of D-4 energy that
+were now blocked by the 11:11/12:12 Frequency Fence, so correction of the
+Sun’s Merkaba Fields became a race for time within the Guardian legions.
+Even though the Frequency Fence did not lift until 1992, the Guardians were
+successful in raising the grid speed enough for the Arc of the Covenant to
+open by the 10/1986 deadline. The accelerated energy infusions used to rebalance the Merkaba Fields of the Sun, began in 1973 and were projected
+into the solar ﬁelds via beam ships stationed in the future D-4 time cycle.
+These infusions would cause rapid shifts of the energy ﬁelds on Earth, which
+would have created havoc within the consciousness of the human populations and instability of Earth’s natural EM ﬁelds. However, the 11:11/12:12
+Frequency Fence allowed the Guardians to employ Holographic Insert technology on Earth, through which the illusion of grid stability could be created,
+so the Guardian re-balancing efforts would remain undetected and excessive
+instability within the human populations could be avoided. Earth existed
+under these Guardian-created Holographic Inserts from 1973 to 1/11/1992, when
+the 11:11/12:12 Frequency Fence began lifting.	
+                                      
+                                      THE MONTAUK PROJECT	
+          
+          Zetas and Rigelians, the Montauk Project 1983 and 2976 AD
+	
+    Between 1973 and 1980 Earth remained under the Guardians’ Holographic Inserts and the illusion of electromagnetic stability they created,
+while the Guardians worked to complete realignment of the Sun’s Merkaba
+Fields. By 1982 the Zetas became tremendously frustrated as they observed
+136	
+                        
+
+                                                                            
+                                                                                 The Montauk Project
+the continuing breakdown of their Collective Mind Complex in the D-4
+time cycle, and began to realize that the Guardians would correct the misalignment of the Sun in time for the ascension period to proceed as scheduled. Between 1982 and 1984, most members of the Zeta Legion entered into
+treaties with the Guardian races, and agreed to stop their plan of Earth inﬁltration. These agreements also included the Zetas from the D-4 time cycle,
+who had fallen under domination of the Dracos in that future time period.
+The Guardians agreed to relocate the Zeta races and their hybrids to another
+planetary system in D-4, where they could evolve peacefully, as long as the
+Zetas agreed to follow the dictates of the Sirian Council and Galactic Federation, and to operate upon principles of the Law of One from that time forward. The Zetas were also required to fully dismantle their Collective Mind
+Complex in D-4, to release the Zeta Seal Frequency Fence and to assist the
+Guardians in preparing Earth and humanity for 2012. Though most of the
+Zetas agreed, and began working with the Guardians in 1983, several Zeta
+and most Dracos groups refused to release their desire for possession of Earth.
+These groups became known as the Dracos-Zeta Resistance, which included
+rebellious Zeta races, Dracos and their hybrids.	
+     The primary Zeta groups that refused Guardian treaties are the Zeta
+Greys from a solar system that orbits the star Rigel, in the Orion star system.
+These are frequently called the Rigelians; we know them as the Futczhi (pronounced FOO’-SHE). It is this Zeta group that formed treaties with the Interior Government on Earth and orchestrated the Zeta Seal and manipulations
+of the Sun. They are the most aggressive and militant of the Zeta Grey races
+and are extremely dangerous to humans, because they often attempt to
+present themselves as Guardians in order to seduce humans into being their
+earthly operatives. The Rigelians/Futczhi dominated the other Zeta races in
+the D-4 time cycle until the majority of these non-Rigelian Zetas rebelled
+and sought Guardian protection when this option was offered between 19821984. Following the Guardian treaties of 1982-1984, the Zeta-Dracos hybrids
+known as the Rutilia, who had always been the primary go-betweens in ZetaFutczhi/human relations, served as infiltrates within the Interior Government, and continued to secretly motivate humans to continue helping them
+fulﬁll their old agenda. (Note: the Rutilia are those beings referred to by the
+government as “EBE’s” - Extraterrestrial Biological Entities. They closely
+resemble the Greys, but usually have a lighter gray to gray-white complexion,
+and more pronounced ridging at the rear of the skull.) The Dracos-Zeta
+Resistance had to find a way to reconstruct the Zeta Seal, Frequency Fence
+and Zeta Collective Mind Complex before 2012, in order to regain control of
+the human populations in D-4.	
+     The Dracos-Zeta Resistance set their new plan in motion in 1983, when
+they covertly motivated humans to create another experiment, similar to the 
+Philadelphia Experiment of 1943. They desired to create another rip in space137	
+
+Countdown to Amenti	
+time, through which large numbers of their ships could be secretly sent from
+the future to Earth, into three different time-space coordinates. From these
+positions in time, the ships could enter the D-2 frequency bands of Earth and
+begin transmitting EM pulses through the Earth’s grid, which would serve to
+reconstruct their Frequency Fence and cause mutation in the fourth DNA
+strand.	
+     Even if the grids of Earth and Tara were able to merge between 2012-2017,
+the human gene code would not have time to fully assemble the ﬁfth DNA
+strand in the majority of the populations. This would stop the scheduled ascensions through the Halls of Amenti and keep the Zeta Seal operational within
+the Sphere of Amenti, so their human captives in D-4 would once again be
+subject to Zeta-Dracos control. For their new plan to work, the Zetas had to
+begin broadcasting their EM pulse Frequency Fence as close to 2012 as possible,
+while still allowing enough time for the fence to take effect within the human
+gene code. It would take a minimum of six years for the new frequency fence to
+cause the fourth DNA strand mutation in the majority of the human populations, so the Dracos-Zeta Resistance would have to begin broadcasting their
+EM pulses no later than 2006. If they began broadcasting too soon, the Guardians’ infusions of  D-4 frequency would counteract their EM transmissions, and
+the genetic mutation would not “hold” within the DNA. The Dracos-Zeta
+Resistance decided upon the year 2004 as their target date. In order to fulﬁll
+their plan of covert mass infiltration, they would have to enter their fleets into
+Earth’s D-2 frequency bands during the peak of Earth’s D-1/D-4 Merkaba Field
+cycle, which takes place every 20 years on August 12th.	
+    Dimensional Merkaba Fields go through cycles of movement in which
+the two spiraling energy ﬁelds vertically condense and draw toward each
+other, then progressively expand on the vertical axis, drawing away from each
+other. When the Merkaba Fields draw away from each other, the upright
+electrical spiral moves into the magnetic Merkaba spiral of the dimension
+above, which causes a temporary blending of frequencies between the magnetic spiral of one dimension and that of the dimension above. These points
+of interdimensional magnetic spiral blending are called Dimensional Magnetic Peaks. During Magnetic Peaks, natural interdimensional portal windows briefly open, allowing unencumbered transit between dimensional
+bands. Magnetic Peaks also occur between the Merkaba Spirals of Harmonic
+Universes, through which the Merkaba Fields of a dimension in one Harmonic Universe blend with the Merkaba Fields of the corresponding dimension one Harmonic Universe up; these blending periods are called Harmonic
+Magnetic Peaks. Each Harmonic Universe has three dimensions, each of the
+three dimensions representing a base tone, overtone or resonant tone, within
+the 15-dimensional scale. D-1, D-4, D-7, D-10, and D-13 are base tone
+dimensions. D-2, D-5, D-8, D-11 and D-13 are overtone dimensions. D-3, D138	
+
+  
+                                                                                    The Montauk Project
+6, D-9, D-12 and D-15 are resonant tone dimensions. Harmonic Magnetic
+Peaks occur when base tone—base tone, overtone—overtone, or resonant
+tone—resonant tone Merkaba Field alignments take place. The D-1 base tone
+Merkaba Field of Earth and the D-4 base tone Merkaba Field of Tara reach
+their Magnetic Peak cycle once every 20 years between August 12th-15th,
+at which time a dimensional window opens between Earth’s HU-1, and Tara’s
+HU-2, time continuum cycles.	
+    The ﬁrst Harmonic Magnetic Peak of the 20th century occurred on
+August 12th, 1903, and the last on August 12th, 1983. These periods mark a
+time of peak magnetic pull within Earth’s subtle energy bodies and heightened dimensional blending, through which large numbers of Dracos-Zeta
+ships could be cloaked and brought to Earth from D-4. August 12th, 2003 is
+the closest peak date to the Dracos-Zeta Resistance target date of 2004. The
+plan called for a simultaneous entry of beam ships during three time periods,
+and once the Zetas had successfully orchestrated inﬁltration, they would
+broadcast their Frequency Fence through Earth’s grid and begin the genetic
+mutation. If they attempted this mutation from only one time period, there
+would not be enough time for it to take hold within the majority of the populations. By entering the EM transmissions at the three different, but closely
+related time periods of 1943, 1983, and 2003, a great number of people would
+be affected.	
+    For the Dracos-Zeta Resistance plan to be effective, they would have to
+create three rips in space-time on Earth, through which their ships could be
+entered. One such rip already existed from the Philadelphia Experiment of
+1943 and one would have to be created in 2003. The Resistance scheduled
+the third rip in space-time for the next Harmonic Magnetic Peak cycle of
+August 12th 1983, the only opportunity they would have before 2003.
+Working with the Interior Government, the Dracos-Zeta Resistance orchestrated another experiment, which came to be known as the Montauk
+Project. Again, accounts of this experiment are available in other publications, so we will not detail here.	
+    The Montauk project served to widen the rip in 1983 space-time that
+had begun as the result of the Philadelphia Experiment. By August 14th
+1983 the time periods of 1943 and 1983 were successfully linked to the Dracos-Zeta Resistance D-4 time period, which they used as a base of operations.
+From 1983 to the present, the Dracos-Zeta Resistance resumed their
+hybridization program through abducting humans, creating several strains
+of hybrids and human clones. They also created inﬁltrates via genetic engineering, through which they could interface with Earth’s cultures under
+the guise of human form. Inﬁltrates are children conceived of natural
+human conception, whose mothers were abducted during pregnancy so ZetaDracos genetic materials could be infused into the fetus. These children are
+born (usually within the seventh month of gestation) and raised by their
+139	
+                                                                                                                                                               
+
+Countdown to Amenti	
+human parents, and appear to be fully human. They are consciously unaware
+of their ET affiliation, but can be subliminally directed by the Dracos-Zeta
+Resistance via the DNA and neurological structure. When Guardian groups
+locate such inﬁltrate individuals, they orchestrate abductions, and dismantle
+the Zeta-Dracos gene codes, thereby freeing these mostly human subjects
+from their covert controllers.	
+                            
+                         2976 AD and the Dracos-Zeta Resistance	
+    The Guardians became aware of the Dracos-Zeta Resistance problem in
+1984, and were able to trace probable events in the future that would result
+from this present activity. What they discovered was alarming, as the consequences of this inﬁltration were more far-reaching than they had speculated.
+They discovered a future event that would occur in the year 2976 AD, that was
+the result of the Zetas’ interference after the year 2000. In this probable future,
+the Guardians had been successful in realigning the Merkaba Fields of Earth
+and the Sun, but in 2003 AD the Dracos-Zeta Resistance is also successful with
+their inﬁltration plan. The Guardians saw that the Zetas’ new Frequency Fence
+partially misaligns Earth’s grid in 2012, and when Earth and Tara begin to intersect, major Earth changes result. Though Earth still fuses with Tara and
+releases a morphogenetic wave as intended, just as that wave begins to crest
+(2012), the Earth changes begin. When the morphogenetic wave begins to
+crest, the Halls of Amenti portals open, but the Earth grid must be stable in
+order for the Halls to remain open through their 10-year cycle (2012-2022).
+The Earth changes cause a premature closing of the Halls of Amenti, which
+creates a rapid drop in Earth’s grid speed. The Sphere of Amenti cannot be left
+in Earth's core during this drop in vibration or the Earth grid will explode. In
+this future probability, Guardians remove the Sphere of Amenti from Earth and
+human populations come under direct covert control of the Dracos-Zeta Resistance. The Zeta Seal genetic mutation is returned to the human race. Once
+Earth is under Dracos-Zeta rule, the Zetas are attacked and dominated by the
+Dracos group with whom they had been working. The Dracos take command
+of Earth in both the D-3 and D-4 time cycles and begin to use the D-3 Earth
+as a storehouse for unwanted photo-nuclear waste materials from the D-4
+Tara-Earth time cycle. (Photo-nuclear waste is produced through certain processes involving the manufacture of photonic energy through manipulation of
+multidimensional nuclear materials). This process causes a massive nuclear
+explosion on D-3 Earth in 2976 AD, through which Earth is destroyed. All
+souls involved in the cataclysm fragment and are lost within HU-1. Their connections to the Sphere of Amenti race morphogenetic ﬁeld and their personal
+soul matrices are severed.	
+    If this future event occurred in present-Earth's line of development, not
+only would the Earth and the major part of the human race be lost, but the evo140	
+
+                                                                                
+                                                                                     The Montauk Project
+lution of Tara in HU-2 would be set back by eons, as Tara would remain
+trapped in her HU-2 time cycles until Earth’s imprint could be reconstructed
+and re-evolve in HU-1.	
+    Upon discovering these probable future events, Guardian groups made
+an appeal to the Resistance Zetas, telling them of the Dracos’ betrayal and
+offering to assist them in relocation, if they would give up their inﬁltration
+plan. The Zetas refused to alter their plans.	
+    Though the Guardians could easily subdue the Dracos-Zeta legions in a
+forced confrontation, such a confrontation would cause major damage to
+the Earth’s Merkaba Fields, which would ensure the destruction of the
+human populations. The Guardians had to ﬁnd a better way to avert the
+new Dracos-Zeta agenda. Not only did the Guardians bear the responsibility
+for preparing Earth and humanity for 2012, they now had the additional burden of protecting their preparation plan from Dracos-Zeta Resistance sabotage. In December of 1984, the Sirian Council, Pleiadian Star League,
+Sirian-Arcturian Coalition for Inter—planetary Defense, the Andromeda Federation of Planets, the Palaidorians of HU-2 and several other Guardian
+groups from HU-l, HU-2 and HU-3, co-created the Bridge Zone Project, in
+order to protect Earth and the human populations from Dracos-Zeta Resistance inﬁltration, and the destruction of Earth in 2976 AD that would result
+from this interference.	
+    The Dracos-Zeta Resistance is presently quite aware of the Guardian’s
+Bridge Zone plan, but they are conﬁdent that humanity will be unable to rise
+to the occasion and feel sure their inﬁltration plan will be successful. The
+Guardians believe humanity can indeed pull together and make the Bridge
+Zone project a success. For this reason we of the Guardian Alliance bring to
+you this hidden knowledge, so that you may be prepared to make a stand on
+behalf of your own evolution and freedom.	
+141	
+
+                                                                                                             
+                                    8	
+                   
+                        	
+                                                                                      
+                        
+                       
+ 
+                     
+                         Current Events	
+                      
+                                             THE BRIDGE ZONE PROJECT	
+                           
+                                        The Bridge Zone Time Continuum Shift	
+                    12/1984 - present
+	
+        
+    Before the Dracos-Zeta legions had altered the EM ﬁelds of the Sun in
+1943 the Guardians’ preparation plans were relatively simple. Using their
+artiﬁcial “Christ Consciousness” D-4 grid from 1748, they progressively sent
+transmissions of UHF D-4 energy into Earth’s grid to raise the vibration of
+Earth’s core high enough to send the ﬁrst spark into the Arc of the Covenant
+by October of 1986. The Sphere of Amenti would complete its 14-month
+descent through the Arc from the UHF bands of D-3 by 1988. The Sphere of
+Amenti would merge its D-1, D-2 and D-3 frequency patterns with, and
+expand Earth's morphogenetic ﬁeld no later than 6/1998, which would spark
+the Arc a second time, beginning the 12-year descent of the Blue Flame and
+Earth’s temporary 2000 AD shift into the D-4 time cycle. The Guardians
+would continue to gradually realign Earth's Merkaba Fields/electromagnetic
+ﬁelds to correct the tilt caused by Atlantis sinking. This would align Earth’s
+fourth vortex/Heart Chakra at Giza with the Alcyone energy spiral by 2004,
+in preparation for Earth’s entry into the Photon Belt and Holographic Beam,
+and the opening of the Halls of Amenti in 2012.	
+    The original Quarantine Frequency Fence from 9540 BC would begin to
+lift once the Arc of the Covenant ﬁrst opened, and all traces of the fourthstrand DNA Zeta Seal mutation and Zeta Frequency Fence would dissolve
+once the Arc was sparked a second time and D-4 frequency from the Sphere
+of Amenti would begin transmitting through Earth’s grid. Between 1/1988 and
+1/2017, the seven natural seals on Earth’s seven primary vortex points would progressively  open  as   the    dimensional  Merkaba  Fields   and   Stellar  Spirals   began   opening
+and blending into each other, while the Guardians assisted the Earth grid to remain
+balanced through these transitions. The Guardians planned to offer dispensations of teachings to humans while the veils between the ego, higher self and
+142	
+

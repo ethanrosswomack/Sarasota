@@ -6,5 +6,7 @@ requires-python = ">=3.11"
 dependencies = [
     "furo>=2025.9.25",
     "myst-parser>=4.0.1",
+    "pdfplumber>=0.11.7",
+    "pymupdf>=1.26.5",
     "sphinx>=8.2.3",
 ]

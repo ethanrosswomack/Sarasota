@@ -1,0 +1,48 @@
+# Chapter 7
+
+Chapter 4: Hidden Motives and Mechanics
+
+Learning Dramas The Tree of Life
+
+Guardian Intervention
+
+Zeta Conspiracy
+
+Holographic Inserts
+
+Frequency Fences
+
+Zeta Planet Destruction Holographic Inserts and Matrix Transplantation Chapter 5: Awareness, Emotion, and Intuition
+
+Awareness
+
+The Electric Wars
+
+Creation Myths
+
+Drakons Intentional Distortions of Sacred Teachings Earthseeds and Starseeds
+
+Women
+
+Soul Matrix Protection
+
+Emotion
+
+The Zeta-Controlled Society
+
+The Free Society Development of Emotion Frog in a Fish Bowl
+
+The Violence Mutation
+
+Intuition Remember and awaken, and you will be safe.
+
+Chapter 6: Special Projects
+
+Crop Circles
+
+Neurological Stimulation Adjacent Earth and Zeta
+
+Helping Abductees
+
+The Cellular Alphabet Chapter 7: Levels of Identity and Components of Mind The 6 Primary Levels of Identity & 4 Components of Mind.
+
