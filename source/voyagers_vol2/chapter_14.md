@@ -1,6 +1,5 @@
 # Chapter 14
 
-    2001 Update Section 
 races in realigning Earth’s Merkaba Fields with Solar Star Gate-4, to ensure
 our planet’s safe passage through the unfolding SAC. The news regarding the 
 Treaty of Altair and of the severity of the political drama concerning the con-
@@ -29,7 +28,6 @@ stances, because these circumstances are not the way I would personally like
 them to be; yet with this feeling came a knowing that in denying the exist-
 ence of an undesirable reality you fully throw away any personal power you 
 might posses to heal the condition.  
-                                                                                                                                                                                                                                                      
 Healing comes from identifying the problem and taking effective and 
  appropriate action through which the undesired condition can be remedied.
 Though in the face of this new information I could observe within myself 
@@ -44,11 +42,7 @@ for deep within me I knew what the GA had revealed was the truth, and that in
 denying this truth I would not only be deluding myself, but I would be mis-
 leading anyone who depended on me to accurately report the contents of 
 CDT-Plates and the GA dispensations. 
-248 
-  
-                                                                                                                          
 
-                                                                                    
                                                                      The July 5, 2000, Treaty of Altair…
 Having rejected the potential option of self-deluding denial, the second 
 emotional response to the new data that I observed within myself was a tem-
@@ -93,8 +87,6 @@ nature both  are  disempowering and self-defeating choices of emotional response
 When on September 12, 2000 the Anunnaki legions defected from their
 Treaty of Altair agreements, the entire contemporary drama took a turn 
 toward the more extreme in potential experiential outcomes. These poten-   
-249                    
-                                                                                                                   
 
 2001 Update Section 
 tials had existed all along, but the GA had been trying to “ease us into” an 
@@ -106,9 +98,7 @@ tember 12, 2000 Anunnaki defection, the GA had no choice but to reveal
 the whole truth of our history and what has been done here at the hands of 
 the Anunnaki, because if we didn’t become “wise to the game” very quickly, 
 humanity was about to be “played as terminal fools”.  
-                   
             THE SEPTEMBER 2000 UIR AND THE EDICT OF WAR 
-                       
         The most immediately pertinent and pressing truth that emerged from 
 revelation of the Hidden Forbidden History, is facing the fact we are pres-
 ently under a state of covert global (and galactic) war, a war of which our 
@@ -140,10 +130,7 @@ races in our 15-Dimensional Time Matrix told the UIR to “stick their ultima-
 tum where the sun doesn’t shine” and refused to withdraw support of Earth’s 
 populations. Promptly, and as expected, the UIR issued an Official Edict of 
 War against the Founders and Emerald Covenant legions.  
-250 
- 
 
-                                                                 
                                                     The September 2000 UIR and the Edict of War 
         In terms of intergalactic politics, an Edict of War issued against the 
 Founders races really is a “big deal”; and one that contains the potentialities
@@ -168,7 +155,6 @@ tiate pole shift precisely when desired via the Nibiruian Battlestar, the crys-
 talline installation beneath Stonehenge, England and their global network 
 of subterranean bases located across the planet. Prevention is the only way
 to solve this drama peacefully before it goes any further. 
- 
     If the UIR movement has its way, the illusion of peace on Earth will be
 maintained until they have their photo-sonic beam-ship fleets in position, 
 cloaked within the lower Dimension-4 frequency bands(as many are already)
@@ -185,16 +171,11 @@ As “ETs” remain a hidden potentiality to the masses, instances of “Mother
 Mary”, “Jesus”, “Buddha” and “Holy Figure” holographic inserts associated     
 “Crying Statues and Paintings” and related pseudo-Divine phenomena will 
 progressively appear to groups of humans who are mentally ensnared in both
-     _____________________________ 
- 
                        7.    In these ''landings,'' false personifications of ''Jesus, Mary and Moses'' will most likely
                                  emerge from a space ship to greet you.                                                                                                                                         
                           8.    bio-neurological scalar pulse transmission
-                      251                                                                                 
-                                                                                                                      
 
   2001 Update Section 
-         
 Traditional and New Age religious dogmas, promoting reassurance that “Gods 
 Chosen Ones” will be “saved” in the “Great Cleansing” or “Tribulation”.  
     If the UIR, and their “Puppet Operatives” among the Human Illuminati 
@@ -238,9 +219,7 @@ will the final phase of the invasion plan be set in motion.
     In the final phase of the UIR plan, which must occur before the natural 
 2012 opening of the Halls of Amenti star gates if the takeover is to succeed, 
 Earth’s portal system will be used to invade the territories of Inner Earth, the
-252 
 
-                                                                
                                                                           The September 2000 UIR and the Edict of War
  control matrix for the Halls of Amenti Star Gates, which are the real object 
 of the UIR conquest. Once Earth’s portals are used to invade the Inner Earth 
@@ -285,8 +264,6 @@ can choose to entertain; no one is going to “fix this for us” but ourselves,
 if we are wallowing in fear like quaking ninnies we will guarantee our own
 defeat. Fear is a chosen response and so too is courage and calm, centered 
 action; if necessary, allow a bit of natural fear to move through you and out, 
-253 
-                                                                                                                       
 
   2001 Update Section 
 then stand up and be effective anyway—humanity holds the power to see 
@@ -303,7 +280,6 @@ iadian-Sirian Agreements, threatened to use Solar Star Gate-4 and the
 Nibiruian Battlestar to initiate immediate pole shift and destruction on 
 Earth if Emerald Covenant representatives attempted to make mass contact
 to warn humanity. 
- 
     It was in the Anunnakis’ vested interests to hold off on pole shift because
  fulfillment of their intended One World Order dominion agenda and subse-
 quent seizure of the Halls of Amenti star gates requires the temporary use of 
@@ -327,14 +303,9 @@ have been sufficiently used to open the Templar Security Codes of Earth dur-
 ing an active SAC, we rapidly become expendable. And this is precisely 
 what we have been “set up for” since the 22,326 BC cancelled SAC ended
 in a stalemate between Emerald Covenant and Fallen Angelic races.  
-254 
- 
 
-                                                                         
                                                    The D-12 Planetary Security Seal, Planetary Shields...                             
-         
                   THE D-12 PLANETARY SECURITY SEAL, PLANETARY SHIELDS  
-                        
                                               CLINICS, AND CRISIS  INTERVENTION  
     If GA forces had demonstrated a show of power through orchestrating
 a mass contact drama to warn humans of the Anunnaki and Drakonian
@@ -371,15 +342,12 @@ ier than Photo-sonic swords born of unnatural external technologies”;
 humans can, in the SAC of the present generation, set this planet free from 
 27,500 years of covert ET enslavement by effectively using their God-given
 gifts of biology and Spirit. 
-  
     The technology through which humanity can reclaim its freedom and 
 intended heritage during the 2000-2017 SAC, and by which the previously
 described UIR One World Order dominion agenda can be stopped in its 
 tracks, is an internally directed Divine Science technology called Planetary 
 Shields Clinics. The technical dynamics of Planetary Shields Clinics are 
 beyond the scope of this book; the GA and Azurite Templar Security Team
-255 
-                                                                                                                                                                                                         
 
   2001 Update Section 
 has been directly engaged in conducting advanced Masters Templar training 
@@ -425,14 +393,8 @@ intends to begin positioning its Photo-sonic Beam-Ship ﬂeets over the previ-
 ously mentioned 24 Primary Target Sites to begin transmission of the 2003-
 2004 Frequency Fence via linking the transmissions of the beam ships 
 with the HAARP grid network of Earth. 
-256  
-                                                                                                                 
-                                                                                                                 
-            
 
-                         
                                      Invasion Agenda, HAARP, Merkaba-Reversal and the Rude Awakening
-                      
                INVASION AGENDA, HAARP, MERKABA-REVERSAL,                                                             
                                            AND THE RUDE AWAKENING   
     Linking of the Invasion Fleet, cloaked in D-4 Frequency Bands, to the
@@ -464,7 +426,6 @@ present belief systems, no hatred toward any “enemy” seen or unseen, and
 no entrapment within ideologies of powerlessness and victimization. The 
 Planetary Shields Clinics through which Earth can be set free require only 
 a willingness to re-awaken to the Sacred Templar Mechanics that were
-     ____________________________________________ 
                      9.     The GA’s Kathara Bio-Spiritual Healing System, and the DNA Template Bio-Regene-
                 sis Techniques excerpted from this program that appear at the end of this book, are the 
               fastest methods of naturally activating the dormant 12-Strand DNA Template of
@@ -478,12 +439,7 @@ a willingness to re-awaken to the Sacred Templar Mechanics that were
                organism to sustain a minimum 4.25 DNA Strand Template activation level should off-
                planet evacuation become necessary. The Kathara Healing program is highly recom-
                                             mended for obvious reasons; and these are the very reasons that the GA provided the trans- 
- 
-  
              lation of the ancient Kathara Healing teachings in February of 2000.  
-                             257   
-                         
-                        
 
                                                                                     2001 Update Section
 once practiced as “daily common knowledge” among the pre-Ancient 
@@ -525,16 +481,11 @@ eration Nibiruian Reverse-Merkaba spin ratios in Earth’s grids. Through
 this External Nibiruian Reverse-Merkaba field that some Humans are being 
 tricked into creating, the Nibiruian hold on Earth’s Templar is amplified, 
 while the human participants are unknowingly “down-loading” their inher-
-_________________________________ 
 10.  Via Universal Star Gate passage. 
 11. You won’t have learned much about the reality of your 15-Dimensional Anatomy from
        the Anunnaki either. 
   12.  More aptly described and historically known as ''Arch-Demon Michael.'' 
- 
-                                                                                                                
-258                        
 
-                     
                         Merkaba Mayhem, REAL Ratios and the Nibiruian Checkerboard Mutation
 ent DNA Template Planetary Templar Security Codes into Earth’s grids to 
 assist the UIR in gaining open access to Earth’s Star Gates.  
@@ -548,13 +499,10 @@ have you inadvertently placed your power, your free will mode of thinking,
 and your potential for true “Christed Consciousness” and spiritual mastery, in 
 the hands of some glorified, self-proclaimed angel or "demi-god" that prom-
 ises to create ascension and Christ Consciousness for you? 
-   
     It is a very good time to muster enough humility to take this question 
 very seriously. 
- 
          MERKABA MAYHEM, REAL RATIOS, AND THE NIBIRUIAN 
                                 CHECKERBOARD MUTATION 
-              
         The natural ''Christiac Merkab'' spin ratio for a being in Density-1/
 dimensions 1-2-3, which allows for natural, progressive, automatic Merkaba
 Field acceleration and 12-Strand DNA Template activation for  attainment 
@@ -581,8 +529,6 @@ tion until Solar Star Gate-4 is brought back into its natural Alcyone-Spiral
 alignment. To maintain the natural personal Merkaba Spin, it must be manu-
 ally reset in the body every 24 hours, or the Reverse-Merkaba 
 Spin in the Earth’s grids will override the personal restoration.  
-259  
-                                                                                           
 
       2001 Update Section 
     Advanced Emerald Covenant Merkaba teachings are in the process of 
@@ -609,21 +555,7 @@ Alpha-Omega Templar Melchizedek Anunnaki races to propagate this Base-
 aba do not realize that they have been deceived in this way, and are not
 intentionally bringing harm to their students; the teachers themselves are
 being victimized and deceived by Fallen Angelic contacts.  
- 
-                         
-                            260
 
-                                                                          14  
-                                                                 
-                                               
-                                                
-                                                        
-       
-        
-                   
-                  
-                
-                 
     The Angelic Human Heritage
    and Rainbow Roundtables
   •  Our mystical teachings and religions of today emerged from the distant past
@@ -653,16 +585,11 @@ being victimized and deceived by Fallen Angelic contacts.
         spiritual and mystical creeds more clearly, with an eye toward differenti-
        ating between what leads us toward or away from our race’s Original Di-
           vine Objective. 
-    261 
-                                                                                                                     
 
-  
 The Angelic Human Heritage and Rainbow Roundtables 
- 
 • The Keys to Effective Action Today are held within the Secrets of our Pre- 
      Lemurian-Atlantian origins, through which our race’s Original Divine 
      Objective and the methods of its accomplishment are rediscovered. 
-             
         GENETIC ASCENDANCY OF ANGELIC HUMAN LINEAGE 
 • Breneau Founders Races: Emerald, Gold and Amethyst Order Breneau 
 Emerald Order-Elohei-Elohim, Gold Order-Seraphei-Seraphim, 
@@ -699,18 +626,10 @@ Densities 1-4, (Dimensions 1-12)
 Pre-matter, Etheric, Semi-Etheric, and Physical Matter Form 
 Seeding-1 Ur-Tarranate-Cloister 249,998,000 BC-24,998,000 BC 
 Seeding-2 Dagos-Cloister 3,698,000 BC-846,800 BC 
-262 
 
-   
- 
- 
- 
- 
- 
                    12-Tribes Seeding~3 Genetic Ascendancy
  Seeding-3 Urtite-Cloister 798,000 BC
  Earth, Tara, Gaia and Parallel Systems
-                             
          12-TRIBES SEEDING-3 GENETIC ASCENDANCY
 • Urtite-Cloister Host Race for Seeding-3 12-Tribes Races
       Serres-Egyptian (Pleiadian Serres avian-hominid + Seeding-2 Breanoua-Atla-
@@ -745,7 +664,6 @@ Seeding-2 Dagos-Cloister 3,698,000 BC-846,800 BC
 • Rama Urtite-Cloister (Yu + Ur Urtite-Tri-Cloister)
        Keepers of the Gold-Violet Flame Polaric-Triadic Codes
        24/25-27 Strand DNA Templates
-263
 
   The Angelic Human Heritage and Rainbow Roundtables 
           THE AZURITES, IAFW, ORAPHIM-ANGELIC HUMAN, MC              
@@ -790,10 +708,7 @@ Orders as the Azurite Universal Templar Security Team, commissioned to
 protect and repair the structural integrity of our Time Matrix and with assist-
 ing all races in their evolution to ascension and freedom from the Time
 Matrix. 
-264 
- 
 
-                                                                                                  
                                    The Azurites, IAFW/, Oraphim-Angelic Human...
          About 570 Million years ago, the Angelic Wars between the fallen
 Annu-Elohim Anyu aquatic-apes and Bipedal Dolphin People and fallen Ser-
@@ -839,16 +754,12 @@ erative evolution. Like the Azurite Yani, this new biological race would
 present a genetically perfected form through which the consciousness of any
 stellar collective could incarnate to reclaim the original integrity of its
 Ascension Codes; the new race was called the Turaneusiam or the Angelic 
-265 
- 
-   
 
   The Angelic Human Heritage and Rainbow Roundtables 
 Human of Density-2 Tara. The seed race for the Angelic Human was the
 Densities 2-4 Oraphim, meaning “Children of the Light” in reference to
 their Breneau Order creators of the Density-5 (dimensions 13-14-15) Kee-
 Ra-ShA Primal Light Fields. 
-             
         CREATION OF THE ORAPHIM-TURANEUSIAM ANGELIC 
                         HUMAN CHRISTIAC-RISHIC GRAIL LINE 
      The Oraphim are a hybrid form of Lyra-Sirius A Anuhazi (Elohei Emer-
@@ -887,10 +798,7 @@ resembles the shape of a tiny bird beak, with a petite human-child-like nose.
 Some Oraphim have pure white head hair resembling long, soft fur, others
 are bald or have soft, white-feathered skulls. All have hairless bodies and
 large, slanted almond-shaped eyes of golden, electric blue or violet hue,
-  266 
- 
 
-                                                                  
                                                                         Creation of the Oraphim-Turaneusiam...
 with pure white vertical pupils, thin eyelids with fine white eyelashes and
 no eyebrows. 
@@ -936,7 +844,6 @@ the “male” Oraphim form carries a stronger electrical field and specializes 
 electrical transmission of energy, while the “female” Oraphim form carries
 a stronger magnetic field and specializes in magnetic reception of energy.
 Like the Azurites, in combining of male-female bio-energetic fields, the Ora-
-267 
 
 The Angelic Human Heritage and Rainbow Roundtables 
 phim have the greatest ability of any race in our Time Matrix to transmit and
@@ -981,12 +888,8 @@ Races are referred to as “Maji Grail Line Angelic Humans,” possessing 24-48
 Strand DNA Templates characteristic to the Lyran-Sirian-Oraphim Angelic
 Human genome. From the five Palaidia Urtite-Cloister Seed Races of
 798,000 BC, Seeding-3 of the 12-Strand DNA Template Angelic Human lin-
-268 
 
-                   
-                                                               
                                                                Seeding the 12 Urtite-Cloister Palaidia Empires
-          
     eage was progressively orchestrated on Earth, as part of a larger trans-time
                  Sacred Mission of Planetary Guardianship. 
     Members of the Palaidia Maji Grail Line Races have repeatedly incar-
@@ -1008,8 +911,6 @@ Human genome. From the five Palaidia Urtite-Cloister Seed Races of
   Angelic Human Maji Grail Line Indigo Children Types-1 and 2 have been
    progressively incarnating on Earth in preparation for the Sacred Mission of
   the long awaited 2000-2017 Stellar Activations Cycle. 
-            
-          
            SEEDING THE 12 URTITE-CLOISTER PALAIDA EMPIRES 
     The secrets to unraveling the riddles of contemporary humanity’s origins 
 and heritage lies in the distant past, within the first 12 Palaidia Empires of
@@ -1032,8 +933,6 @@ Angelic Human Host Race of Seeding-3 (See page 56).
  serve as the “trigger sites” for remote activation of surface Earth’s 12Tem-
 plar Signet Site star gate opening points. Each of the 12 Palaidia Empires 
 were co-founded by Urtite-Cloister Race strains carrying the five Cloister 
- 269 
- 
 
    The Angelic Human Heritage and Rainbow Roundtables 
 Race genetic codes of the 12-Tribes Angelic Human line, seeded by a spe-
@@ -1075,10 +974,8 @@ Matrix, the Kee-Ra-ShA Current standing-wave frequencies of the Density-
 5 Primal Light Fields and the Maharata Current standing-wave frequencies of 
 the Density-4, Dimension-12 Pre-matter Hydroplasmic “Liquid-Light” Chris-
 tos Fields. 
-270 
 
                   Shambali, Bhrama and Annu-Melchizedek Races of Inner Earth.
-              
             SHAMBALI, BHRAMA, AND ANN-MELCHIZEDEK  
                                       RACES OF INNER EARTH. 
     The two Mixed Cloister races of Inner Earth with which the Urtite-
@@ -1101,7 +998,6 @@ DNA Templates. This genetic enhancement allowed them to serve as the
 two primary guardian races for the Crystal Pylon Temples, Halls of 
 Amenti and the activated star gate system of Inner Earth’s Templar; a posi-
 tion they still hold today. 
-  
      The Shambali are a Melchizedek and Breanoua Mixed Cloister race, 
 plus Maharaji blue human, and the Bhrama are a Melchizedek and Ur-
 Antrian Mixed Cloister race, plus Maharaji.  The Shambali inhabit the clois-
@@ -1123,13 +1019,6 @@ and of the natural Universal Star Gates in Density-1 (dimensions1-2-3).
 The Palaidorians of Tara (see Page 6) have held this Azurite Universal Secu-
 rity Contract since the initiation of the Covenant of Palaidor just prior to 
 the 549,998,000 BC Taran cataclysm (see Page 2). The Shambali and 
-271 
- 
- 
- 
- 
- 
- 
 
   The Angelic Human Heritage and Rainbow Roundtables 
 Bhrama races of Inner Earth were officially entered into the Palaidorian Cov-
@@ -1137,11 +1026,8 @@ enant and Azurite Universal Templar Security Team following their genetic
 acceleration after the Thousand Years War in 846,800 BC. Since this time
 the Shambali and Bhrama races of Inner Earth are also referred to as
 “Palaidorians”, just as their Taran Palaidorian elders.  
-  
                           THE THREE PRIMARY URITITE-TRI-CLOISTER MAJI FLAME                                                
-                   
                          KEEPER HOLY GRAIL LINE 
- 
                                            SEED RACES OF THE PALAIDIA EMPIRES  
          The Emerald Order Elohei-Elohim Maji DNA Template embodies the
 full spectrum of the Eckatic Codes, the electro-tonal patterns, or DNA “Fire 
@@ -1166,7 +1052,6 @@ Christiac-Rishiac Grail Line has a 43-48 Strand DNA Template; in their
 present incarnations on Earth, the Mu’a, along with Maji from the Yu Seed 
 Race line are called Type-1 Indigo Children; the Mu’a are Emerald Order 
 MC Indigos. 
- 
      The Emerald Order Mu’a, and their ascendant race lines, are the only 
 human races on Earth whose DNA Templates are imbued with the full spec-
 trum of 144 Universal Signet Master Key Codes² corresponding to Universal 
@@ -1175,13 +1060,9 @@ Star Gates 1 through 12. The 48-Strand DNA Template Mu’a races have all
 Encryption Keys per Gate x Gates 1-12) of the 1728 Universal Encryption
   Key Codes, encoded in their DNA.  Individuals of Mu’a genetic coding, who 
 have a fully activated 48-Strand DNA Template, are the only individuals on
-______________________________ 
  1.  In ancient Egypt, this coveted Eckatic Maji genetic code was referred to as the “Code of                                 
         the Blue Nile’’ 
   2.   12 Master Keys per Gate x 12 Universal Star Gates. 
-272 
-       
-                                                                     
 
               The Three Primary Urtite-Tri--Cloister Maji Flame Keeper Holy Grail Line                                                              
 Earth capable of running the full “Rainbow Ray Current” to single-handedly
@@ -1208,7 +1089,6 @@ Inner Earth Palaidorian races. The Gold Order Urtite-Tri-Cloister Maji
 Holy Grail line races of Seeding-3 are called the Yu Seed Race. The Urtite-
 Tri-Cloister Gold Order Maji Christiac-Rishiac Holy Grail Lines are called 
 the ''Keepers of the Gold Flame—Guardians of the Polaric Codes’’3. 
-         
     The Yu Urtite-Tri-Cloister Maji Christiac-Rishiac Grail Line has a 37-
 42 Strand DNA Template; like their Palaidia Urtite-Tri-Cloister kin the
 Mu’a (Muarivhia), the Yu Seed Race in their present incarnations on Earth
@@ -1224,12 +1104,10 @@ viduals on Earth capable of single-handedly opening the four Density Lev-
 els of Earth’s Primary Signet Site Star Gates 2 through 11. Only Mu’a can
 open Universal Star Gates 1 and 12.  Yu incarnates can run two-thirds of the 
 Rainbow Ray Current to initiate individual remote activation of 11th Signet
-      _______________ 
 3.   In ancient Hebrew teachings, the coveted Polaric Maji genetic code was referred to as the 
        ''Code of the Golden Dawn.'' 
 4.    12 Master Keys per Gate x Gates 2 through 11 
 5.    144 Encryption Keys per Gate x Gates 1-11 
-273 
 
 The Angelic Human Heritage and Rainbow Roundtables 
 Shield, 11th Signet Plate and 11th Templar Cue Site;  the 11th Signet Set 
@@ -1271,12 +1149,10 @@ DNA. Other than Mu’a and Yu race incarnates, individuals of Ur genetic
 coding are the only human individuals on Earth capable of single-handedly
   opening the four Density Levels of Earth’s Primary Signet Site Star Gates 5 
 through 8. Only Mu’a can open Universal Star Gates 1 and 12, and the full 
-__________________________________ 
 6.   In ancient Sumerian culture, the coveted Triadic Maji genetic code was referred to as the 
         ''Code of the Violet Sun'' 
 7.     12 Master Keys per Gate x 4 Universal Star Gates 
 8.     144 Encryption Keys per Gate x Gates 1-8 
-274 
 
       The Three Primary Urtite-Tri--Cloister Maji Flame Keeper Holy Grail Line                                                        
 spectrum of Star Gates 1 through 12. Yu can open Universal Star Gates 2 
@@ -1319,10 +1195,8 @@ returned to contemporary Earth incarnation as Types-1 and 2 Indigo Chil-
 dren. The indigo Children Types 1 and 2 have returned in hope of assisting
 the Angelic Human 12-Tribes of  Earth to finally fulfill the Sacred Mission 
 of Planetary Guardianship for which they were originally commissioned. 
-  _______________________________________________ 
    9.   12 Master Keys for each of 12 Universal Star Gates 
   10.  144 Encryption Key Codes for each of 12 Universal Star Gates 
- 275 
 
 The Angelic Human Heritage and Rainbow Roundtables 
                   THE  TWO SECONDARY URTITE-BI-CLOISTER  
@@ -1364,11 +1238,9 @@ their ascendancy lines have a 25-27 Strand DNA Template, categorizing
 their contemporary incarnations as Type-2 Indigo Children. The Rama 27-
 Strand DNA Template is imbued with 3613 of the 144 Universal Signet Mas-
 ter Key Codes for Universal Star Gates 10, 7 and 4.  The Rama 27-strand
-______________________________ 
 11. 12 Master Keys per Gate x 3 Universal Star Gates. 
 12.  144 Encryption Keys per Gate x Gates 1-9 and 11-12 = 144 x11 = 1 584. 
 13.  12 Master Keys per Gate x 3 Universal Star Gates. 
-276 
 
    The Two Secondary Urtite-Bi-Cloister Maji Flame Keeper Holy Grail Line 
 DNA Template contains 1440 Universal Encryption Codes corresponding 
@@ -1407,17 +1279,11 @@ Density-3 Gaia. The remaining 5 Cloister and 5 Root Races of the Seeding-3
 12-Tribes Angelic Human “Maji King” Christiac-Rishic Holy Grail Line,
 progressively emerged on Earth through the 5 Urtite-Cloister Empire Maji 
 Races that emerged on surface Earth from the 798,000BC Palaidia Empires.  
-______________________________ 
 14.  144 Encryption Keys per Gate x Gates 1-10 = 144 x10 =1440 
-277 
-                                                                                                           
 
-   
      The Angelic Human Heritage and Rainbow Roundtables          
-                                         
                                                THE RIDDLE OF THE “ROUNDTABLE”— 
                          LOCATION OF RACE SEEDINGS AND RITES OF THE ROUNDS 
-                           
                               Palaidia Empire Geographical Settlements and  
                                    DNA Template-Star Gate Correlation 
       The significance of understanding the nature of Palaidia Urtite-Cloister
@@ -1459,14 +1325,7 @@ of the Universal Star Gate-12 planet Lyra, Aramatena.
      In the Founders plan of creating the D-12 Christos Realignment within 
 the four Densities of the Manifestation Templates of Earth, Tara and Gaia 
 and their surrounding galaxies, Universal Star Gate-12 holds the final key
-278 
-      
- 
- 
- 
 
-               
-                                                                                     
            The Riddle of the “Roundtable’’
 to planetary and galactic Christos Realignment. Through Universal Star
 Gate-12, the D-12 ''Christos Templat'' frequencies can be run through the 
@@ -1499,7 +1358,6 @@ Guardians. The Ur races are incarnate members of the GA’s D-8 Council of
 Mintaka-Orion, and were settled in areas of Earth that corresponded to Uni-
 versal Star Gate-8 and in areas corresponding to Star Gates 5 through 8 that 
 were in need of additional security. 
-  
      The most powerful Universal Star Gates in relation to the operations of
 planetary, Galactic and Universal systems in our Time Matrix, and thus those 
 most vulnerable to incursion by Fallen Angelic infiltration, are the D-12
@@ -1513,9 +1371,7 @@ carry Universal Templar Security commissions, are always settled in the
 geographical locations of Earth that correspond to the Star Gates to which 
 their DNA Temples are encoded. They are also assigned to Control Gate 
 areas that are in need of additional security. The seedings of the Angelic 
-279 
 
-                                                                                                                                                   
     The Angelic Human Heritage and Rainbow Roundtables                            
 Human races of Earth were never random occurrences, nor were the hubs of 
 human settlements determined by general environmental factors, such as 
@@ -1556,18 +1412,10 @@ The human evolutionary design of 12-Tribes Seeding-3 began with the five
 Urtite-Cloister Maji races that seeded the first 12 Palaidia Empires in 
 regions corresponding to Earth’s 12 Primary Star Gates, but this plan did not
 stop with the Palaidia Empire races. 
- 
-                     280
-                 
 
-                                                                                                                                                      
-                                                             
   The Riddle of the “Roundtable’’ 
-             
                  Cycle of the Rounds, the Divine Blueprint of Human Evolution,
-                             
                                    Christos Realignment Mission 
-  
        The Evolutionary Divine Blueprint of human evolution on Earth was 
 designed to accomplish the Founders Planetary Christos Realignment 
 through a series of races cycles called rounds.  Each Round of human race 
@@ -1609,7 +1457,6 @@ received, stored and released in increments into Earth’s Planetary Shields
 through the 12 Selenite Rods in the Crystal Pylon Temples of Inner Earth. 
 When Earth entered a natural Planetary Stellar Activations Cycle (SAC), 
 the Maji Races would hold the natural configuration of the D-12 Shield of 
-281
 
 The Angelic Human Heritage and Rainbow Roundtables                            
 Aramatena on the planet, serving as a temporary D-12 Christos Grid 
@@ -1653,13 +1500,10 @@ seeded and in position within various interrelated Time Cycles of Earth, Tara
 and Gaia, the Angelic Human races were intended to hold and direct, within     
 the Earth-Tara-Gaia Template, the greatest portions of the D-12 Shield of 
 Aramatena Christos Blueprint frequency spectra. 
- 
      The animal, plant, insect and mineral kingdoms of Earth-Tara-Gaia were
  intended to hold the subharmonics of the Christos Blueprint. Together, the 
  Angelic  Human Races and   the  natural  kingdoms of  Earth-Tara-Gaia would
-282 
 
-                                                                                            
                                                                                          The Riddle of the “Roundtable’’
 bring in and sustain the D-12 Christos Blueprint, progressively healing dis-
 tortions in the Earth-Tara-Gaia Planetary Shields to fulfill the natural Chris-
@@ -1705,7 +1549,6 @@ tary Shields through the Christos Realignment will allow the four Densities
        Until the Christos Realignment of Earth is completed, most of Earth’s 
 life-field is trapped in time within the finite experience of Density manifesta-
 tion, unable to enjoy the Divinely Given Gift of self-motivated Ascension
-283 
 
 The Angelic Human Heritage and Rainbow Roundtables                            
  and its inherent perpetual renewal of Eternal Life and co-creative life experi-
@@ -1723,7 +1566,6 @@ Rehabilitation, is built upon the natural contours of Cycles of Universal
 Time. Each phase of humanity’s evolution on Earth, including contemporary 
 human civilization, is an intrinsic and necessary part of this greater Univer-
 sal Rehabilitation and Restoration plan. 
- 
 FOUR EVOLUTIONARY ROUNDS, CO-RESONANT CONTINUUM 
 ALIGNMENT, TRANS-TIME CONNECTION, AND THE CHRISTOS 
                                       REALIGNMENT MISSION 
@@ -1739,7 +1581,6 @@ lost memory of our greater purpose within the Planetary Christos Realign-
 ment Mission, our current human races are as important as the Palaidia 
 Empire races, in fulfillment of the Founders’ Planetary, Galactic and Univer-
 sal Rehabilitation plan. 
- 
   The Cycle of the Rounds, through which human evolution was
 intended to bring about the Christos Realignment on Earth within a specific 
 quadrant of time, is designed to occur in four phases, or four Rounds. The 
@@ -1752,10 +1593,7 @@ Urtite-Cloister Races emerged in 206,000 BC from the five Palaidia Urtite-
 Cloister Maji races into the 12 Urtite-Cloister Palaidia Empires, and spread 
 across Earth’s surface into areas to which their DNA Templates corre-
 sponded. The races of Human Evolution Rounds 1 and 2 carried the 12      
-284 
-                                                                                                                 
 
-                                                                                                  
                                                          Four Evolutionary Rounds, Co-Resonant Continuum...
 Universal Master Key Codes and 144 Universal Encryption Key Codes
 of the 12 Universal Star Gates within their DNA Templates; they anchored
@@ -1772,12 +1610,6 @@ thereafter, as the five Root Races with 2-6 Strand + dormant 12-Strand
 DNA Templates began their progressive emergence into human incarnation in 
 71,000 BC, through their corresponding Cloister  race of the five Cloister    
 Races (see page 15). 
- 
- 
- 
-  
- 
- 
     Each of the four Rounds of the Human Evolutionary Blueprint is 
 designed to bring into Earth’s Planetary Shields during specific Time Vectors 
 a designated portion of the D-12 Shield of Aramatena Christos Template. If 
@@ -1806,12 +1638,8 @@ variance that form Time Cycles and their inherent smaller Time Vector
 cycles, provide coherent sequences of linear vibrational rhythms for con-
 sciousness to follow in order to engage the manifest experience of linear pas-
 sage and evolution through time.   
-285 
-                                                                                                                    
 
- 
       The Angelic Human Heritage and Rainbow Roundtables      
-                      
        The Cycle of the Rounds Human Evolution- Christos Realignment Mis-
 sion is being fulfilled through the Four Rounds of Angelic Human Races,
 the collective carriers of the D-12 Shield of Aramatena Christos Divine 
@@ -1821,7 +1649,6 @@ seeding of the Four Rounds, portions of the Christos Blueprint are simulta-
 neously entered by their designated races, into the four Densities of the 
 Planetary Shields, in their appropriate Time Cycle and energetic coordinate
  of corresponding vibrational co-resonance. 
- 
      The seemingly complex inter-dimensional, inter-time reality of human 
 evolutionary design can be simply understood by viewing each of the four 
 Rounds of Angelic Human Seeding-3 as taking place right now, in space-
@@ -1832,7 +1659,6 @@ activate.  Activation of Earth’s Templar in the present SAC is progressively
 creating a temporary blending of Time Vectors between the past, present 
 and future Time Vectors in which the other Rounds of the Christos Realign-
 ment are concurrently taking place. 
- 
      If contemporary humanity fulfills its intended role as part of the
  Christos Realignment Mission Team, by consciously anchoring our portion
 of the D-12 Shield of Aramatena Christos Field in our Time Vector, the suc-
@@ -1840,7 +1666,6 @@ cess of the Christos Realignment can be finally achieved. If we do our part,
 we will create a link through time, energetically connecting our present 
 Time Vector to the past and future Time Vectors in which the other evolu-
 tionary Rounds are being successfully orchestrated. 
- 
      Through this Trans-time Connection, our present Time Vector will 
 “phase-lock”, or lock into alignment with, the probable future Time Vector 
 and its corresponding past Time Vectors, in which the Christos Realign-
@@ -1859,11 +1684,7 @@ every present moment point as a series of electromagnetic “rays”, or inter-
 connected, cyclic patterns of linear progression with varying rhythms of 
 vibrational oscillation.  A Time Cycle, and its inherent Time Continua and
 smaller Time Vectors are all fixed, repeating cycles of frequency character-
-286 
-                                                                         
- 
 
-                                                                  
                                   Four Evolutionary Rounds, Co-Resonant Continuum
   ized  by vibrational variance, that cross through each other at fixed points 
 when the frequency rhythms that define each cycle reach a temporary state of 
@@ -1893,7 +1714,6 @@ present moment of power). Once the remembered and evidential past is
 incorporated into the present moment, the entire frequency pattern in the
 present needs to be altered into vibrational co-resonance with the frequency 
 pattern of the desired future manifestation. 
- 
     There are many complex elements to mastering the skill of projecting
 desired outcomes into our personal experiential future. Though each individ-
 ual does possess the inherent power to create desired manifest experience, 
@@ -1909,10 +1729,8 @@ the human evolutionary collectives, that exist within each Time Vector.  It is
 due to these greater hidden influences of  the Planetary Time Continuum, 
 which operate through the collective sub-conscious and DNA Templates of 
 incarnate species, that our individual efforts to achieve precise results in 
-287 
 
 The Angelic Human Heritage and Rainbow Roundtables     
-                       
 direct manifestation of desired events often fall short of our conscious 
 expectations.  
     Shifting a present-moment Time Vector into a different Time Contin-
@@ -1957,7 +1775,6 @@ shifted from its present Time Vector into a Time Continuum that holds a
 within the Christos Realignment Mission during the 2000-2017 SAC, we 
 will be able to establish a literal, inter-dimensional electromagnetic Trans-
 Time Connection from our present period, to the SACs taking place in 
-288 
 
                           Four Evolutionary Rounds, Co-Resonant Continuum...
 other periods of past and future. In fulfilling our Divinely Intended Mission 
@@ -1981,18 +1798,6 @@ Fourth Round role in anchoring the frequencies of the D-12 Shield of Aramatena
 Christos Divine Blueprint are, thankfully, relatively simple. The methods by which 
 humanity can fulfill its intended Sacred Mission can be found within the Secrets of the
 Tribal Shield Rainbow Roundtables. 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
-                            
                                                                  Key   to   Following    Diagram:
 The Angelic Human Race was created as the Security Team for the
 Templar Complex Star Gate System in our Time Matrix. The DNA 
@@ -2003,23 +1808,10 @@ els. The DNA Signet Codes are “Flame Codes,” denoting the spe-
 cific primary frequency spectra of the three Primal Creation  
 Currents (Blue-Eckatic, Gold-Polaric, Violet-Triadic) carried in 
 the DNA Template. 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
-289
 
 
-                                            
                                                                        The “Cycle of the Rounds”
                                     THE “CYCLE OF THE ROUNDS” 
-         
      The four Interrelated Evolutionary Cycles of 12-Tribes Seeding-3
                                        EVOLUTIONARY ROUNDS 
     • The Seeding-3 12-Tribes Angelic Human Races were seeded on Earth in
@@ -2035,7 +1827,6 @@ the DNA Template.
          Round is intended to serve a part in fulfilling humanity’s Divine Commis-
           sion, the Sacred Mission of Planetary Guardianship for which Angelic
             Humans were seeded on Earth. 
-                                   
                                            FIRE LETTER SEQUENCES 
   • The Angelic Human and Maji Cloister Races of each Evolutionary Round
       anchor frequency into Earth’s Planetary Shields through the scalar-stand-
@@ -2043,7 +1834,6 @@ the DNA Template.
        plate Core. The DNA Templates of the Angelic Human Races within
        each Evolutionary Round Cycle are built upon specific scalar-standing
          wave Light-Sound patterns called Fire Letter Sequences. 
- 
     • The Manifestation Templates of all things and systems are built upon spe-
       cific, fixed organizations of dimensionalized frequency bands. Each di-
         mensional band has 12 Fire Letters, or fixed points of consolidated
@@ -2059,18 +1849,14 @@ the DNA Template.
       Planetary Shields. The DNA Templates of each Race in each Evolution-
        ary Round holds a specific portion of the Fire Letter Sequences corre-
           sponding to Earth’s Planetary Shields. 
- 
      • As an Angelic Human Race Round evolves on Earth, the correct Fire Letter
     Sequences of the Universal Christos Divine Blueprint, the D-12 Shield
     of Aramatena (Earth’s D-12 Pre-matter Liquid-Light Template) transfer
    from the Angelic Human DNA Template into Earth’s Planetary
      Shields. This transfer of Fire Letter Sequences, or scalar-standing-wave                                                                                        
        frequencies, takes place through the Universal Kundalini, Maharata, Kee- 
-  291 
-                                                                                                              
 
         The Angelic Human Heritage and Rainbow Roundtables 
-   
     Ra-ShA and Khundaray Life Force Currents that run through the human
      body and Planetary Shields. The process of Fire Letter Sequence transfer
       from Angelic Human DNA to Earth’s Planetary Shields functions proper-
@@ -2078,7 +1864,6 @@ the DNA Template.
       quences corresponding to the Universal Christos Divine Blueprint
     natural order of the 12 Dimensions of manifestation within the Universal
        15-Dimensional Scale. 
-         
               ANGELIC HUMANITY’S ORIGINAL SACRED MISSION 
        •  The Divine Commission of the Angelic Human Race, the Sacred Mission
         for which we were originally seeded on Earth, is to correct the Fire Letter
@@ -2114,18 +1899,12 @@ the DNA Template.
           ing a SAC, Earth’s grids will progressively receive the Fire Letter Se-
        quences needed for the Planetary Shields to synthesize the Star Gate
                   frequencies normally. 
-                  
                     •  Infusion of the correct Fire Letter Sequences enables the planet to retain                               
- 
              its natural electromagnetic balances and axis alignment during SACs.
                 •  If the Angelic Human races in each of the four Evolutionary Rounds can
                    simultaneously fulfill their part in running the correct Fire Letter Se-
-                         292 
-     
 
-                                                                               
                                    Angelic Humanity’s Original Sacred Mission
-    
           quences into Earth’s Planetary Shields during a SAC, the Planetary
            Christos Realignment Mission will be successfully completed. Comple-
           tion of the Planetary Christos Realignment will create a natural “D-12
@@ -2156,11 +1935,8 @@ present Time Continuum, the Palaidia Races were invaded by Fallen An-
          with the Time Continuum in which the other three Rounds of the Chris-
          tos Realignment Mission are occurring successfully; the Christos Re-
             alignment Mission will thus finally reach completion. 
-                  
-                     293                                                                                                        
 
 
-                                                                
                                                                      The 12 Tribes and the Roundtables
                        THE 12 TRIBES AND THE ROUNDTABLES
   • The 12-Tribes of the four Rounds of the Angelic Human Cycle of the
@@ -2194,22 +1970,8 @@ present Time Continuum, the Palaidia Races were invaded by Fallen An-
  • The Time Cycles of the past and future Evolutionary Rounds are intimately
    interconnected with our present Time Cycle; each Round directly affects
         the other. 
-     
-     
-        295
-  
- 
- 
- 
- 
- 
- 
- 
- 
- 
 
    The Angelic Human Heritage and Rainbow Roundtable
-    
         12-CYCLES, SIMULTANEOUS INCARNATION, AND DNA 
  • The reality of the Cycle of the Rounds holds great personal significance as
                       well as unprecedented collective importance. The individuals incarnated
@@ -2250,14 +2012,7 @@ present Time Continuum, the Palaidia Races were invaded by Fallen An-
      the Parallel Earth Planetary 12-Cycle. An Angelic Human with a 12-
      Strand DNA Template has 1728 simultaneous selves manifest within
        1728 Time Vectors of Two Planetary 12-Cycles. 
-        ___________________________ 
-         
-   
     1.   216 selves x 4 Rounds = 864 selves + 86 anti-particle counterpart selves within the Par-
              allel earth system = 1728 selves. 
                     2.   72 Time Vectors per Planetary Time Cycle x 3 Planetary Time Cycles = 216 x 4 Rounds = 
-                                  864 Time Vectors. 
- 
-                       296 
-                      
-                           
+                                  864 Time Vectors.

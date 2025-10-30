@@ -1,8 +1,5 @@
 # Chapter 15
 
-                                             
- 
- 
                         12-Cycles, Simultaneous Incarnation, and DNA
 •  Indigo Children Maji Grail Line Angelic Humans with 24-Strand DNA
           Templates have 1728 simultaneous selves incarnate in 1728 Time Vec-
@@ -44,14 +41,7 @@
           Shield and the specific ''Fire Letter Sequence'' of the Tribal Shield that
          manifest within and govern the function of the Angelic Human DNA
            Template. 
-                                                                                           
-     
-     
-     
-      297 
 
-                                           
-                     
                    The Angelic Human Heritage and Rainbow Roundtables
                   THE  REALITY  OF SPIRITUAL  INTEGRATION 
 • Spiritual Actualization is as much a function of Divine Physics as it is a
@@ -63,14 +53,12 @@
      Christos Tribal Shield Species Manifestation Template are microcosmic
       replicas of the macrocosmic Primal Order upon which Universal and Cos-
         mic structure are built. 
- 
 • The tangible realities of human Spiritual Actualization take place through
      the Primal Order of the Angelic Human 12-Strand DNA Template.
       Each DNA Strand Template holds a specific set of “Internal Star Gates”
        that allow for the progressive merging of the consciousness and energy fre-
      quencies of the 1728 selves incarnate within the Two Planetary 12-Cy-
         cles of the Cycle of the Rounds. 
- 
 • Spiritual Actualization as a reality, rather than as a theoretical concept,
      takes place through progressive activation of the dormant 12-Strand
      DNA Template. Each DNA Strand Template corresponds to one dimen-
@@ -86,10 +74,7 @@
      mant Angelic Human 12-Strand DNA Template is through activation of
      the Tribal Shield, the Species D-12 Christos Divine Blueprint, which
      represents the core programming of the personal D-12 Maharic Shield.
- 298 
-                     
 
-                                                                                                                                                  
                                                                                               Activating the Tribal Shield
                          ACTIVATING  THE  TRIBAL  SHIELD 
  •  The 12-dimensional Tribal Shield is the dormant Species Divine Blueprint
@@ -129,15 +114,11 @@
    Planetary Christos Divine Blueprint, the Shield of Aramatena, to          
  achieve fulfillment of Angelic Humanity’s Sacred Commission of the
         Planetary Christos Realignment Mission. 
-    299 
 
 
-   
                  The fastest means of naturally activating the Personal 12-Strand DNA
-        
      THE FASTEST MEANS OF NATURALLY ACTIVATING THE
                           PERSONAL 12-STRAND DNA TEMPLATE 
-  
   1.Tribal Shield Activation: Activating the 144 Fire Letters of the Tribal
       shield. 
    2.Emerald and Amethyst Awakening 2 Masters Kundalini Activations: Re-
@@ -163,8 +144,6 @@
       rents integrated into their DNA Template from birth. Expedites all of the
         above while providing additional bio-energetic field support for more
              stable cycles of DNA Template activation. 
-                         
-                           
                                   CHRISTOS IDENTITY INTEGRATION 
 Through progressive activation of the 12-Strand DNA Template the DNA
       ''Internal Star Gate'' between the 1728 simultaneously incarnate selves
@@ -182,18 +161,13 @@ Soul Integration: Activation of DNA Strand Templates 4-6 opens DNA
            Primal Life Force Current.   
       Over-Soul Integration: Activation of DNA Strand Templates 7-9 opens
       DNA Gates between incarnates in Planetary Times Cycles 1-2-3,-4  
-    301 
-                                                                                                                  
 
-       
     The Angelic Human Heritage and Rainbow Roundtables 
-   
        5-6 and 7-8-9. The 9th Strand Activated Being possesses 9-dimensional
        consciousness, is a fully embodied over-soul, can pass through Universal
        Star Gates 1-9 of Densities l, 2 and 3 via formation of the 9-dimensional
        Quatra Phase Merkaba Vehicle and building of dimensions 1-9 of the
           complete Antahkarana Primal Life Force Current. 
- 
  Christos Avatar Integration: Activation of DNA Strand Templates 10-12
        opens DNA Star Gates between incarnates in Planetary Times Cycles 1-
        2-3, 4-5-6, 7-8-9 and 10-11-12. The l2th-Strand Activated Being pos-
@@ -202,7 +176,6 @@ Soul Integration: Activation of DNA Strand Templates 4-6 opens DNA
          4 via formation of the l2-dimensional Mahunta Phase Merkaba Vehicle
          and building of dimensions 10-12 of the Christos Maharata Primal Life
        Force Current, capable of full Ascension out of manifest matter density. 
-                      
                              REALITY OF THE ROUNDTABLES 
  • The Planetary Christos Realignment Mission was designed to take place as
          the members of the Angelic Human races in each of the four Evolution-
@@ -235,14 +208,7 @@ Soul Integration: Activation of DNA Strand Templates 4-6 opens DNA
       Tribes represents their genetic lineage, they can direct their Rainbow Ray
       Current and Tribal Shield Fire Letters directly to the Star Gate and Ac-
           tivation Site to which their DNA Template corresponds. 
-    
-    302 
-       
-   
-        
 
-                                                                            
-                                                          
                                                      12 Tribe Names and Sacred Psonns 
       • If the specific 12 Tribe lineage cannot be determined, individuals can use
      the Sound-Symbol Program of “Tribe-13” the Universal Tribe contain-
@@ -253,7 +219,6 @@ Soul Integration: Activation of DNA Strand Templates 4-6 opens DNA
                      pound tonal programs that represent the audible sound translation of the
                   specific frequencies carried in the Tribal Shield DNA Template Fire
                       Letter Sequences. 
-                           
                           12 TRIBE NAMES AND SACRED PSONNS 
    • The original names of the Angelic Human 12-Tribes were spoken in the
     first of five Christos Languages; the Mu’a/Anuhazi language of the
@@ -273,42 +238,23 @@ Soul Integration: Activation of DNA Strand Templates 4-6 opens DNA
      Tribal name  was the Master Psonn. In running the Rainbow Roundta-
      bles, the Signet Council Regents bring their Tribal Shield ‘‘Flame Codes’’
           into activation by singing rounds of the Sacred Master Psonns.  
-                                                        
- 
- 
- 
- 
- 
- 
       . The true Angelic Human 12-Tribes names were intentionally changed and       
             the knowledge of the Mu’a Anuhazi language strategically concealed on 
-         
            Earth by Fallen Angelic legions and their Illuminati Human hybrid races. 
-              
- 
     The tactic of deception was used to ensure that the Angelic Humans of 
-               
- 
     Earth would be unable to activate their Tribal Shield DNA Template                        
            Flame Codes to run the Rainbow Roundtables during the 2000-2017 AD 
-                  
               Stellar Activations Cycle, so pole shift and destruction of the Angelic Hu-
           man race would take place during the 2000-2017 SAC. 
- 
   • This ill-intended agenda can be stopped if Angelic Humans are willing to
      assist Guardian Nations in running the Rainbow Roundtables between
          2002-2012 
-                         
                   THE THREE KEY ELEMENTS OF THE CYCLE OF THE ROUNDS
-                        
                                     Key Element- 1: “The 12 Signet Tribes and Races List” 
-                 
               • The methods by which we can fulfill our intended part of the Planetary
         Christos Realignment become apparent through understanding Three
-                      303 
 
                  The Angelic Human Heritage and Rainbow Roundtables
-      
          Key Elements  of   the  Cycle of the Rounds  Angelic Human  evolutionary
       design. 
 • Element-1. The 12 Signet Tribes and Races List: The list of Signet An-
@@ -329,23 +275,6 @@ Soul Integration: Activation of DNA Strand Templates 4-6 opens DNA
      Ton'' Keys we need to rapidly initiate accelerated “Fire Letter” activa
        tion sequences in our dormant 12-DNA Templates, to expedite embod-
   iment of our personal D-12 Inner Christos “Maharic Shield" Template. 
-  
- 
- 
- 
- 
- 
- 
-   
- 
- 
- 
-   
- 
- 
- 
- 
- 
 • Progressive embodiment of our Personal Divine Blueprint, the D-12 Pre-
     matter Maharic Shield allows us to progressively attain real 12th-dimen-
           sional ''Christ Consciousness,'' rather than false “Christ conscious-
@@ -375,10 +304,7 @@ Soul Integration: Activation of DNA Strand Templates 4-6 opens DNA
      discern which Star Gate is waiting to receive our personal “piece of the
     Christos” to ''fill in the frequencie'' of its own Divine Christos Blue-
        print. 
- 304 
- 
 
-  
                                                  The Three Key Elements of the Cycle of the Rounds 
                             Key Element-2: “The Signet Maps and Keys’ ’ 
    • The Cycle of the Rounds Key Element-1, The 12 Signet Tribes and Races
@@ -429,12 +355,8 @@ Soul Integration: Activation of DNA Strand Templates 4-6 opens DNA
         Planetary Christos Realignment and the Founders’ Emerald Covenant
       Vision of Angelic Human freedom can be actualized. Key Element-3 is
       called the ''Rites of the Rainbow Roundtable'' 
-305 
-                                                                                                                                                 
 
-                                           
     The Angelic Human Heritage and Rainbow Roundtables 
-                
                         Key Element-3: “Rite of the Rainbow Roundtable” 
  • Key Element-3 in the Cycle of the Rounds is called the Rite of the Rain-
         bow Roundtable (RRT) which is composed of two primary components.
@@ -480,15 +402,9 @@ Soul Integration: Activation of DNA Strand Templates 4-6 opens DNA
          magnetic fields generated by DNA Template-activated bodies. Key Ele-
          ment-3: The Rites of the RRT is drawn from one of the “Books of Process,”
            stored on CDT Signet-plate 12. 
-     
-   
-      306 
-                   
 
                                                                                                Tribal Shield Dynamics
-                                  
                                         TRIBAL SHIELD DYNAMICS 
-           
                Tribal Shield Activation, “Fire Letters” and the DNA Template 
   • The Tribal Shield refers to the core programming of Fire Letters held with-
           in the personal DNA Template. The personal 12-Strand DNA Template
@@ -529,22 +445,14 @@ Soul Integration: Activation of DNA Strand Templates 4-6 opens DNA
             Fire Letter Sequencing between the 12- Tribes seed races allows each
              Tribe to draw and transmit a specific arrangement of frequencies and spe-
              cific dimensions of consciousness, into Earth’s Planetary Shields. Each of
-           __________________________ 
- 
- 
 1.   12 Fire Letters per Strand x 12 Strands. 
 2.   12 Vector Codes per Fire Letter x 144 Fire Letters. 
 3.   12 Fire Letters per Strand x 48 Strands. 
 4.   12 Vector Codes per Fire Letter x 576 Fire Letters.
                               5.    Contemporary humanity carries an averag of 2.5 to 3.5 DNA Strand Tempate activ-
                                      tion level. 
-                          307                                                          
-                                                                                                                              
 
-                                                                                 
      The Angelic Human Heritage and Rainbow Roundtables  
- 
-   
    the l2 Angelic Human Tribes is designed to enter a specific part of the
     D-12 Shield of Aramatena Universal Christos Divine Blueprint into
    Earth’s Manifestation Template, in fulfillment of the Planetary Christos
@@ -569,7 +477,6 @@ Soul Integration: Activation of DNA Strand Templates 4-6 opens DNA
       tion through which the Planetary Christos Realignment can be fulfilled,
        our personal DNA Templates must progressively open to allow the fre-
        quencies from the other related Time Vectors to enter Earth’s present
-                 
      Time Vector 
   • The human DNA Template was designed to allow for this Trans-Time Con-
      nection frequency bridge. Through activating the proper sequences with-
@@ -594,9 +501,7 @@ Soul Integration: Activation of DNA Strand Templates 4-6 opens DNA
         Humans capable of fulfilling the Planetary Christos Realignment Mis-
         sion. As empowered Angelic Humans, we reclaim our heritage, our innate
        divinity, our ability to love unconditionally and wisely, and we reclaim
-    308 
 
-                                                                               
                                                                               Tribal Shield Dynamics 
 our personal and collective freedom to have a direct, immediate and per-
 sonal co-creative relationship with Source-God. The Tribal Shields Acti-                     
@@ -611,16 +516,10 @@ out having to physically visit the locations of Earth’s Star Gates and
 Templar Cue Sites. Through Tribal Shield Activation we reclaim the
 ability to remotely activate the 12 Signet Shields and Signet Plates,
 Earth’s Star Gates and the Planetary Christos Blueprint. 
-309 
 
-                
-                                                               15
-                         
-                      
                     The Atlantian Conspiracy and
                                    Roundtables
                                        LONG-TERM PROBLEMS AND IMMEDIATE SOLUTIONS
-                                          
                                               Rainbow Roundtables
  • The Sacred Science Mechanics by which the Planetary Christos Realign-
         ment can be fulfilled have long been hidden within the Legends of King
@@ -648,12 +547,7 @@ Earth’s Star Gates and the Planetary Christos Blueprint.
          of Angelic Human races to later resettle their hybrid races on Earth, “after
          the dust settles,” under a “One World Order” Anti-Christiac Agenda of
        totalitarian exploitation and dominion.
-310 
- 
- 
-     
 
-                                                                                                                             
                                                                                               The Atlantian Conspiracy
                                   THE ATLANTIAN CONSPIRACY
      • The Fallen Angelic/ Illuminati Human Anti-Christiac Agenda gained a
@@ -700,9 +594,7 @@ Earth’s Star Gates and the Planetary Christos Blueprint.
             which time the Atlantian Islands of Nohasa and Bruah fell to Annu-
            Melchizedek Anunnaki-Human hybrid and Fallen Jehovian and Lucifer-
         ian Anunnaki control.  
-  311  
 
-                                                                      
  The Atlantian Conspiracy and Roundtables
   • The Anti-Christiac Agenda of the Luciferian Anunnaki Races (not all
        Anunnaki are in the “Luciferian” category; some run competing dominion
@@ -739,7 +631,6 @@ Earth’s Star Gates and the Planetary Christos Blueprint.
           DNA Template Fire Letter Sequencing. Our race has been amnesiac,
       dying young and “babbling on” in rhetorical conﬂict ever since. This his-
                          torical event was recorded as the Biblical “Tower of Babel” story. 
-                 
                    • Following the Babble-On Massacre of 3470 BC, Fallen Angelics selected
             “Chosen Ones,” Annu-Melchizedek hybrid descendants, for minimal
               DNA Template repair and implantation, through which the Luciferians
@@ -752,10 +643,7 @@ Earth’s Star Gates and the Planetary Christos Blueprint.
                the Angelic Human heritage. They are once again ''channeling'' to us
                and visiting today as the dominant force in the New Age and UFO
               Movements. 
-        312   
 
-                                                                             
-                                                                                              
                                                                                                      The Atlantian Conspiracy
                          • “D-12 Maharic Sealed Channels” can create protection from interdimen-
              sional manipulation of their natural bio-neurological communication
@@ -801,16 +689,9 @@ Earth’s Star Gates and the Planetary Christos Blueprint.
                human races, whose DNA Templates carry reverse sequenced Fire Let-
           ters. During a Stellar Activations Cycle, the Arc Tools, the still-func-
           tioning Nibiruian-Diodic-Crystal Grid (from 25,500 BC), Nibiruian
-    ______________________________________ 
-     
 1.     Known as the Leviathan Anti-Christiac: King lines.    
- 313                                                      
- 
-                                                                                                      
 
-                                                                          
     The Atlantian Conspiracy and Roundtables
-  
                  controlled Solar Star Gate-4 and the false-planet Battlestar Nibiru can
                be used to create intentional pole shift on Earth to ''clear the real estate.''
      •  If they can successfully exterminate Angelic Human Races from Earth, the
@@ -858,9 +739,7 @@ Earth’s Star Gates and the Planetary Christos Blueprint.
         •  To protect the Arc of the Covenant Gold Box and star gate tools, John and  
               Miriam completed part of the journey to Lohas, burying the Arc of the
                     Covenant Gold Box and tools in the area now known as the Vale of Pew-
-           314
 
-                                           
                                               King Arthur and the Knights of the Roundtable
       sey, England. Jesheua and his group of Maji served as a Signet Council, a
         group of Angelic Human Maji commissioned to ''Run the RRT'' prepar-
@@ -878,8 +757,6 @@ Earth’s Star Gates and the Planetary Christos Blueprint.
        and the hunt for the Arc of the Covenant Gold Box and star gate tools
        continued in the drama of King Arthur and the Knights of the Round-
         table. 
-    
-     
         KING ARTHUR AND THE KNIGHTS OF THE ROUNDTABLE
 •  King Arthurus, or “Arthur” was born from a Druidec Maji Grail King lin-
           eage originally from Nohasa and later exiled to Lohas Atlantis. Arthur
@@ -891,7 +768,6 @@ Earth’s Star Gates and the Planetary Christos Blueprint.
          gate tool from the Arc of the Covenant Gold Box, which Arthur and
            Victorous (son of Meridan) retrieved from the Vale of Pewsey in En-
         gland, where John and Miriam had buried it in 23 AD. 
-   
 • Victorous, son of Meridan, came to be known as “Merlin” Arthur’s Vizier
        and court mystic in the Arthur Legends. Victorous’ father Meridan was a
         Knights Templar Annu-Melchizedek Black Arts Occultist, his mother
@@ -910,10 +786,7 @@ Earth’s Star Gates and the Planetary Christos Blueprint.
           style,” romanticizing Victorous (''Merlin'') and other characters that as-
            sisted the Knights Templar in undermining Arthur’s Emerald Covenant
           Mission.      
-    315 
-                                                                                        
 
-                                        
      The Atlantian Conspiracy and Roundtables
  • Throughout the Arthurian drama (559-608) the Luciferian Knights Tem-
             plar Annu-Melchizedek Illuminati Human races, under the direction of
@@ -963,11 +836,8 @@ Earth’s Star Gates and the Planetary Christos Blueprint.
           AD the Cathars, Maji Grail King families of southern France were de-
            stroyed by the Omicron-Drakonian held Church of Rome in the Albigen-
                sian Crusade. Many murderous crusades followed, including the     
-        
-         316   
 
                                                     King Arthur and the Knights of the Roundtable
-        
          decimation of the Bruah-Atlantis and Mu’a-Lemuria Maji Grail King
           Amerind lines of North America, in the European quest for the ''New
            World.'' 
@@ -1016,13 +886,8 @@ races began physical interaction with Earth on behalf of the Zephelium
        • In the 1930s the Necromiton (Beetle-reptile-insect-hominid) races of An-
             dromeda became involved with certain factions of the Drakonian Illumi-
         nati Human Interior Government, initiating the ''Men in Black''  
- 
-                                                                                                                         
-       317
 
-                                                                                                                                                                           
    The Atlantian Conspiracy and Roundtables                                                                          
-        
              phenomenon; some assisting the Luciferian Pleiadian-Nibiruian races of
             the Luciferian Covenant, others supporting the Drakonian Agenda races.
    • In November 1992, the Emerald Covenant Maharaji Blue Human and
@@ -1070,9 +935,7 @@ Gate-4 by August 2000.
          anticipated events, the Maji Grail King lineage Indigo Children Types-
             1 and 2 have been incarnating on Earth for the past I00 years. The Maji
            races are here to assist the Angelic Human 12-Tribes of contemporary   
-  318 
 
-                                   
                                 Progression of Major Events in the Atlantian Conspiracy
   Earth in completing the Emerald Covenant Mission that King Arthur,
         and Essene Jesheua before him, were unable to fully complete.
@@ -1094,7 +957,6 @@ tempting to accomplish.
    RRT” Star Gate Signet Councils today, the ancient Anti-Christiac At-
   lantian Conspiracy One World Order Dominion Agenda of the contem-
   porary UIR can be overcome in our present time period.
-                            
                               PROGRESSION OF MAJOR EVENTS
                              IN THE ATLANTIAN CONSPIRACY
 • 50,000 BC- Lemurian Holocaust: Jehovian Anunnaki and their Annu-
@@ -1117,15 +979,9 @@ tempting to accomplish.
         Kauai, Hawaii location and seize major territories of Bruah and Nohasa
           Atlantis, sending Atlantian Semoli-Bruah and Druidec-Nohasa Maji
         Grail King races into exile to Lohas, Atlantis and Ionia ( Italy, Greece)
-   
-     ________________________
    2.    Omicron-Drakonian + Human
    3.    Anunnaki + Omicron Drakonian
-  319
-  
-   
 
-                             
    The Atlantian Conspiracy and Roundtables
 • 21,900 BC-Lohas-Celtec-Druidec Freeze Out: Pleiadian-Nibiruian Lucifer-
        ian Anunnaki and Galactic Federation intentionally collapse Firmament
@@ -1175,9 +1031,7 @@ tempting to accomplish.
       In 9540 BC the Sirius B Maharaji Blue Human Emerald Covenant Races
       give Rod and Staff Star Gate Tools in “Arc of the Covenant Gold Box”
       to Maji Grail King lines of Earth to keep open contact with Inner Earth
- 320 
 
-                                  
                                Progression of Major Events in the Atlantian Conspiracy
        races via Earth’s portal system. Luciferian, Jehovian and Drakonian quest
        for possession of the Arc Tools begins, as does intentional falsification
@@ -1225,5 +1079,3 @@ tempting to accomplish.
        raji Blue Human Emerald Covenant Races intervene with air raids to stop
        Luciferians’ use of the Arc Tools for pole shift. Maji Grail Kings retrieve
        Arc Box. Partly recorded in Sanskrit Mahabharata Texts.
-  321
-      

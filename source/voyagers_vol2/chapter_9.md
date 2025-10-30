@@ -1,7 +1,5 @@
 # Chapter 9
 
-                                                          
-                                                                 Time-Cycle Mechanics and Evolution
 45° shift is a 45° reverse angular rotation of particle spin. Earth enters HU-2
 with its particles at a 45° angular rotation from their original position upon
 entering HU-1 (+90°, -45° = +45° shift). In the progression from one Har-
@@ -44,13 +42,10 @@ ity, time is not linear, but simultaneous.
 spinning on various angles of rotation, through which the illusions of manifest space
 and linear time appear to individuated identities, as they bring segments of the Uni-
 ﬁed Field of particle substance into view by moving their consciousness through por-
-147 
-                                                                                                                                
 
 Current Events 
 tions of the Uniﬁed Field. Time does not move. Consciousness moves itself through
 the Uniﬁed Field of the Time Matrix. 
-                           
                             Incarnational Identities, the Time Cycles, 
                                     DNA and Planetary Evolution 
     The evolution of life-forms upon the planet also takes place simulta-
@@ -91,7 +86,6 @@ awareness. Earth evolves through the HU-1 time cycles, expanding its mor-
 phogenetic field and raising the pulsation rhythm of its particle content, until
 Earth evolves into the HU-2 time cycles to become Tara. As you move
 through HU-l time cycles with Earth, assembling your DNA and expanding
-148 
 
                                                         Time-Cycle Mechanics and Evolution
 your consciousness, you evolve into the HU-2 time cycles to become your
@@ -112,7 +106,6 @@ and progressively open the windows through time into other space-time coor-
 dinates within other time cycles. Through DNA assembly, the Cellular Mem-
 ory, which is subconsciously stored within the cellular-body consciousness,
 progressively opens into conscious perceptual recognition. 
-   
     In your current time continuum, you technically have one-half cycle
 remaining within your third-dimensional time cycle. Earth’s morphogenetic
 field has pulled in only half of the frequency patterns of the third dimension.
@@ -137,9 +130,6 @@ and events. Present external earthly reality represents the energy patterns of
 Earth’s body and the Unified Field in the low to middle frequency bands of D-
 3, in the fifth time continuum, at accretion levels 2—2.5. In order to perceive
 the 2—2.5-accretion level of Earth as solid, consciousness must be stationed
-149 
-                                                                                                                       
-                                                                                                                 
 
                    Current Events
 within the low to middle D-4 frequency bands at an accretion level of 3- 3.5
@@ -185,9 +175,7 @@ strands assembled. The strand assembly and activation level of the DNA cor-
 responds directly to the number of dimensional frequencies contained within
 the morphogenetic field of the consciousness. The number of dimensional fre-
 quencies contained within the personal morphogenetic field corresponds
-150 
 
-                                                                                  
                                                                                   Time-Cycle Mechanics and Evolution
 directly to what dimensional levels of the Earth’s body, and what time con-
 tinua, will be perceived as physically manifest reality, to that consciousness. If
@@ -232,8 +220,6 @@ continua, entering into the present moment station of awareness.
 is presently stationed, represent the now-moment stream of consciousness,
 which is always the point of personal creative power. Thoughts held in the
 present moment focus of conscious attention will be left as imprints of ener-
-151 
-                                                                                                                
 
    Current Events 
 getic substance within the frequency bands in which those thoughts were
@@ -279,22 +265,7 @@ into matter”. Have you ever considered where thoughts go once your atten-
 tion has left them? Part of what appears to you as manifest reality now, from
 your D-4 station of attention, represents your thought-forms, and those of the
 collective masses, that were left behind as morphogenetic fields when your
-152 
-                 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
 
-                                                            
                                         Time-Cycle Mechanics and Evolution
 conscious focus of attention was stationed in the dimension below your
 present focus. Part of what you see before your eyes represents the living
@@ -339,9 +310,6 @@ to recreate undesired events and redesign more desirable outcomes. The slow
 way to release slower-pulsating thought patterns and their manifest discom-
 forts from your life is to wait until the events manifest in external reality, or as
 conditions of disease within the body. Then you take action in the present to    
-153                                                                                                                
-                                                                                                              
-                                                                                      
 
   Current Events 
  create a present solution, and that solution expands backward and forward in 
@@ -356,12 +324,10 @@ from the past and future become part of the particle make-up of your con-
 sciousness, bio-energetic field, body, DNA and external reality field. They
 become stored in the DNA as minute crystallizations of energy, which inhibit
 the natural process of DNA strand assembly. 
-             _____________________________________________________________
        The crystallized thought patterns stored in your DNA and cellular imprint will
 continue to manifest within your body and before your eyes, until you learn to ﬁnd
 and release them while they are still within the Cellular Memory imprint of your
 body. This is easy to do, with practice. 
-          ____________________________________________________________
    To release your crystallized thought patterns from your DNA and cellu-
 lar memory imprint, please refer to Field Exercise 1, on page 495, and prac-
 tice it now. Through exercises of this nature you are learning to consciously
@@ -388,9 +354,7 @@ frequencies of energy released from the thought-form, one can become
 extremely ill in physical terms, or the mental and emotional bodies can
 become severely unbalanced. The outer events of one’s life content and rela-
 tionships can also turn to chaos during rapid cellular activations, as multiple
-154 
 
-                                                           
                                                                  Time-Cycle Mechanics and Evolution
 karmic dramas begin to manifest themselves at every turn. When you partic-
 ipate in accelerated DNA evolution you are rapidly shifting and elevating the
@@ -432,19 +396,9 @@ whether or not one is on the path of ascension, or interested in spiritual activ
 planet will begin to have cellular activations directly through the Earth’s grid, due 
 to the coming Stellar Spiral alignments and the planetary Stellar Activations  these 
 alignments will create. 
- 
- 
- 
- 
- 
- 
- 
- 
  The human bio-energetic field is directly connected to that of the Earth,
   and when the energy infusions of the Stellar Activations begin running through
      Earth’s grid, progressively accelerating between   now and  2017, the   human   body       
-    155                                                                                                                               
-                                                                                                                               
 
    Current Events 
 will also receive these energy infusions. These energy infusions will cause a rapid
@@ -467,9 +421,7 @@ Activation energy infusions will begin, so we suggest that you begin preparing
 now, as these skills take a bit of time and practice to develop. We recommend
 that you clear as many of these hidden karmic imprints as possible before 2012,
 when they will begin to rapidly burst into physical manifestation. 
-                                                          
                                                       DNA
- 
                     DNA Initiations, Consummations and Activations 
     Before we resume our discussion on the mechanics of the Bridge Zone,
  we would like to share with you a little secret about human DNA. Presently
@@ -490,11 +442,7 @@ when they will begin to rapidly burst into physical manifestation.
  patterns from the dimensional Unified Field. 
     When you are assembling your fourth DNA strand your consciousness will
   be stationed within the fourth dimension and you will perceive the Unified
-   156 
-  
 
-                                                                                                                      
-                                                                                                                
                                                                                                                  DNA
 Field of the dimension below in terms of matter solidity. It is the present focus
 of your consciousness that magnetically draws frequency patterns from the
@@ -539,20 +487,7 @@ ception as physically manifest form.
     As we have mentioned, consciousness will perceive as physical reality
 the energy patterns of the frequency bands that exist one full dimension
 below the station of awareness. The progressive DNA Initiations of one
-157 
-                                                                                                                                                                         
- 
- 
- 
- 
- 
- 
- 
- 
- 
-           
 
-      
        Current Events 
 dimensional band create the progressive Activations of, or manifestation of
 the collective thought patterns contained within, the DNA strand that cor-
@@ -596,10 +531,7 @@ human perception. Your external reality field is the screen upon which the
 thought-forms that are stored within your cellular memory program will be dis-
 played, and the DNA operates as the electromagnetic circuitry through which
 that memory comes into perceptual manifestation. 
-158  
 
-                                                                                                           
-                                                                                                              
  DNA
       To gain creative control over your manifest events, you must edit the cellular
 memory ﬁles (clear and transmute the lower pulsating particles from the body
@@ -644,21 +576,8 @@ your help to ensure the success of the Bridge Zone Project. We need you to
 take responsibility for consciously building your personal DNA, expanding
 your consciousness, clearing your cellular memory and directing your
 thought-forms to the Bridge Zone. 
-159 
-                                                                                                                   
-                                                                                                                                                                                                                
 
-  9
-                                           
- 
-                        
-                        
- 
- 
- 
-                       
                         Time Shift 
-                    
                                 ASCENDING AND DESCENDING PLANETS 
       The Bridge Zone, Shift to Agartha, Ascending and Descending Planets
           The speed of evolution of a planet is directly connected to the rate of
@@ -688,12 +607,8 @@ tion rate of Earth will not reach 3.5 and the planet will not shift into the
 Bridge Zone Time continuum. 
   In terms of a planet shifting into another time continuum, what is
 really taking place is that the pulsation rate of particles, within the three lev-
-160 
 
-                                                              
-                                                                                         
                                                                                       Ascending and Descending Planets
-           
          els of the planet’s body, is being increased and the angular rotation of particle
 spin is being shifted. These adjustments constitute a shift of the planetary
 bodies into faster moving time cycles. The consciousness of those upon the
@@ -737,10 +652,6 @@ In the natural procession of merging the grids of Earth and Tara, the Earth’s 
 progressively raises in speed, beginning 15-20 years before the half-cycle point.
     The pulsation rate of Earth’s D-1 particles raises to the rhythm of D-4,
 Earth's D-2 pulsation rate accelerates to the rhythm of D-5 and Earth’s D-3 par-    
-161                                                                                                                             
- 
- 
-                                                                         
 
 Time Shift 
 ticles enter the D-6 rhythm. For a period of five years before the half-point,
@@ -784,13 +695,11 @@ higher chakra centers. If humanity successfully raises the pulsation rhythm of
 the particles that compose the physical, emotional and mental bodies, the
 Earth’s grid will proceed to accelerate its own pulsation rhythm into the D-4
 time cycle. Earth will reach a high enough pulsation rhythm by 2004 to shift
-162 
 
                                                                       Ascending and Descending Planets 
 out of range of the Frequency Fence transmissions and the Halls of Amenti
 plan will proceed on schedule. The Guardians are confident that humanity
 will be able to do its part now,in order to ensure its own survival. 
- 
        Earlier in our discussions we have mentioned the existence of the Inner
 Earth, Agartha, which is located in a frequency modulation zone between
 Earth and Earth’s double in the parallel universe. Agartha represents part of
@@ -829,9 +738,6 @@ follows:
     Earth's D-2 elemental body = anti-particle Earth’s D-1 iron core crystal.
     Earth’s D-3 mental body/atmosphere = anti-particle Earth’s D-2 elemen-
 tal body. 
-163 
-                                                                                                                  
-                                                                                                                  
 
 Time Shift 
     Anti-particle Earth’s D-3 mental body/atmosphere = Earth’s D-4 astral
@@ -874,13 +780,7 @@ universe) and the D-1 iron core crystal of particle Earth, (that is stationed
 within the D-1 frequency bands of the particle universe), perceptually merge
 and appear as the Sun. The Sun appears to be separated by many miles from
 Earth. From this perspective, what appears to be the physical body of Earth is
-164 
 
-                                                             
-                
- 
- 
- 
                        Ascending and Descending Planets
 actually the low to middle D-3 frequency fields, the slower-moving particles
 of Earth’s “mental body.” 
@@ -925,9 +825,6 @@ fields of D-3 that exist outside of Earth’s morphogenetic field and thus outsi
 of Earth’s physical body structure. Earth’s atmosphere is composed of the
 upper frequency bands of D-3, which represent the 2.5—3-accretion levels.
 Earth’s atmosphere is thus said to be at 2.5 accretion. 
-165  
-                                                                                                                  
-                                                                                                                                                                                                            
 
       Time Shift 
 At present, Earth’s D-2 elemental body is at 1.5 accretion and its D-1
@@ -973,7 +870,6 @@ phogenetic field of Earth and Tara. This condition is referred to as a planet
 being “cut out of the grid.” The planet is no longer attached to the evolution-
 ary imprint contained within its morphogenetic field. A phantom planet is
 no longer capable of evolving out of the Harmonic Time cycle in which it is
-166 
 
                                                                   Ascending and Descending Planets
 placed, it is no longer considered an Ascension Planet, it is called a
@@ -1011,7 +907,6 @@ be exceedingly difficult to do while under Frequency Fence control. Your
 future incarnational selves will be those humans faced with the 2976 cata-
 clysm. Through the Bridge Zone Project the severity of this future can be
 lessened. 
-        
      If  the Bridge Zone Project is successful, the D-4 time continuum, in which
 the Zetas now have their strong hold, will become free from Dracos-Zeta con-
 trol, so the 2976 AD explosion of Earth will be avoided for the D-3 Earth. The
@@ -1020,8 +915,6 @@ chances of success will be greatly reduced after losing control of the D-4 con-
 tinuum. 
     Humans remaining in the D-3 time cycle will not benefit from the genetic
 acceleration opportunity that is open to Bridge Zone humans, as they will be
-167 
-                                                                                                                  
 
 Time Shift 
 cut off from the Sphere of Amenti morphogenetic field, which will remain in
@@ -1061,17 +954,7 @@ to control your destiny for you. If you are wise, you will not surrender your
 evolutionary survival so easily. You have all the help you need to succeed, but
 humanity must also do its part and become responsible for personal evolu-
 tion. 
-168  
 
-                                                                         
- 
- 
- 
- 
- 
- 
- 
- 
  Three Tracks of Time
                                        THREE TRACKS OF TIME 
 Humanity Facing Three Probable Futures and Three Tracks of Time
@@ -1115,10 +998,6 @@ guided through personal spiritual work, to the appropriate methodology for
 their personal development. 
        Individuals who will bodily ascend will at some point in their develop-
 ment experience direct physical or conscious etheric contact with a Guardian
-169 
-                                                                                                                                                      
-                                                                                                                           
-                                                                                                                       
 
   Time Shift 
 group. At the designated time, they will be secretly brought to the location
@@ -1163,23 +1042,7 @@ have been able to ascend if they had not encountered genetic damage while on
 Earth. Cloning is used for near-ascension—level individuals who experienced
 irreparable genetic damage due to intruder ET manipulation, birth defects,
 accidents or illness suffered on Earth. 
-170 
-   
 
- 
- 
- 
- 
- 
- 
- 
-                                                                                                                    
- 
- 
- 
- 
- 
- 
                         Three Tracks of Time  
     Not all individuals taking the Transport ascension route will have their
 consciousness transferred into a clone body. Most will simply have their bio-
@@ -1223,20 +1086,3 @@ orchestration of these events. Individuals who are able to participate in this
 activity will be contacted privately and secretly guided to the appropriate
 location, just prior to leaving. Publicly conducting such activities would
 serve only to cause major chaos within your social orders, not to mention
-171 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
-                                                                   
- 
- 
- 
- 
-                                                               

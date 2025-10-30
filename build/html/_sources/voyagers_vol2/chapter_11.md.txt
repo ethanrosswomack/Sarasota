@@ -1,6 +1,5 @@
 # Chapter 11
 
-Opening the Halls of Amenti 
      Along with these events, a series of monumental occurrences were also
 to take place, as Earth entered the final phases of its ascension cycle. From
 1988 through 2017 the natural seals of Earth’s seven primary vortices/chakras
@@ -35,7 +34,6 @@ aligned with the Holographic Beam for three days in 2017. This would per-
 mit full ascension through the Halls of Amenti and the Blue and Violet
 Flames, into the Meta-galactic Core at D-8, for those who had fully assem-
 bled the sixth DNA strand. 
-         
      On 9/17/2001, the Hall of Records in Giza, Egypt, would begin opening.
 On 5/5/2012, the Flame Holders would activate the Hall of Records, and on
 12/21/2012 the Hall of Records would begin transmitting data through
@@ -45,15 +43,12 @@ Tara and Gaia had to be kept in balance and various segments of the popula-
 tion had to be guided to their appropriate ascension paths, while Guardians
 continued to monitor, side step and undo manipulation tactics of the Dracos-
 Zeta Resistance and D-4 Anunnaki instigators. 
-186 
 
-                                                                                     
                                   10/1986 through 6/1998
 After 2022, the evolutionary path for Earth’s populations would be set,
 the two versions of Earth would progress forward in their respective time
 cycles, and the three divisions of Earth’s populations would embark upon
                             their chosen paths of future evolution.  
- 
    Before all of the above events could occur the Guardians had to re-align
 the solar Merkaba Fields so the 11:11/12:12 Frequency Fence could come
 down. Once this occurred, the artificial D-4 “Christ Consciousness” grid
@@ -69,7 +64,6 @@ not allow an excessive amount of resources to be placed upon concerns of social 
 tocol. 
     We will now provide an overview of the status of your ascension schedule.
                                            10/1986 THROUGH 6/1998 
-                    
                           The Opening of Amenti — Schedule of Events 
                             What has transpired between 10/1986 and 6/1998? 
    1.   October 1986: The Arc Of The Covenant First Seal Opened. The
@@ -89,12 +83,6 @@ tocol.
      HU-3 groups to allow the ascension program to be activated for the
    human populations. Permission was given for the Guardians to intervene
     and set the Bridge Zone Project plan from 1984 in motion. Guardian
-187 
-                                                                                                                                                  
-                                                                                                              
-  
- 
- 
 
              Opening the Halls of Amenti 
    groups began keying Earth’s vortices with UHF seals to block Intruder
@@ -139,10 +127,7 @@ tocol.
    and fourth DNA strands from plugging into each other, which caused a
       block between the D-3 personality and higher self and the astral identity.
         The Fence would also block the Sphere of Amenti from transmitting D-4
-     188 
- 
 
-                                                                           
                                                                               10/1986 through 6/1998
       frequency into Earth’s grid in 2000. The Halls of Amenti could not open
    while the Fence was in place. With the return of the D-4 magnetic base
@@ -186,7 +171,6 @@ tocol.
       Amenti were no longer under full Guardian control, the responsibility for
      humanity's evolutionary destiny was now in human hands. The success of
     the opening of the Halls of Amenti and the Bridge Zone Project, which
-      189 
 
     Opening the Halls of Amenti 
 were previously controlled by the Guardians’ 11:11/12:12 Frequency
@@ -231,13 +215,8 @@ for 550,000,000 years and could not ascend from HU-1 until this “Chang-
 ing of the Guard” took place. As of 12/12/1994 the ancient Ur-Tarranate
 souls from Tara could at last disengage themselves from the Sphere of
 Amenti and continue on their own evolutionary journey through the
-190 
-    
 
-                                                                         
-                                                                        
   10/1986 through 6/1998
- 
         higher Harmonic Universes. This date of 12/12/1994 became known as
          the 12:12 and represents humanity’s true Independence Day, when the
          fate of human destiny was turned over from the custodial care of the
@@ -280,8 +259,6 @@ Amenti and continue on their own evolutionary journey through the
                     Aligned DNA Strand 3 Imprint With 12-strand Pattern. Corrected
                        Strand 3 Imprint Begins Transmitting Through Earth’s Grid. The sec-
                        ond of six Silent Avatars was born. This avatar is a D-8 soul essence from
-                       191 
-                                                                                                                                         
 
   Opening the Halls of Amenti 
      HU-3, an eighth-level avatar, with 8-dimensional frequency bands acti-
@@ -326,17 +303,12 @@ increase. In 12/1997 the Anunnaki Resistance began subliminally manipulat-
 ing populations through the primary vortex in Jerusalem, the secondary vor-
 tex in Manhattan and several other secondary vortices whose security seals
 they were able to decode and release. Following this new development, the
-192 
 
-                                                                       
                                                                        The Arc of the Covenant Opens
 odds of the second seal on the Arc of the Covenant sparking open by 6/30/
 1998 were about two million to one against the event occurring. 
                  Prospects for the Bridge Zone Project and opening the Halls of Amenti were bleak as 1998
                                                   dawned under the inﬂuence of covert ET manipulation                                                                      
- 
- 
- 
                       THE ARC OF THE COVENANT OPENS 
           In the beginning of this transmission we mentioned that we had an
           announcement to make, and we will make that announcement now.
@@ -356,14 +328,10 @@ Avatar 2 on 6/24/1996. Avatar 3 was not due to birth until the year 2000.
   Knowing the ascension plan had reached a standstill early in 1998, 
       the Elohim orchestrated the early birthing of the third avatar, 
                                        the ninth-level avatar.  
- 
-       
         With the birth of the third avatar, Earth’s morphogenetic field would
 receive a sudden burst of UHF energy as the avatar soul passed through the
 Sphere of Amenti, Earth’s core and into fetal integration, moments before
 physical birth.¹ 
-          
-         ______________________ 
 1.   Most avatar souls do not enter the fetal body anywhere near conception, as the vibra-
 tional rate of their consciousness would literally blow the physical tissue apart, cause mis-
 carriage of the pregnancy and damage to the mother’s bio-energetic system. They usually
@@ -373,9 +341,6 @@ period, as avatar-selected fetal bodies have a larger genetic package, tend to d
 rapidly and begin to drain the life force energy of the mother-host after the seventh
 month of gestation. Most are born as premature infants with soul integration taking place
 during or just after the birth process. 
-193 
-                                                                                                                                                                                                             
-                                                                                                                     
 
 Opening the Halls of Amenti 
               The Guardian Alliance would like to announce the following: 
@@ -409,9 +374,7 @@ will now begin preparation for the descent of the Blue Flame of Amenti and
 the opening of the Halls of Amenti portals, which are scheduled for May 5,
 2012. 
        Your preparation for ascension is now back on schedule. 
-                       
                            PALAIDORIAN BIRTHING CONTRACTS 
-                
                  The Indigo Children, Palaidorian Birthing Contracts, 
                             Contract Bonds, and the Incubation Rite. 
         Along with the birth of the Six Silent Ascension Avatars between 1992-
@@ -421,9 +384,7 @@ Birthing Contract soul agreement program. To ensure the success of the Bridge
 Zone project, and thus the ascension program, a minimum of 144,000 individu-
 als on Earth would have to completely assemble and activate the sixth DNA
 strand and rapidly begin assembly and activation of the seventh and eighth
-194 
 
-                                                                                         
                                                                                       Palaidorian Birthing Contracts
 DNA strands. The only members of the human population on Earth that
 organically possessed the sixth DNA strand imprint are the groups who have
@@ -467,8 +428,6 @@ parents. This electromagnetic bond allows the soul matrices of the individu-
 als in the couple to merge, forming an UHF bio-energetic field through
 which an advanced fetal pattern, with a genetic code larger than that of
 either of the parents, can be conceived. Once this bond, referred to as a
-195 
-                                                                                                              
 
 Opening the Halls of Amenti 
 Bonding Contract or Contract Bond, takes place, the bio-energetic fields
@@ -513,7 +472,6 @@ Bonds between the parent couples of the Indigo Children took place on
 August 30, 1998. Prior to this date, contracts were transferable between vari-
 ous eligible individuals, giving chosen soul identities the opportunity to exit
 or renegotiate the terms of their Palaidorian Contracts. 
-196  
 
                                                       Palaidorian Birthing Contracts
     As of 8/30/1998, parent couples were bound to their Palaidorian Birthing
@@ -537,10 +495,6 @@ according to the soul identity’s intentions, offering the incarnates protectio
 from various karmic dramas and ego-based choices that normally would have
 manifested. The Incubation Rite marks the suspension of the karmic imprint
                             for the individual and the accelerated integration of the soul and ego identity. 
- 
- 
- 
- 
                               The couples of Palaidorian Birthing Contracts will begin rapid DNA
 activation acceleration in preparation for their child’s birth, and will receive
 “across the board" protection from the Palaidorians and HU-3 Guardians, to
@@ -563,9 +517,6 @@ sion will unfold as planned.
 12. June 26, 1998: Avatar 3—Ninth-level Avatar—Was Born Two Years
     Early. The Second Seal On Arc Of The Covenant Opened. Avatar 3
     Aligned DNA Strand 4 With 12-strand Pattern. Corrected Strand 4
- 197 
-                                                                                                                  
-                                                                                                                                            
 
 Opening the Halls of Amenti 
 Imprint Will Allow Reverse-mutations Of Strand 4 Distortions; And
@@ -585,19 +536,8 @@ begin transmitting through Earth’s grid until 1/2000 and the corrected
 pattern for the fourth DNA strand will begin transmitting through Earth’s
 grid on 5/5/2000. 
                                       What transpires next? 
-        198 
-           
 
-                                         11
-                           
-                                                       
-                    
-                   
-            
                                     Things to Come  
-                        
-            
-                                              
                                                   ASCENSION SCHEDULE 
           As Earth approaches its half-point in the second ascension cycle of its
 26,556-year Euiago time cycle, the opportunity for ascension of human popu-
@@ -627,13 +567,10 @@ bio-energetic systems of humans directly, so it is wise that you become aware
 of these coming events. For this reason we have included the progression of
 Stellar Spiral Alignments, Stellar Activations and Stellar Wave Infusions
 with our running schedule of upcoming Earthly events. The Six Stellar Acti-    
-199  
-                       
 
      Things to Come
   vations, Stellar Wave Infusions and Stellar Spiral alignments Earth will
   encounter between 2000 and 2017 are as follows:
-                                                                                                                                                            
 1.   D-4 Solar Activation: 5/5/2000-6/2004.
        Blue Wave Infusion 6/2002- 6/2006
        D-4 Solar Spiral aligns with Earth's Merkaba Fields
@@ -669,11 +606,8 @@ Keepers are likely to be members of the Blue or Violet Flame soul groups. The
 Keepers of the Blue Flame (Tara’s HU-2, D-5 morphogenetic field) begin and
 complete their Stellar Activations and Infusions just prior to Earth's Activa-
 tions and Infusions. The Keepers of the Violet Flame (Gaia’s HU-3, D-7 mor-
-________________________________
 1.   Three-day particle conversion period between 5/5/2017-6/30/2017
-200
 
-                                                      
                                                 The Amenti Ascension Program Schedule
 phogenetic field) begin and complete three of their Activations and Infusions
 just after those of Earth and three just prior. We have included the schedules
@@ -681,7 +615,6 @@ for Earth and the two Flame Keepers groups in this chronology to assist the
    Keepers in their awakening process. 
                 THE AMENTI ASCENSION PROGRAM SCHEDULE
                                                 6/1998 to 2017
-                                          
                                                Transcendence Day
         1.    June 26, 1998: Sphere of Amenti Continues to Transmit D-3 Frequen-
       cies into Earth’s Core. The Morphogenetic Wave Begins to Build. Earth
@@ -716,9 +649,6 @@ for Earth and the two Flame Keepers groups in this chronology to assist the
    3.    January 1, 2000: Celebration of the Day of Transcendence. Earth Pre-
             pares for Its Solar Activation as D-4 Solar Spiral Aligns with Earth’s
        D-2 and D-3 Particle Base.
- 201 
-                                                                                                                  
-                                                                                                                
 
      Things to Come 
 Due to the Guardians’ D-4 energy infusions into Earth’s core (which
@@ -735,7 +665,6 @@ within the 15-dimensional scale. When the full D-4 frequency spectrum
 of the Solar Spiral begins to permeate Earth’s D-2 core and elemental par-
 ticle field on 1/1/2000, an interdimensional Resonant Tone will be struck
 as D-2 overtone and D-4 base tone frequencies merge. 
-           
 This  interdimensional Resonant Tone allows Earth’s 3-dimensional particle  ﬁeld
 to raise in pulsation rhythm, to receive the progressive Transmutative Stellar
 Wave Infusions and Stellar Activations that will allow Earth to rise into the
@@ -761,26 +690,9 @@ Transcended. This Day of Transcendence marks the ﬁrst day of Earth’s new
  dawn into the age of enlightenment and the opportunity to stop the Intruder Vis-
  itors’ intended destruction of the human race. 
 The Interdimensional Resonant Tone of Transcendence Day is scheduled   
-  
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
-  
       to occur between 12:00 PM of 1/1/2000 and 12:00 AM 1/2/2000, 
            as Earth completes its first day of the new millennium. 
-202 
-         
 
-                                                                  
-                                                                           
                                                                      The Amenti Ascension Program Schedule 
        Light Workers across the globe will be called together in celebration of
         this monumental occasion, and will be directed to begin Solar-Heart Star
@@ -796,12 +708,6 @@ The Interdimensional Resonant Tone of Transcendence Day is scheduled
         5/2000. Celebration of the Day of Transcendence will serve as an Earth healing
                           measure, as well as a ceremony of human unity. Earth’s fourth primary vortex-  
                            Giza, Egypt - will begin opening on this clay. 
- 
- 
- 
- 
- 
-             
               4.   1999-2004: First Birth Wave of Indigo Children. 
     The first wave of 144,500 D-6 soul essence—Root Race 7: Paradisian chil-
    dren, who possess the imprint for DNA strand 6, will birth on Earth. They
@@ -831,12 +737,7 @@ The Interdimensional Resonant Tone of Transcendence Day is scheduled
         complete this second Activation and begin the Third Activation on 1/1/
       2005. The Keepers of the Violet Flame will begin their Pleiadian-Soul
       Seat-Activation on 1/1/2005. The Blue Flame begins its 12-year descent
-     203 
-       
- 
-                                                                                               
 
-  
      Things to Come 
                  to Earth through the Alcyone spiral and Solar Spirals. As D-4 frequencies
       from the Sphere of Amenti begin transmitting through Earth’s core, the
@@ -854,7 +755,6 @@ The Interdimensional Resonant Tone of Transcendence Day is scheduled
       available to the Ego, dream reality and astral perception become clearer,
         fourth DNA strand assembly and Solar Activation become available to
                 the identity and consciousness begins to become multidimensional. 
-                                            
                                            Earth Solar Activation 
  6.  May 5, 2000: D-4 Solar Spiral Aligns with Earth’s D-1 Iron Core
        Crystal. Earth’s First Transmutative Stellar Activation—The Solar
@@ -881,10 +781,7 @@ The Interdimensional Resonant Tone of Transcendence Day is scheduled
              into the HU-2 time cycles, in preparation for merger with Tara on 5/5/2012.
        During Earth’s second D-5 Pleiadian Activation Earth’s D-2 and D-3 par-
       ticle base will also rise into the pulsation rhythms of HU-2 time cycles,
-    204 
 
-                                                
-                                                
                                                       The Amenti Ascension Program Schedule 
 and Earth’s D-2 and D-3 Merkaba Fields will merge with those of Tara,
 placing Earth fully within the HU-2 time cycles by 1/2012. Earth’s Solar
@@ -929,18 +826,13 @@ Seal of Amenti allows the body to merge its particles with those of its
 anti-particle double and creates merging of the physical and etheric bod-
 ies. This creates transmutation of the body form, the ability to bodily ascend, the
 return of the Immortal Body and release from the cycles of reincarnation. Cre-
-205 
-                                                                                                                  
-                                                                                                                                                                                                                                                              
 
- 
    Things to Come
      ates the merger of consciousness between present identity and identity
    focused in the parallel universe. Release of the Seal of Palaidor and assem-
       bly of the full fourth and fifth DNA strands is necessary to reclaim the
   Immortal Body. Release of the Seal of Amenti allows the process of fifth               
  strand DNA assembly and Pleiadian-Soul Seat -Activation to continue. 
-       
          The Zeta Seal is a genetic mutation created in 1748 AD by the Zetas’
       Frequency Fence in the D-4 time cycle. Zeta Seal was removed by Guard-
      ians through astral realignment, between l902-1986, but traces of this
@@ -955,7 +847,6 @@ return of the Immortal Body and release from the cycles of reincarnation. Cre-
       Zetas to electrically impulse human bio-chemical response patterns and
             behavior, through subliminal manipulation of the bio-neurological struc-
                ture. Zeta Seal releases with assembly of realigned fourth DNA strand. 
-                                     
                                                 The Hall of Records
      7.   September 17, 2001: Guardians Complete Alignment of Giza Pyramid
     with Alcyone Spiral. Hall of Records Begins to Open. The Guardians
@@ -963,7 +854,6 @@ return of the Immortal Body and release from the cycles of reincarnation. Cre-
     Giza/vortex 4 into alignment with the Alcyone spiral in preparation for
  the Holographic Beam of 2017. This will begin the opening of the Hall of
   Records beneath the Sphinx. 
-    
        The Hall of Records is a fourth-dimensional portal passage storage area that
  connects to the higher-dimensional morphogenetic ﬁelds of Earth, Tara and
   Gaia, where the complete planetary memory banks are stored in the form of
@@ -979,10 +869,7 @@ return of the Immortal Body and release from the cycles of reincarnation. Cre-
    Records, into Amenti and Earth’s core, then into Earth's grid. The history
   of the universe then becomes available to anyone on Earth that has a high
          enough accretion level to translate the data through their genetic code
-  
-  206 
 
-                                                     
                                                             The Amenti Ascension Program Schedule
 and consciousness. The Hall of Records opens only when the Alcyone spi-
 ral is aligned with the primary fourth vortex beneath the Sphinx and
@@ -1027,8 +914,6 @@ the Sphere of Amenti. The Flame Holders allow the Hall of Records to be
 put “on line” with the Sphere of Amenti, after which time this data trans-
 mits through Earth’s grid and becomes available to anyone on Earth who
 can translate the information. The Hall of Records begins opening with
-207 
-                                                                                                                  
 
       Things to Come 
       the activation of the Alcyone spiral, but cannot be accessed until the Blue
@@ -1044,11 +929,9 @@ can translate the information. The Hall of Records begins opening with
        ting data until after the birth of the sixth avatar, which is scheduled for
         12:01 am on 5/5/2012. At this time the Flame Holders will be called to
          activate the Hall of Records for the races. 
- 
       8.  2001: Dracos-Zeta Resistance Tentative Plan to Stage Public Landing
        and Introduction to Begin Frequency Fence Project. Guardians Plan
               “Fly-by’s” if  Warning of Earth Changes Is Needed. 
- 
              The Dracos-Zeta Resistance tentatively plans to stage a public landing in
        order to deceptively introduce themselves as Guardians and begin covert
                    infiltration of Earth’s electrical power supply and water systems in prepara-
@@ -1075,17 +958,11 @@ can translate the information. The Hall of Records begins opening with
              If   the  Frequency  Fence   plan  is  stopped  there    is  a  strong   likelihood  that Resistance
           forces will leave of their own accord. If the Frequency Fence plan is not
      stopped, humans remaining on D-3 phantom Earth will still remain vul-
-  208 
-      
-     
 
-                                                           
                                                         The Amenti Ascension Program Schedule
-    
    nerable to Resistance infiltration. The Frequency Fence plan can still be
     averted if the Interior Government stops all cooperation with the Resis-
   tance EBEs and refuses to allow the 2003 experiment to take place.
- 
       In the event that the public landing of 2001 does occur, the Resistance
        Frequency Fence plan is still operational, and Earth populations will have
    until 2004 to assemble DNA to the 3.75 accretion level in order to protect
@@ -1126,12 +1003,7 @@ can translate the information. The Hall of Records begins opening with
      The masses will not be able to complete the D-5 Pleiadian Activation
    until the 5/5/2012, following the birth of Avatar 6 and the activation of
        the fifth-strand codes.  
-209     
- 
-                                                                   
-  
 
-          
              Things to Come
     10. June 2002: Earth Begins First Stellar Wave Infusion—The Blue Wave
    Infusion. 
@@ -1148,10 +1020,7 @@ can translate the information. The Hall of Records begins opening with
   6/2002 and 6/2017. Three of these infusions will occur concurrently with
     the final three Stellar Activations within a 3-day period that will fall
   somewhere between 5/5/2017 and 6/30/2017. 
-                                           
-                                                                   
                                                            2003 Zeta Experiment
- 
      11. August 12, 2003: Dracos-Zeta Resistance and Covert Government
    Dimensional Blending Experiment. 
     The Dracos-Zeta Resistance hopes to coerce the Interior Government to
@@ -1167,7 +1036,6 @@ can translate the information. The Hall of Records begins opening with
      Government and world military organizations can be convinced to stop any
        such dimensional blending experiments, especially during the months of July
    through October of 2003, the Frequency Fence agenda will be abandoned.
- 
   12. Spring 2004: Dracos-Zeta Resistance to Begin EM Pulses of Frequency
      Fence. 
     If the Dracos-Zeta Resistance is successful in motivating the 2003 experi-
@@ -1179,11 +1047,7 @@ can translate the information. The Hall of Records begins opening with
     the foreign EM pulses used in the Frequency Fence. If transmission of the
      Frequency Fence base pulses begins, an undetectable ULF “phantom”
      electrical pulse will begin to be transmitted through Earth’s grid, into the
-   210 
-                   
-       
 
-                                                   
                                                                         The Amenti Ascension Program Schedule
 bio-energetic and electro-chemical systems of humans and into mass elec-
 trical power stations. The phantom pulse will follow the natural ﬂow of
@@ -1198,7 +1062,6 @@ dimensional frequency bands. A “perceptual harness" on human conscious-
 ness will result, through which the Resistance can transmit Holographic Inserts
 and subliminally impulse human behavioral response patterns directly through
 the sub-conscious mind and physical body. 
-   
      The human body has a natural immune response to such electromag-
 netic invasion, which the Resistance can repress by introducing a certain
 organic elemental compound into the water supply, and by transmitting
@@ -1208,7 +1071,6 @@ the subliminal light-spectrum patterns into the human optical facilities.
 Common radio waves are also intended as carriers of subsequent EM
 pulses, which will serve to reinforce the bio-neurological programming of
 the Frequency Fence. 
-  
      The Resistance will attempt to use your own technologies against you.
 After approximately six years of such covert electromagnetic manipula-
 tion, the contrived electromagnetic imprint will be strong enough to over-
@@ -1229,10 +1091,6 @@ transmissions begin, than it will be to reverse the effects of these transmissio
 once the broadcasting is initiated. If the Frequency Fence plan is not averted
 by 2004, the Frequency Fence will be operational by 2006, at which time
 the Resistance will begin broadcasting mass Holographic Inserts—five-   
-      211 
-                                                                                                       
-                                                                                                                        
-                                                                                                                          
 
                         Things to Come
              sensory perceptual—illusions-into Earth’s   atmosphere, through which the
@@ -1245,7 +1103,6 @@ the Resistance will begin broadcasting mass Holographic Inserts—five-
        quency Fence now, by taking command of your personal evolutionary
          imprint. You can protect yourselves if you are willing to learn how to do
             so. 
-                                        
                                                           Earth's Pleiadian Activation
         13. June 2004: D-5 Pleiadian-Alcyone Spiral Aligns with D-4 Solar Spiral.
            Earth’s Fifth Vortex—Machu Picchu, Peru—-Opens. Earth Completes
@@ -1278,14 +1135,7 @@ the Resistance will begin broadcasting mass Holographic Inserts—five-
        dimensional frequency bands activated in its genetic code. This individual
         will be born with strand 10 fully activated. As this soul essence passes
        through the Sphere of Amenti, the imprint for DNA strand 5 will realign
-     212 
-                    
-              
 
- 
- 
- 
- 
                                                 The Amenti Ascension Program Schedule 
 with the 12-strand DNA pattern, and the fifth strand imprint will begin
 transmitting through Earth’s grid. The Palaidor, Amenti and Zeta Seals
@@ -1329,7 +1179,6 @@ and activation of the Soul Seat Star Crystal.
 Earth will be halfway through its D-5 Pleiadian Activation, the D-5/D-6
 Blue Wave Infusion that began in 6/2002 completes and the D-6/D-7 Vio-
 let Wave Infusion begins. Through these D-6/D-7 Wave Infusions, D-6
-        213 
 
                  Things to Come
       base tone and D-7 overtone frequencies are entered into Earth’s core mor-
@@ -1360,7 +1209,6 @@ let Wave Infusion begins. Through these D-6/D-7 Wave Infusions, D-6
         the Frequency Fence in 2004. 
   19. January 2007: Keepers of the Blue Flame Begin Gold Wave Infusions.
            Keepers of the Violet Flame Begin Violet Wave Infusions.  
- 
   The Keepers of the Blue Flame are half way through their D-6 Sirian-
       Earth Star Activation, the D-6/D-7 Violet Wave Infusion that began in 1/
       2002 completes and the D-7/D-8 Gold Wave Infusion begins. Through
@@ -1373,21 +1221,12 @@ let Wave Infusion begins. Through these D-6/D-7 Wave Infusions, D-6
         6 base tone and D-7 overtone frequencies, and imprints for DNA strands 6
      and 7, enter into the morphogenetic fields of the Keepers of the Violet
           Flame. 
-    214 
- 
-                   
 
-                                                            
-                                                                           
                                                                           The Amenti Ascension Program Schedule
-                                   
-                                                             
                                                             Earth’s Sirian Activation
-                 
                  20. June 2008: D-6 Sirian Spiral Aligns with D-5 Pleiadian-Alcyone Spi-           
                              ral. Earth’s Sixth Vortex—Caucasus Mountains, Russia—Opens. Earth          
                     Completes D-5 Pleiadian Activation and Begins D-6 Sirian Activation. 
- 
       The Sphere of Amenti Begins Transmitting D-6 Frequency through 
                     Earth’s Grid. Earth Completes Shift into HU-2 Time Cycles. 
           The Sphere of Amenti will complete its  opening of D-5 frequencies into
@@ -1426,12 +1265,8 @@ let Wave Infusion begins. Through these D-6/D-7 Wave Infusions, D-6
          sixth DNA strand allows the consciousness to achieve the third and final
        level of soul integration, the Earth Star Activation, at which time the
          identity can choose to transmute into etheric form on D-7 Gaia, to begin
-       215 
-                                                                                                                                       
-                                                                                                                                        
 
                   Things to Come
-       
     embodiment of the over soul identity. Assembly of the sixth DNA strand
      releases the D-6 Templar Seal, which made bodily ascension impossible
       for those with this genetic configuration. The Templar Seal was placed on
@@ -1474,10 +1309,7 @@ let Wave Infusion begins. Through these D-6/D-7 Wave Infusions, D-6
      Earth’s Seventh Vortex—Andes Mountains, South America-—Opens.
        Amenti Begins Transmitting D-7 Frequency through Earth’s Grid. Blue
       Flame Begins its Final Approach to Earth through the Alcyone Spiral
- 216 
-  
 
-                                               
                                                                     The Amenti Ascension Program Schedule
 Keepers of the Blue Flame Activate Eighth DNA Strand and Begin D-8
 Orion-Earth Core Activation. Keepers of the Violet Flame Activate
@@ -1521,10 +1353,6 @@ Amenti, once the Halls have opened. The D-8 Orion and D-9 Androm-
 eda Activations allow the Flame Keepers to become transmitters of D-8
 and D-9 frequency, capable of initiating Orion and Andromeda Activa-
 tions in others and through which the Earth Core prepares to align with
-   217 
-                                                                                                                 
- 
- 
 
  Things to Come 
         the D-8 Orion and D-9 Andromeda Spirals in 2017. As the Keepers of the 
@@ -1532,7 +1360,6 @@ tions in others and through which the Earth Core prepares to align with
        the Violet Flame begin their D-7 Arcturian-Core Star Activation. 
     26. March 2012: Keepers of the Blue Flame Begin Blue-black Liquid Light 
      Wave Infusions. 
- 
    The Keepers of the Blue Flame are half way through their D-8 Orion- 
     Earth Core  Activation, the D-8/D-9 Silver Wave Infusion that began in 6/       
      2011 completes and the D-9/D-10 Blue-Black Liquid Light Wave Infusion         
@@ -1557,7 +1384,6 @@ Earth’s grid. As the seventh DNA strand imprint aligns and activates,
 the  D-7 “666” Templar-Axion Seal, which imposed repeated reincarnation
   for humans who carried this DNA mutation, is released from Templar-
    Axion sealed humans who begin assembling the seventh DNA strand.
-        
                                         Halls of Amenti Open 
               28.  May 5, 2012: The Grids of Earth and Tara Begin to Merge and  the 
            Morphogenetic Wave Prepares to Crest. The Keepers of the Blue Flame                                            
@@ -1571,11 +1397,7 @@ prepares to crest. The Keepers of the Blue Flame complete their D-8
 Orion-Earth Core Activation, becoming eighth-level avatars and begin
 their D-9 Andromeda-Galactic Core Activation. As the ninth DNA
 strand begins activation and assembly, the third level of the over-soul
-   218 
-  
- 
 
-                                                    
                                                                       The Amenti Ascension Program Schedule
 embodies and the Keepers of the Blue Flame become ninth-level avatars.
 The Keepers of the Blue Flame will complete their D-9 Andromeda Acti-
@@ -1595,7 +1417,6 @@ appropriate times, after carefully selecting a parental lineage (via
 Palaidorian Birthing Contracts) that carries this recessive gene, specifi-
 cally to fill this role. These individuals are predestined via over-soul con-
 tracts, to fulfill this role. 
- 
 There are three Flame Holder positions to fill, that of the D-2 Orange-
 gold Flame (requiring male embodiment) and those of the D-5 Blue and
 D-7 Violet Flames (female embodiments). For each position there are only
@@ -1621,12 +1442,6 @@ and sixth DNA strand assembly to occur throughout the populations who
 have begun assembling the fifth and sixth strands. The seventh strand will
 begin to assemble in those who have assembled strands 6 and below.
 Strand 5 rapidly begins to activate triggering a spontaneous expansion of
-   219 
-                          
-                                                                                                                 
-                                                                                                                 
- 
- 
 
                      Things to Come
     multidimensional awareness and awakening to multidimensional memory
@@ -1634,7 +1449,6 @@ Strand 5 rapidly begins to activate triggering a spontaneous expansion of
      Strands 6 and 7, which have been assembled, will remain dormant until
     activation during the Three-day particle conversion period between 5/5/
       2017 and 6/30/2017. 
-   
      As the grids of Earth and Tara begin to merge, the Halls of Amenti, within
      the Sphere of Amenti at Earth’s core, begin to open and people who have
      assembled the fifth strand and above can begin passing through the portals
@@ -1673,5 +1487,3 @@ Strand 5 rapidly begins to activate triggering a spontaneous expansion of
           temporarily reverses and the angular rotation of particle spin shifts 45°.
            Earth’s magnetic poles reverse and shift 45° as Tara’s electrical poles
              reverse and counter-shift 45°. Between 12/21/2012 and 6/30/2017 the D-1
-            220 
-   

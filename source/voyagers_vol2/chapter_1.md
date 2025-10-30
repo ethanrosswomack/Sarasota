@@ -1,360 +1,46 @@
 # Chapter 1
 
-                   
-                           Table of Contents
-          
-        
-                                                       
-Preface to Volume ll .........................................................................................ix                                                                                          
- 
-      Required Reading ...........................................................................................xi
-   ORIGINAL MATERIAL  
-                                                                                                                                                
-     1 The Secrets of Amenti..................................................................................1                                       
-                     Amenti Transmission l998................................................................................1                                          
-           
-                     Origins and the Fall......................................................................................................2                                      
-                     Amenti Rescue Mission..............................................................................................6
-                     The Halls of Amenti..........................................................................................9                                                             
-                     
-    
-          Root Races - Cloistered Races.......................................................................15                                                                   
-           
-            The Electric Wars............................................................................................18                                                                           
-                2 The Second Seeding...................................................................................27                                                
-                     Sirius B .............................................................................................................27                                                            
- 
-                        Melchizedek Races ...............................................................................29                                                               
-                  Science of Ascension.......................................................................................38                                                          
-                  The Thousand—Years’ War...........................................................................43                                                                 
-             3 The Third Seeding ......................................................................................50                                            
-                    The Arc of the Covenant ...............................................................................50                                                             
-                          Lemuria Destroyed ..........................................................................................58                                                                                                    
- 
-                        Giza to Atlantis ............................................................................................................59                                                       
-                   2017 AD Appointment ...................................................................................65                                                            
-              4 A Journey Toward Awakening....................................................................7l                                                 
-                   Sinking Atlantis and Earth Quarantine ........................................................71                                            
-                   Dreaming, Ego, and Higher Self ..................................................................77                                                               
-                   Alcyone and the Templar Seal ......................................................................82                                                                         
-              5 Return to Amenti.........................................................................................87                                               
-                 Pharaoh Akhenaton .........................................................................................87                                                           
-                  The Three Christs ............................................................................................96                                                            
-             6 Ascension Mechanics.................................................................................106                                      
-                Humanity’s Evolution ..................................................................................106                                                           
-               Earth Time Cycles ........................................................................................110                                                              
-                 The Holographic Beam ................................................................................114                            
-                DNA and the Halls of Amenti......................................................................117                                                                  
-           7 Countdown to Amenti.................................................................................122                                                       
-                     Recent History ...............................................................................................122                                              
-                Merkaba Fields ..............................................................................................126                                                                                        
- 
-          The Philadelphia Experiment and Solar Crisis ....................................130                                                          
-               Solar Crisis and 11:11/12:12 .......................................................................133                                                             
-                        The Montauk Project ....................................................................................136                                       
-         8 Current Events............................................................................................142     
-                                                                                                  ..    
- 
-               
-                                   
-        The Bridge Zone Project...............................................................................142                                                            
-                             Bridge Zone Mechanics ...............................................................................145       
-                                                
-                                 Time-Cycle Mechanics and Evolution.......................................................146                                                                      
-                                 DNA ................................................................................................................156
-     iv
-                                                                                                                      
-                                                                                                   
- 
- 
- 
- 
- 
- 
- 
- 
-    
-This PDF sold to Ethan Womack - dudeinwrens@gmail.com  Transaction: 7960
-
-                                                                                                                Table of Contents  
-  
-                                                           
- 
-  9   Time Shift.................................................................................................160
-                Ascending and Descending Planets...................................................................160
-                   Three Tracks of Time........................................................................................169
- 10 Opening the Halls of Amenti………………………………………........185                                                                             
-              Context.............................................................................................................185                                                                                                                                     
-               10/1986 through 6/1998 ...............................................................................187                       
-                    The Arc of the Covenant Opens .................................................................193                                                                             
-                    Palaidorian Birthing Contracts....................................................................194
- 11  Things to Come........................................................................................199                                                 
-             Ascension Schedule ......................................................................................199             
-               The Amenti Ascension Program Schedule ................................................201                                                                                              
-                Final 1998 Comments from the Guardian Alliance ................................230
- 12 Author’s Closing Statement, 1998 ......................................................234                                                                      
-             The I Am Prayer ............................................................................................239
- 2001 UPDATE SECTION  
-                                                                                           
- 13 Emergency Release GA ............................................................................241                                                        
-              A New Level of (Continuous) Revelation . . . . . . . . . …………........…..241                                                                   
-                Anunnaki, 1992 Pleiadian-Sirian Agreements & Fallen ET races.......242                                                   
                 Solar Star Gate-4 & Anunnaki defection from                                                                                               
-               the 1992 Pleiadian-Sirian Agreements .............................................245                                                                               
         The July 5, 2000, Treaty of Altair & Anunnaki Sabotage                                                                                  
-                       of the 9/2000 UK Expedition ..............................................................247                                                                       
-                The September 2000 UIR and the Edict of War ......................................250                                                                                  
                 The D-l2 Planetary Security Seal, Planetary Shields Clinics,                                                                                           
-                      and Crisis Intervention .........................................................................255                                                            
                 Invasion Agenda, HAARP, Merkaba-Reversal,                                                                                                 
-                      and the Rude Awakening ......................................................................257                                                           
                 Merkaba Mayhem, Real Ratios, and                                                        .                                                            
-                       the Nibiruian Checkerboard Mutation ...............................................259
-.
- 14 Angelic Human Heritage & Rainbow Roundtables..................................261                                                           
-               Genetic Ascendancy of Angelic Human Lineage.....................................262                                                                                                  
-                 12-Tribes Seeding-3 Genetic Ascendancy ................................................263                                                                      
                  The Azurites, IAFW, Oraphim-Angelic Human, MC Priests of UR,                                                                                                               
-                    and lndigo Child Eieyani Grail Line.....................................................264                                                                        
                Creation of the Oraphim-Turaneusiam Angelic Human                                                                                                         
-                       Christiac-Rishic Grail Line ................................................................266                                                                       
-               Seeding the 12 Urtite-Cloister Palaidia Empires .....................................269                                                                   
-                Urtite-Tri-Cloister Maji Holy Grail Line Flame Keepers .......................270                                                                  
-                Shambali, Bhrama, and Annu-Melchizedek Races of Inner Earth....... 271                                                                               
                The Three Primary Urtite-Tri-Cloister Maji Flame Keeper                                                                                            
-          
-       Holy Grail Line Seed Races of the Palaidia Empires .....................272                                                                     
                 The Two Secondary Urtite-Bi-Cloister Maji Flame Keeper                                                                     
-                       Holy Grail Line Seed Races of the Palaidia Empires .....................276                                                                      
                 The Riddle of the “Roundtable”— Location of Race Seedings                                                                             
-                    and Rites of the Rounds ..........................................................................278              
                 Four Evolutionary Rounds, Co-Resonant Continuum Alignment,                                                                                                                                       
-                Trans-Time Connection, & Christos Realignment Mission. …..............284                                                                         
-                The Cycle of the Rounds Seeding-3 ..........................................................290                                                             
-      The "Cycle of the Round"............................................................................291                                                            
-      Evolutionary Rounds ....................................................................................291                                     
- 
-Fire Letter Sequences....................................................................................291       
-                v                                                                                                                                                                                                                                                                 
- 
-                                                                                                                                                                           
-This PDF sold to Ethan Womack - dudeinwrens@gmail.com  Transaction: 7960
 
- 
-Table of Contents
-           Angelic Humanity’s Original Sacred Mission .........................................292                                                                                   
     The Planetary Shields & 12 Signet Star Gates                                                                                                                                            
-                  of the Universal Templar Complex ....................................................294                                                                                          
-           The 12 Tribes and the Roundtables ............................................................295                                                                        
-           12-Cycles, Simultaneous Incarnation, and DNA ....................................296                                                                     
-           The Reality of Spiritual Integration ...........................................................298                                                         
-                 Activating the Tribal Shield .......................................................................299                                                                       
                   The Silicate Matrix 12-Strand DNA Template with Hova Body,                                                     
-     Scalar Shield, and Identity Level Correspondences.........................300                                                                                                      
      The fastest means of naturally activating         
-                                                                                                                                             
-           the Personal 12-Strand DNA Template ..............................................301     
-         Christos Identity Integration ........................................................................301           
-                  Reality of the Roundtables.............................................................................302                                                      
-                  12 Tribe Names and Sacred Psonns............................................................303                                                                            
-                  The Three Key Elements of the Cycle of the rounds...................................303                                                                                                      
-                   Tribal Shield Dynamics.................................................................................307    
-     
-  15  The Atlantian Conspiracy and Roundtables............................................310                      
-              Long-Term Problems and Immediate Solutions ......................................310                                                                                            
-                 The Atlantian Conspiracy.............................................................................311                                                       
-                 King Arthur and the Knights of the Roundtable ......................................315
-    Progression of Major Events in the Atlantian Conspiracy......................319
-     Core Template Gridwork is Required .......................................................328
-    Creation of the Leviathan Force & Related History ...............................328
-      Angelic Human Seeding-3—Contemporary Lineage Begins ................328 
-    Summary of the Atlantian Conspiracy ......................................................330
-    The REAL Atlantian-Lemurian Maps........................................................331
-    Note On 12-Strand DNA Template Activation: Be Aware .....................333
-  16 The 9/11/2001 Attack & the Illuminati OWO..........................................335 
-           “UFO Investigation” and “Trigger Events”.............................................336
            One World Order (OWO) Master Plans, GA State of War Alert
-                  and Imminent Crisis Order ..................................................................337
-           Star Gate-6 and the Selenite Crystal Temple Network ...........................339
-           Trion-Meajhé Fields and Expedited Amenti Opening ...........................342
            The October 1999 Classified Document, Psychotronics,
-                   Montauk and OWO .............................................................................344
-           Sleepers, Terrorists, Remote Viewing, RITs and the NET......................347
-  17 The Phi-Ex Wormhole &  Illuminati OWO ..............................................354             
-       The Bermuda Triangle, Phi-Ex Wormhole, Falcon Matrix and WW II......354
-        The Phi-Ex Wormhole, and the Phantom Matrix “Pit”—1943..............359
-          Necromiton-Andromies and the “Unholy Alliance” ...............................359
-        “Big Brother Drac,” the Andromies, Hiroshima and Hitler ..................361
-    18 The Hidden Game-board Final Conﬂict Drama .....................................366
-             APIN Systems; The Falcon, the Andromies and the Dove 1943-1951.......366
-               The Lion, the “Lamb,” the Sphinx and the Eagle ...................................367
-        The White Eagle and the Melchizedek Deception...................................370
-         The Sacred Cow, Faces of Man, Easter Island Heads & Trion Field....371
          The Falcon, Phoenix Project and
-                the Andromie-Rigelian Coalition 1951-1983 ...................................374
          Andromie-Rigelian Coalition, Dragon, bin Laden,
-                and the “War on Terrorism” 1980-2001 ............................................376
         Montauk Project, “War in the Heavens,” Sonic Pulse
-                and “Un-Natural Disasters” 1983 .......................................................378   
-  vi                                                                                                                                                  
-                                                                         
- 
- 
- 
- 
- 
- 
- 
- 
-            
- 
- 
- 
- 
- 
- 
- 
-        
-                                                                                         
-This PDF sold to Ethan Womack - dudeinwrens@gmail.com  Transaction: 7960
 
-                                                                                         
-                                                                                         
-                                                                                                                               
-                                                                                                  Table of Contents
-            Guardian Intervention and the Bridge Zone Project 1983-1992............379
-            The Pleiadian-Sirian Agreements and Hurricane Andrew 1992............380
-            Temporary Cap on the Montauk Phi-Ex Wormhole 1994-1998............382
             Anunnaki Defection, Falcon Un-Capped, Indigo Hunting 
- 
- 
-      
-               and Edict of War 1998-2001 ........................................................................384
-.
-     19 Wall in Time, Atlantian Secrets of Phoenix & Falcon.............................386 
           Dimensional Blend Experiment, the Wall in Time,
-                Illuminati Master Plan 2003 .................................................................386
           The WTC/Pentagon Disaster and
-                  the “Secrets of the Phoenix and the Falcon” ......................................389
-          The Real Founding of America—“Spiking Out the Territory”..............393
-      Our Hidden History of Sorrow, 9558 BC-present ...................................398
-          Spiritual Manipulation..................................................................................399
-          Breeding a Final Conﬂict Army & Planetary Shields Reversal.............401  
- 20 HAARPs, Trumpets, Horsemen, and Heaven...........................................403 
-                    What Really Happened on 9/ 11/2001 ..............................................................403
                      The Trumpets, Towers and Terrorists-
-                                   The Hidden Realities of the WTC/Pentagon Disaster........................407 
-        UIR OWO Master Plan Agenda..................................................................410                      
-      Decoding “Revelations”—the OWO Schedule..........................................414
-             Revelations and “Saint John the Divine”...................................................416
-              The  “Seven Churches,” “Seven Angels” and “the Dove”.....................417
-            The Seven Seals and the Four Horsemen of the Apocalypse.................419
-          Return to Innocence......................................................................................422
-21 Conclusion— Earth Changes Potential...................................................426
-         Planetary Shields Crisis, Seals and Earth Changes .................................426
          Climatic Disturbances and the Labor Day 2001.
-                  Sonic Pulse Interference .......................................................................429
-            Epilog ..............................................................................................................433
- .
  APPENDICES
- Appendix I Data Summaries & At—A-Glance Blow-Up Charts................434
-       At-A-Glance Blow-Up Charts ....................................................................434
-      Original Amenti Ascension Program .........................................................438
-                 The Six Silent Ascension Avatars ...............................................................446
-               The Three Tracks of Time ............................................................................447
-          Choosing Your Future ..................................................................................450
-   Appendix II Introduction to Keylonta.........…..............................................451
             The Science of Light, Sound, the Sub-Conscious Symbol Codes,
-                  and the Base Codes of Matter ..............................................................451
-          Six Primary Elements of Keylontic Science .............................................434
-          Welcome to the Fifth World .........................................................................461
-  Appendix III Ascension Cycle Dynamics…………….........................463
-           Stellar Activations .........................................................................................464
-             Stellar Wave Infusions ..................................................................................466
-    The Stellar Bridge ..........................................................................................470
-     Morphogenetic Crystal Seals .......................................................................473
-      The Silicate Matrix.........................................................................................477
-      DNA 101..........................................................................................................478
-      Ascension Cycle Dynamics At-A-Glance Blow-Up Charts....................484
-      Crystal Seals and Chakras Correspondence Chart ...................................485                 
       Stellar Activations, Spiral Alignments & 
-            the Star Crystal Seal Activations Chart ...............................................486                          
-   
-   vii                                                                                                   
-    
-  
-This PDF sold to Ethan Womack - dudeinwrens@gmail.com  Transaction: 7960
 
- 
-         Table of Contents  
-               
                  Crystal Seals, Dimensional Placement and
-                               DNA Correspondence Chart .........................................................487
-                   15-Chakras & 15-Star Crystal Seals Anatomical Placement Chart.......488
-                   Six Personal Stellar Activations and Wave Infusions Chart .................489
-                   Planetary Stellar Activations and Wave Infusions Chart .......................490
-                   Stellar Activations and Wave Infusions Schedule ...................................491
-                   Stellar Spiral Alignments Schedule ..........................................................492
-    Appendix IV Field Techniques .....................................................................493
                 Field Technique 1: Exercise to Release Crystallized Thought
-                          Patterns from the DNA and Cellular Memory Imprint....................493
-                   Field Technique 2: The Maharic Seal .......................................................496
-                   The Personal and Planetary Maharic Shields Chart ...............................497
-                   Temporary Maharic Seal Technique Steps ...............................................502
-                   Field Technique 3: The Maharic Quick Seal ...........................................502
-                   Field Technique 4: The Maharata ..............................................................503
-    Appendix V 2001 Update Summary Charts .................................................505
-                   Star Gate Master Grid Lines Map .............................................................505
-                   Star Gates and the Halls of Amenti Charts ..............................................506
-                   The Halls of Amenti Star Gate System ....................................................507
-                 Universal, Galactic, Planetary and Inner Earth Star Gates ...................508
-                   Planetary Star Gates Location coordinate Chart......................................509
                    Expedited Amenti Opening and
-                           Christos Realignment Mission Charts .............................................510
-                   Earth’s D-12 Pre-matter Christos Divine Blueprint ...............................513
-                   Planetary and DNA Seals Release Schedules .........................................514
-                   12-Strand DNA Template, Vector Codes and Seals ...............................515
-                   The Real Christ Crucifixion, Checkerboard Mutation ...........................516                                             
                    Christos-Trion-Meajhé Fields, Veca Codes                              
- 
-                                                                                                                            
-                           and Universal Life Force Currents ...................................................517
-                      Progression of Intruder APIN Templar Conquest: Atlantis to 2001......518
-                   Sonic Pulse “Un-Natural Disasters” 1935-1992 Summary Chart.........522
-                   9/11/2001 Intrasound Sub-Space Sonic Pulse Projection Map ..............523
-                   24 Nibiruian Crystal Temple Bases ...........................................................524
-                   24 United Intruder Resistance Nibiruian Crystal Temple Bases ..…....525
-                        The Four Faces of Man/Guardians of the 12 Pillars LPIN System ......526
-                   The Great White Lion Guardian APIN System .......................................527
-                   Golden Eagle APIN System .......................................................................528
-                   The Falcon and Dragon Intruder APINs ..................................................529
-                Anunnaki and Anunnaki-Andromie-Nephite Intruder APINs ..............530
-                   Angelic Human 12-Tribes & Indigo Maji Grail Lines Summary ..…...531
-                   Intruder ET & Illuminati Races, 2001 UIR OWO Team Summaries...532      
-    Appendix VI Crisis Intervention Expedited Amenti Opening Schedule.........538      
                 Events Leading to GA Crisis Intervention and 
-                            Expedited Amenti Opening...............................................................538
-                   Expedited Amenti Opening Crisis Intervention Program Begins..........540
                    2011 Meajhe Field Weakness, UIR Jehovian Seals
-                            and Trumpet Pulse...............................................................................552       
-                   UIR, “ Wingmakers” the Labyrinth Weapon and 2011...........................553
-    Index, Volume II............................................................................................558    
-     viii      
-This PDF sold to Ethan Womack - dudeinwrens@gmail.com  Transaction: 7960
 
-                       
-                                                            
-                                            
-                                                                                                                                                  
-                                                       
-                                                 
-                    
-       Preface to Volume II  
            For there is nothing hidden except to be revealed, nor is anything kept
           secret except in order that it may be made known. If any man has ears
                        to hear, let him be listening and let him perceive and comprehend.
                                                                                  —Mark 4: 22-23
-           
                  Voyagers: Secrets of Amenti is a remarkable achievement. The magnitude
           of the implications fostered by its very existence is, in a word, stupendous. In
             the inspired writings of India, Voyagers would be regarded as Shruti, which
@@ -367,7 +53,6 @@ This PDF sold to Ethan Womack - dudeinwrens@gmail.com  Transaction: 7960
        is the product of nearly 30 years of direct, physical, consensual, and—most
         importantly—on-going contact with pro-human higher intelligence, be they
        Extra-, Meta- or Ultra-terrestrial; hence a Gnosis in the truest sense. This
- 
            Gnosis is passed on to the reader, engaging a higher level of cognition or             
           precognition, if one is already one step ahead of the game.
         Voyagers is a precious jewel in “Indra’s Web,” spoken of in the Buddha’s
@@ -381,13 +66,7 @@ This PDF sold to Ethan Womack - dudeinwrens@gmail.com  Transaction: 7960
                  tenure as embodied souls, “in order that you may, as free and proud shaper of
                 your own being, fashion yourself in the form you may prefer.”¹ These teach-
                    ings are submitted, as Rod Serling (The Twilight Zone) would say, not “for your                                                                                                                    
-                       
-                             
-                               ix
-This PDF sold to Ethan Womack - dudeinwrens@gmail.com  Transaction: 7960
 
-   
-       Preface to Volume II
          approval,” but rather for your consideration. Do consider them carefully. For
       “If most of us remain ignorant of ourselves, it is because self-knowledge is
         painful and we prefer the pleasures of  illusion.'' ² 
@@ -395,8 +74,6 @@ This PDF sold to Ethan Womack - dudeinwrens@gmail.com  Transaction: 7960
        of ourselves teaches us whence we come, where we are and whither we are
      going. We come from God and we are in exile.” You, the reader, are about to
     cross the event horizon of a ground-breaking work of singular significance for   
- 
- 
      Earth and its inhabitants. Voyagers is, quite literally, a road map to the
       stars...and beyond. Inside these pages is truth, not re-veiled...but unveiled-
      stripped of the distortion, dogma and elitism still so pervasive within tradi-
@@ -411,26 +88,19 @@ This PDF sold to Ethan Womack - dudeinwrens@gmail.com  Transaction: 7960
           Peschla.
          To the Dorothy in each of us, the Emerald City of OZ, the heavenly
        Tula...Tara...Home. Prepare for a new level of revelation.
-                                                  
       _____Philip L.Gruber
                 Founder/Director,
                 Quantum Access Group
-      ________________________________
         1.  Giovanni Pico della Mirandola, Oration on the Dignity of Man, trans. A. Robert Caponigri.
               Chicago: Gateway Editions, 1956.
          2.  Aldous Huxley, The Perennial Philosophy, 1944-1945 Harper and Row Perennial Library.
          3.  Jan Van Ruysbroeck, London 1916
-       x
 
-      
-                  Required Reading
-                  
     The second edition of Volume ll of the Voyagers series has been vastly
 enlarged so as to include much important, current information about what is
 happening on Planet Earth, up to and including the tragic national events of
 September ll, 2001, when hijacked airliners were intentionally crashed into
 the World Trade Center and the Pentagon. 
-                          
     To ensure that you have an appropriate understanding of this informa-
 tion, it will be necessary for you to obtain and read, if you have not done so
 already, the second edition of      Voyagers, Volume I. See “Ordering   informa-
@@ -448,41 +118,9 @@ second edition, are essential to understand before proceeding:
                IAWF—Interdimensional Association of Free Worlds................................li
                Azurite Universal Templar Security Team............................................................................liii
                GA—Guardian Alliance .....................................................................................................................liv 
-l UFOs, Visitors, and the Interior Government.....................................................................................1  
-2 Keylonta Science and Abduction.......................................................................................................21 
-3 Human Origins and Hybridization....................................................................................................37
-4 Hidden Motives and Mechanics.......................................................................................................50 
-     5 Awareness, Emotion, an Intuition.....................................................................................................74
-6 Special Projects.................................................................................................................................................105
-7 Levels of Identity and Components of Mind ...............................................................................134
-*History, Motivation, Meaning and Message………………………............158
-             Guardians and Founders Races.................................................................................................158
-                  The IAFW,  Azurite Security Team and the MC Eieyani Master Council…................162
-                  The GA and the Angelic Human Lineage .............................................................................165
-                  The 12 GA Signet Councils, Star Gate Security & Royal House Deception.................167
-             The 3 GA Signet Councils Of Etheric Matter Density-3(D7-8-9).................170
-             GA Signet Council-6, Sirius B, Indigo Children & Christiac Grail Lines….............171
-                 The Maharaji, Angelic Humans, Priests of Ur & Melchizedek Priesthoods.............175
-                  The Final Conflict, Star Gate-6, Maji Priests of Azurline & Christ Drama................182
-                                                                                                                                
-           xi  
 
 
-                                                                                                                                  
- 
-                                                     
-                                        1
-                                   
-                                             
-                                                   
-                                                                                   
-                                                            
-                            
-           
- 
                  The Secrets of Amenti
-                                                
-              
                                                      AMENTI  TRANSMISSION 1998
                  Throughout Voyagers: The Sleeping Abductees various speakers of the                                    
   Guardian Alliance have provided you with information pertinent to your times                        
@@ -508,20 +146,11 @@ be led through the course of your evolutionary progression. To explore your
 entire history from 560 million years ago to the present would require many    
 books. Here we will simply provide you with the data most important to your 
 understanding of the purposes for your present evolution. 
-1
 
- 
 The Secrets of Amenti 
- 
-                
- 
-                                                                                                                                                                                                                                                 
                                  ORIGINS AND THE FALL                                                                                                          
                                                                  Origins—the First World —Tara     
-                                                                                                                                          
               560,000,000 - 550,750,000 YA                                         
- 
-                    
             Approximately 560 million years ago (YA), upon the planet  Tara within  
        the Second Harmonic Universe), (your Earth is presently in the First Har-                                         
       monic Universe), many ET and metaterrestrial races combined their genetic          
@@ -536,7 +165,6 @@ the Elohim, who would become overseers for the Sirian races in Harmonic
 universe 2.The Elohim became one of the numerous supervisory groups within 
 the Turaneusiam-1 experiment, due to the Sirian race contribution of genetic 
       identity to the experiment.  
- 
        The Turaneusiam race evolved for about eight million years on Tara, with      
     12 primary sub-racial divisions among them. Each of the 12 Turaneusiam sub-      
     races carried a genetic slant derived from the 12 primary contributors to the T-1   
@@ -558,14 +186,9 @@ the Turaneusiam-1 experiment, due to the Sirian race contribution of genetic
    that code from inter-stellar breeding. Cultural disturbances escalated along 
    with the continued digression of the Alanian and Lumian strains, and hostility
   arose as the Alanians sought dominion over the more passive Lumian culture.
-     2 
-  
 
-                                                                                                                 
                                                                                                                 Origins and the Fall                                                          
-                                        
                                              Mu, the Lumians, Ceres and the Priesthood of Mu                          
-                                                                        
 550,750,000 - 550,700,000 YA
     Keeping a close eye on their Alanian antagonists, about 550,750,000 years
 ago (YA) certain members of the Lumian race foresaw a cataclysm in their    
@@ -591,8 +214,6 @@ Consciousness. The Mu priesthood exists to this day and is a primary motivat-
 ing force within certain Taran communities. The community of Mu continued 
 its evolution through the re-aligned 12-strand DNA gene code until about 550   
    million years ago.    
-                                                 
-                                                        
                                       Alania, Templar Solar Initiates & the Sirian Rebellion
                                                                  550,750,000 - 550,000,000 YA
     Throughout the evolution of Mu digression continued within the Ala-    
@@ -606,13 +227,8 @@ Alanians had failed, giving rise to the Alanian rebellion and Lumian-Sirian
 resistance. The Alanians were controlled by an elite group called the Tem-     
 plar Solar Initiates, who had been entrusted with rulership and guardianship       
 over the Alanian continent by the Sirian Council. The Templar Solar Ini-     
-3 
-                                                                                                                      
 
-                    
-    
             The Secrets of Amenti 
-     
      tiates became sympathetic with the Sirian root race Anunnaki in their Sirian 
      rebellion against the Sirian Council and refused to follow dictates of the Sir-    
      ian Council and advisory Elohim (who based their decisions on the teachings     
@@ -647,14 +263,8 @@ Earth to present day Tara.
               of the Sirian Council and Elohim, the Priests of Ur began to prepare for the   
            pending grid implosion. Many people were evacuated to other sympathetic   
                star systems, where they evolved, safely intermingling with other races. 
-             
-               
-               4
 
-        
-                                                                                                                                                                                 
                                                                                                               Origins and the Fall             
-                                                            
                                                                   Cataclysm of Tara
                                                                            550,000,000 YA
                          Approximately 550 million years ago the Power-generator Crystals deep
@@ -674,7 +284,6 @@ Earth to present day Tara.
         Harmonic Universe. Tara could not re-emerge with the energy grid of its
               dimension-7 counterpart Gaia, until its own grid system was repaired. Tara 
                           became trapped in the tracks of time within the Second Harmonic Universe.                           
-                      
                                         The Fall to Harmonic Universe-1 and the 12 Planets
                                                                         550,000,000 YA
                   The fragments of the Taran planetary grid that became dismembered from 
@@ -693,22 +302,10 @@ Earth to present day Tara.
      ried with them the organizational imprint of part of Tara’s planetary grid mor-
            phogentic field. These planets did not birth into Harmonic Universe 1, they 
      fell into it, literally. Their original morphogenetic field fell in vibration, reorga-
-                         _____________________
                                  1.  All suns have sets of black and white holes at their core; they operate as portals through    
- 
- 
- 
- 
- 
           which energy can pass through dimensional fields.                                                                                  
-                             5                                                                                                                        
-                      
- 
 
-                                                                                                                                                                                                                                                                   
                       The Secrets of Amenti
-              
-  
    nized through the morphogenetic field of a star, and re-manifested within 
     a slower vibrating dimensional scale. The 12 new planets entering HU-1 55
     million years ago are the planets of your local solar system—Mercury, Venus,                   
@@ -717,8 +314,6 @@ Earth to present day Tara.
   scientists), and your Sun (the part of Tara’s morphogenetic field that fused with
   this already existing, non-Taran sun). The fragments of Tara became part of the 
  Unified Field morphogenetic structure of Harmonic Universe 1.  
-                    
-                    
                                                    The Fall of Man and the Lost Souls of Alania
                                                                             550,000,000 YA
        The    event    of     Tara’s     cataclysm  became   known   as   the    “  fall     of    man.”   This    his-
@@ -737,13 +332,10 @@ Matrix and dimensionalized systems, and return to Source as pure conscious-
 ness. The souls of Alania became trapped in time, fragmented as units of con-
 sciousness within the Unified Field of HU-1, and there they would have 
 remained if a rescue mission had not been orchestrated.                                             
-                                 
                                                            AMENTI RESCUE MISSION
                                            The Covenant of Palaidor and the Palaidorians of Tara
                                                                             550,000,000 YA
               Just prior to the cataclysm on Tara 550 million years ago the Ceres, Ur-Tar-  
- 
-   
       ranates and Lumians of Mu devised a plan to rescue the Taran souls that would          
 be lost in HU-l during the approaching disaster. Being skilled at time portal    
 mechanics and lnterdimensional portal travel, the Ceres created a plan that
@@ -753,10 +345,7 @@ eral other HU-2 races called The Covenant of Palaidor. Through the
 Covenant of Palaidor a rescue mission for the Taran souls of HU-1 was set in 
 motion. Those involved in this agreement (the Sirians, Pleiadians, Ur-Tarran-
 ates, Elohim, Lyrans, Ceres, Lumians and Alanians) became known as the 
-6           
-                    
 
-                     
                         Amenti Rescue Mission
 Palaidorians. Working through the Breneau Rishi (beings of pure conscious-
 ness) from HU-5, the Palaidorians petitioned further assistance from an entity 
@@ -770,7 +359,6 @@ in your Earth system as members of the ascended masters family of Viragi. Sev-
 eral other groups associated with these three gestalts are also involved with 
 Earth at this time, including the consciousness gestalt Azar-Azara and a HU-2  
 ET race known as the Zhar Confederacy).                             
-                               
            Time Travel and the Sphere of Amenti
                                                                                   550,000,000 YA   pre-cataclysmic Tara
             Using lnterdimensional portal mechanics, the Ur-Tarranates of the Cov- 
@@ -798,138 +386,55 @@ ET race known as the Zhar Confederacy).
      lowing the fall. The Sphere of Amenti would create a stable portal structure    
       that, once operational, would stabilize the other portals and allow open tran-              
        sit between Earth and Tara for beings possessing genetic codes that could
-          
-            
-           7 
-                                                                                                                 
 
-                     
                       The Secrets of Amenti
 endure portal transit. The Sphere of Amenti would link into the space/time        
- 
 of Tara's pre-fall past. With this sphere placed within the Earth as Earth re- 
- 
- 
 evolved through dimensional ascension back into the Tara grid following the 
- 
- 
 morphogenetic imprint from the sphere, a link between the future Tara and 
- 
- 
 its pre-cataclysmic past would be reestablished. Tara's past would be re-      
- 
- 
 attached to the Time Matrix grid and Tara's future time cycles. Through the  
- 
- 
 Sphere of Amenti a bridge was constructed between Tara's pre-cataclysmic 
- 
- 
 past and future tracks/cycles of time.    
- 
- 
- 
- 
- 
- 
- 
- 
        When a planet undergoes such a trauma, having a portion of its grid blown 
- 
- 
 apart, not only does it lose the portions of its evolutionary history stored within  
- 
- 
 the cellular memory of the parts that blew apart, it also loses a portion of its 
- 
- 
 energetic thrust. Without this thrust the planet cannot evolve out of its Har-  
- 
- 
 monic Universe and into the next. The planet, and most life forms on it,   
- 
- 
 become trapped in the fabric of time. The Sphere of Amenti not only gave  
- 
- 
 hope for the continued evolution of human/Turaneusiam lineage, it held the 
- 
- 
 hopes of ascension and continued evolution for Earth, Tara and their seventh- 
- 
 dimensional counterpart Gaia. lf one was trapped in time, they would all be 
- 
- 
 trapped. The only other option available in such cases of planetary morphoge- 
- 
 netic field fragmentation is that of a Host Matrix Transplant (as previously dis- 
- 
- 
 cussed in relation to people), and this is exceedingly difficult to achieve on a  
- 
- 
 planetary level. Each of the 12 planets in HU-1 that emerged as a result of    
- 
- 
 Tara's fragmentation received a similar morphogenetic sphere from the 
- 
- 
 Palaidorians to fulfill the same purpose. But here we are only concerned with 
- 
- 
 the Sphere of Amenti, as through it Earth became an ascension planet, able to  
- 
- 
 achieve dimensional ascension through re-evolution. 
-                                                                 
-                                
                                                 The Sphere of Amenti and Soul Ascension
                                                                 Rescue Mission from Tara
                                                                 550,000,000—250,000,000 YA
                              The Sphere of Amenti was entered into Earth's core within the second-  
- 
- 
                        dimensional frequency bands (often called the “Cave of Creation”) about  
- 
- 
                         550 million years ago from a position in HU-2 space/time that existed before
-     
              the Earth existed within that HU-2 time track. The rescue mission for Tara's 
- 
- 
-    
                      lost souls was begun before those souls became lost, in terms of linear time.  
- 
                              Such things are quite practical within the structure of the Time Matrix.
                         Through the Covenant of Palaidor and the Sphere of Amenti the souls of                                                                  
- 
             Earth could re-evolve back into their original 12-strand DNA body type. 
                         This process can be viewed as the Palaidorians creating new bodies (and mor-
                         phogenetic blueprints) for the now formless consciousness fragments of the 
- 
- 
-    
- 
              fallen souls. The Sphere of Amenti morphogenetic Field allowed for the Ur- 
-                      
-                        8
-                                 
 
                                                                                                                  The Halls of Amenti                                                                  
- 
- 
- 
- 
-                                                     
- 
- 
            Tarranates to enter incarnational cycles on Earth, pick up the fragments of                   
               consciousness from the lost souls by pulling their energetic particles from the 
  HU-1 Unified Fields into the DNA, merging the consciousness of the soul 
  fragments with the embodied Ur-Tarranate consciousness, thereby allowing 
  this composite identity to evolve through a sentient life form, back into its 
  original soul matrix (the Turaneusiam 12-strand prototype).  
-                            
      This evolutionary plan was not immediately set in motion. Though the
  Sphere of Amenti was set within Earth’s morphogenetic field nearly 550 mil-
  lion years ago, the Earth grid had to evolve and pick up grid speed before the 
@@ -946,16 +451,12 @@ achieve dimensional ascension through re-evolution.
  of Amenti began birthing on Earth. This began what came to be known as   
  the Turaneusiam-2 or T-2 experiment. This represented the seeding of the      
  12 Tribes out of which your present human lineage has emerged.                               
-                                   
-             
                                                           THE  HALLS OF AMENTI
                                                 The Cloistered Races of Parallel Earth—
                                                the Second World—Rescue Mission Stage 1
                                                                 250,000,000-25,000,000 YA
           From the Sphere of Amenti five smaller spheres were created, which    
     became the morphogenetic patterns for five races known as the Cloistered   
- 
- 
   Races. Collectively the five Cloistered Races were called the Palaidorians, as   
     they represented the beginning of the fulfillment of the Covenant of        
     Palaidor. They represented the Earthly counterparts to the larger Palaidorian
@@ -965,10 +466,7 @@ achieve dimensional ascension through re-evolution.
    12), plus the imprint for strand l, and each of the five groups carried the 
  imprint for one additional DNA strand corresponding to dimensions 2,3,4,5                        
        and  6   . The Cloisters served as “Guardians” for  the  evolution  of  the  additional
-    9 
-                                                                                                                      
 
-                    
                      The Secrets of Amenti
  DNA strand to which they were assigned. Each race had eight strands of
  DNA manifest within the body structure. The five Cloistered races did not
@@ -993,7 +491,6 @@ achieve dimensional ascension through re-evolution.
         time bands of Earth, within the anti-particle universe. The morphogenetic
           fields of those races were then drawn into your particle-Earth and out of these
   came the next evolutionary stage. 
-                
                                     The First and Second Etheric Root Races of Gaia
                                                              Rescue Mission Stage 2
                                                            25,000,000-20,000,000 YA
@@ -1007,11 +504,7 @@ achieve dimensional ascension through re-evolution.
     Earth. These two races were the first two Root Races, the Polarians of Gaia
     and the Hyperborneans of Gaia’s antiparticle double. These beings were of a
   much less dense, or “etheric” nature, but through their evolution on Gaia (25
-  
-  10 
-                
 
-                                                                                                          
                                                                                                             The Halls of Amenti
 -20 million YA) the pathways of evolution through dimensional ascension
 were reopened for the lost souls of Tara. 
@@ -1019,9 +512,6 @@ were reopened for the lost souls of Tara.
 dimension one and Earth. Through their evolution, the one strand of the 12-
 strand DNA package was pulled together in Earth particles and connected to
 the Turaneusiam morphogenetic field. 
-                           
-                           
-                                         
                                          The Halls of Amenti—Rescue Mission Stage 3
                                                                    25,000,000 YA
      The morphogenetic consciousness of the five Cloistered Races held within
@@ -1056,9 +546,7 @@ within each time period/dimensional band would be able to pull together the
 frequencies  of  their  dimensional strand (through a series of  24  incarnations/two
 12-cycles), link with the morphogenetic field of their Cloistered Race, pick up
 strands 7-12 from the Cloister, pass through the other Cloisters and pick  up  the
-11 
 
-               
                  The Secrets of Amenti
 remaining Root Race Strands, re-bundling the 12-strand DNA package. As the
  12 DNA strands were assembled, the body form of the incarnate would progres-
@@ -1101,16 +589,11 @@ secret since the time of your inception on Earth, and the Priests of Ur and Mu,
 their earthly descendants and the ET and metaterrestrial ancestors of your
 Turaneusiam lineage from Harmonic Universes two through five have been the
 Guardians of this secret since the time of its inception 550 million years ago.                      
-                                                                        
-                   12
-           
 
-                                                                                                              
                                                                                                               The Halls of Amenti
                                        The Staff of Amenti Blue Flame Morphogenetic Field
                                                                 The Ivory Gates of Tara
                                                                           25,000,000 YA  
-        
      Once the Halls of Amenti were created 25 million years ago, the priests
    of Ur on Tara drew out from Tara's fifth-dimensional core a pattern of fre-
        quency that represented the morphogenetic field for the entire planetary grid
@@ -1147,4 +630,3 @@ Guardians of this secret since the time of its inception 550 million years ago.
    the original morphogenetic field that had been blown apart, broken down
     among the 12 HU-1 planets. Each of the 12 planets would hold a portion of
    Tara's morphogenetic field, and Tara could draw in sustaining energy from
-  13  

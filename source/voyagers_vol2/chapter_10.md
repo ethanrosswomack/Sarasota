@@ -1,6 +1,5 @@
 # Chapter 10
 
-       Time Shift 
 military interference, so ascensions will remain a closely guarded covert
 guardian activity. 
        We present this material now to assist potential Voyagers in remembering
@@ -44,10 +43,7 @@ graphic Insert control. You can stop them from putting the Frequency Fence
 in place if you refuse to participate in this experiment. Stop “buying into the
 lies” and false promises of the Dracos-Zeta Resistance. If not for the sake of
 your planet or your people, then at least for the sake of your own personal
-172 
-  
 
-                                                                                  
                                                                                  Three Tracks of Time
 safety. Rethink your positions in relation to the Resistance and redirect your
 course of action. There is still time left to shift the fate of the D-3 time con-
@@ -91,10 +87,6 @@ ernment changes its agreements with the Resistance forces.
 landing in 2001, after allowing bits of information concerning their presence
 to reach the general public. They intend to send their Rutilia operatives
 (Zeta-Dracos hybrids that resemble Zeta Greys, called EBEs by the covert
-173 
-                                                                                                                  
-                                                                                                                 
-                                                                                                            
 
 Time Shift 
 government) to members of the Interior Government, posing as emissaries.
@@ -140,7 +132,6 @@ tration into human society.
     Once the Earth grid passes through 2017 without the complications of
 the Frequency Fence, and the primary vulnerability of the portal structure
 ebbs, Guardian Visitors will be able to enforce a ban on Dracos-Zeta presence
-174 
 
                                                                                     Three Tracks of Time
 and these intruders will leave. Your government systems will still evolve
@@ -186,8 +177,6 @@ intervention would be conducted.
 this subject. The Guardians can only protect humanity from the conse-
 quences of its choices for so long, after which point full responsibility for per-
 sonal evolution must be returned to the human race. The opportunity to
-175 
-                                                                                                                           
 
   Time Shift 
 create self-protection is now being offered through the Guardians’ attempts
@@ -226,18 +215,13 @@ more apparent division between what you consider the “light and dark
 forces” moving within your populations. You may see extremes of this condi-
 tion, especially in geological areas in proximity to the seven major Earth vor-
  tices/chakras (we will discuss the Vortices in following pages). 
- 
- 
          Small-scale wars may break out in some areas, motivated covertly by vis-
 iting members of the Ancient Anunnaki Resistance, who entered orbit
 around Earth in D-4 in 1997, with the intention of amplifying the potentials
 of Earth changes to see the downfall of human culture. The Anunnaki Resis-
 tance will not directly intervene, nor do they work with the Dracos-Zeta
 Resistance, they are simply here to see Earth purged of what they consider
-176 
- 
 
-                                                                               
                                                                                   Three Tracks of Time
 the “cosmic virus” of the human race. They will motivate conﬂict and per-
 sonal and collective strife by attempting to manipulate people from the D-4
@@ -264,9 +248,7 @@ ground a more sophisticated vortex frequency seal. Human Light-workers
 involved with the “Portal Project” are presently on stand-by, waiting for the
 time when they will be called into service. Human Light-workers will also
 assist in keeping the portal regions balanced on Earth between 2012—2022. 
-                                                  
                                                 ET Inﬂuences
- 
     Presently the human collective moves together toward the three diver-
 gent tracks of time. By 2012 the divisions within the populations will be set,
 as the three groups, with three different accretion levels, begin to move into
@@ -283,9 +265,6 @@ pertaining to ascension mechanics, advanced multidimensional technologies
 and the truth of Visitor agendas. These tactics are already being used to keep
 the general populations unaware of what is taking place regarding ET and
 metaterrestrial contact. You will see counter-movements emerging through
-177 
-                                                                                                                  
-                                                                                                        
 
   Time Shift 
 which genuine information is made available to those who will listen. Many
@@ -331,9 +310,7 @@ public or governmental level. If Guardians deem such “ﬂy-by” tactics neces
 sary, these events may take place anywhere between 2000—2003. The pur-
 pose of such an event will be to warn humans who are aware of these hidden
 agendas that the Resistance still plans infiltration. If the guardian “ﬂy-by’s”
-178 
 
-                                                                                       
                                                                                     Three Tracks of Time
 occur, this is intended as a sign for the populations to begin preparation for
 Earth changes, because if the Frequency Fence is employed, some degree of
@@ -377,8 +354,6 @@ cesfully.
 growing gap between the populations following old, fear-based agendas and
 those following the path of personal enlightenment between 1998-2012.
 Those on the Bridge Zone path will begin to bond together in a global net-
-179 
-                                                                                                                
 
 Time Shift 
 work of enlightenment, doing personal and planetary energy healing work
@@ -413,7 +388,6 @@ ther out of each others perceptual range. During the coming transitions, par-
 ticle fields are separating. The bodies and consciousness of people are made of
 particles, thus humanity will also experience separation of its peoples into
 those with faster and slower-particle pulsation rhythms. 
-    
  All humans will experience Earth’s temporary shift into the D-4 time
 cycle and the Stellar Activations that create this shift. Humans with lower
 accretion levels will have difficulty assimilating the frequencies of the Stellar
@@ -424,9 +398,7 @@ order to create greater health, vitality, harmony and awareness. If the new
 frequencies are not assimilated into the body, the time acceleration will apply
 to the degeneration of the body and consciousness and the manifestation of
 disharmony and disease. 
-180 
 
-                                                                            
                                                                                   Three Tracks of Time
      The Bridge Zone populations will accelerate their ability to access
 guardian information, and some will become involved in subtle communica-
@@ -457,7 +429,6 @@ that the energy dynamics taking place involve Earth’s particle base being sepa
 rated into two different rhythms of particle pulsation, and the particle sub-
 stance out of which human bodies and consciousness are composed will also
 experience such a separation. 
-  
       In 2017 human populations will completely separate into two groups,
 each perceiving a different set of events. These events will take place in two
 separate fields of particle pulsation rhythm. It will be as if part of the popula-
@@ -471,8 +442,6 @@ sions until 5/5/2000. The portion of Earth’s particle base that can hold this
 frequency pattern will increase to a higher D-4 pulsation rate and begin the
 Stellar Activation cycle, while the portions of Earth’s particle base that can-
 not hold this frequency will remain at the lower D-4 rate of pulsation.
-181 
-                                                                                                                                                                                                           
 
 Time Shift 
     In the Bridge Zone particle base, the angular rotation of particle spin will
@@ -493,9 +462,7 @@ spin and fix its pulsation rhythm at the 3.5-accretion level of the Bridge
 Zone-Agartha time continuum. 
     When this separation transition completes in 2017, the populations will
 find themselves permanently divided into two separate groups. 
-                                   
                                                Perceptual Stations
- 
 1.  Group One — Descending Planet Perceptual Station 
      Humans with lower accretion levels will perceive none of the multidi-
 mensional activity that is taking place. As long as the Frequency Fence is
@@ -519,11 +486,7 @@ changes only in the event that the Frequency Fence is operational.
     In either case, Guardians will assist in realigning the planetary grids and
 returning Earth to stability. In the event that the Frequency Fence is opera-
 tional, the D-3 populations will be totally unaware of the changes taking
-182 
-  
- 
 
-                                                                                 
                                                                                      Three Tracks of Time
 place, including the vanishings, as Holographic Inserts will be used to block
 perception of these events. Only the Earth changes would be apparent to the
@@ -568,9 +531,6 @@ D-5 through D-9 energy during the 2012—20l7 period, the populations will
 have the opportunity to assemble the fifth DNA strand to become Voyagers
 and enter the path of time travel/ascension to Tara. Some will also have the
 opportunity to assemble DNA beyond the fifth strand and enter the acceler-    
-183                                                                                                                        
-                                                                                                                  
-                                                                                                           
 
 Time Shift 
 ated path of mastery to ascend to Gaia or the Meta-Galactic Core. Bridge
@@ -596,20 +556,8 @@ rience. As previously mentioned, there is a schedule of events that the
 Guardians have to follow to ensure the opening of the Halls of Amenti. Tim-
 ing of these events is crucial to the success of Amenti opening and so far
 everything is right on schedule. 
-      
-  
-184 
 
-                                  
-                                                        10  
-                                                                                  
-  
- 
-                                                         
-           
-    
       Opening the Halls of Amenti 
-  
                                                          CONTEXT 
       If you will recall from our discussions in earlier chapters, from 1972 for-
 ward the Guardians had quite a few things to accomplish before the Halls of
@@ -638,6 +586,4 @@ Descending Earth time continua, then each version of Earth would move for-
 ward in its respective track of time. The Guardians would have 10 years,
 between 2012—2022, to ascend as many people as possible through the Halls of
 Amenti to Tara in HU-2 and three days for ascension to Gaia in the HU-3 time
-cycles, in 2017. 
-185 
-                                                                                                                
+cycles, in 2017.

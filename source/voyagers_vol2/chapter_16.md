@@ -1,7 +1,5 @@
 # Chapter 16
 
-                                   
- The Atlantian Conspiracy and Roundtables
   •  3,650 BC Mayan Raids: Luciferian Anunnaki raid Mayan Angelic Human
   12-Tribes in Yucatan and progressively infiltrate selected 12-Tribes settle-
    ments throughout South, North and Central America.
@@ -49,12 +47,8 @@
     Tribe-2. Intend to claim Israel as their “Promised Land” as beginning of
      intended global dominion pole shift Luciferian Covenant agenda. Serres-
      Egyptian Maji Grail Kings exiled in desert retrieve Arc of the Covenant  
-322 
-      
 
-       
                                                     Progression of Major events in Atlantian Conspiracy
-       
             Gold Box and tools preventing the Hyksos’ destruction of Hebrew Tribe-
             2. Hyksos do not get their “Promised Land,” the story of the Hyksos Exo-
             dus intentionally integrated into Hebrew and Christian historical teach-
@@ -87,8 +81,6 @@ beam. Pleiadian-Serres retrieve Arc Box and prevent pole shift agenda.
 Nephedem Annu-Melchizedek Illuminati races into political power
 within the Ionian Empire of  Italy, deposing Angelic Human Tribe-5 
  of Italy and Ionian exiled Celtec, Druidec and Seminol Atlantian Maji  
- 
- 
       Grail Kings to create stronghold of Roman Empire dominion. Progres-
  sively infiltrate and transpose their race identity over the Angelic Hu-
  man Tribe-5 and Maji Grail Line Ionians of Italy and begin corruption 
@@ -104,377 +96,107 @@ within the Ionian Empire of  Italy, deposing Angelic Human Tribe-5
    Solar Star Gate-4 and Earth’s Star Gate-11 to prepare for the 2000-2017
   AD SAC and scheduled Planetary Christos Realignment Mission. The Maji 
     Essenes had fulfilled part of the mission by reclaiming the Rod Star Gate     
-323
 
-                                             
                    The Atlantian Conspiracy and Roundtables
 tool and its Arc of the Covenant Gold Box from Galactic Federation’s   
- 
- 
 Noah-Abraham-Moses Hyksos Annu-Melchizedek illuminati line, but  
- 
- 
- 
 could not recover the Staff tool. Following failure of the intended Plane- 
- 
- 
- 
 tary Security Mission, Jesheua, John, Miriam and several Maji Grail King   
- 
- 
 Essenes hid Arc of the Covenant Gold Box and its Rod tool in Vale of  
- 
- 
- 
 Pewsey, England via Tel el Amarna Inner Earth portal passage.  
 •	 325 AD Council of Nicaea: Omicron-Drakonian legions motivated their  
- 
- 
- 
      Nephedem Annu-Melchizedek Illuminati races governing the Roman  
- 
- 
- 
       Empire to temporarily join forces with Galactic Federation and the Ple-  
- 
- 
       iadian-Nibiruian Anunnaki. In this unholy alliance, the Nephedem, Lu-  
- 
- 
       ciferian Knights Templar, Hyksos King and Jehovian Anunnaki Hassa  
- 
- 
- 
     King Annu-Melchizedeks assembled to ''come up with a cover story'' to  
- 
- 
- 
       hide from public record the realities of Jesheua’s Emerald Covenant Mis-  
- 
- 
       sion. Groups of Hassa King Rabbis, Hyksos Kings and Knights Templar  
- 
- 
       Priests, and Roman Nephedem Knights of Malta launched a Crusade to   
- 
- 
       confiscate all records of the Emerald Covenant Essene CDT-Plate trans- 
- 
- 
- 
     lations. They combined various elements of true history and spiritual  
- 
- 
- 
       teachings with numerous falsifications and massive omissions of Templar  
- 
- 
       and Ascension teachings, to create the patriarchal, false-God control  
- 
- 
- 
       dogma creed that became the “Canonized Bible”. Their intentions were  
- 
- 
- 
     to forcefully hide all knowledge of the Emerald Covenant Christos Re- 
- 
- 
- 
       alignment Mission while they searched for the Arc of the Covenant Gold   
- 
- 
       Box. They intended to claim the Arc Box and prevent the “common peo- 
- 
- 
- 
     ple”from having the Maji Grail King knowledge of the Roundtables, to 
- 
- 
- 
     insure victory of their Anti-Christiac One World Order dominion agen-  
- 
- 
       da during the 2000-2017 SAC.  
 •	 608 Arthurian Grail Quest: Maji Grail King Arthur (born 559AD) and the  
- 
- 
- 
    ''Knights of the Round Tabl'' were the Maji Grail King Melchizedek  
- 
- 
- 
    Cloister Regents who protected the “Holy Grail” Knowledge of Earth’s  
- 
- 
- 
    Planetary Templar Complex. Arthur, Guinevere and the Roundtable   
- 
- 
- 
    Knights held the Planetary Security Commission of reclaiming the Staff 
- 
- 
- 
    tool from the Hyksos Illuminati and were intended  to run the RRTs to  
- 
- 
- 
    disengage the Nibiruian Diodic Crystal Grid, in fulfillment of the   
- 
- 
- 
    Jesheua-John-Miriam Emerald Covenant Mission. Though Merlin assist- 
- 
- 
- 
    ed in the return of the Staff Star Gate tool (the “Sword Excalibur”) to 
- 
- 
- 
    Maji Arthur’s protection,''Merlin'' (Victorous) later betrayed the Emer- 
- 
- 
- 
    ald Covenant Mission in favor of the Hyksos-Knights Templar Galactic  
- 
- 
- 
    Federation World Dominion agenda. Arthur successfully returned the  
- 
- 
- 
    Staff tool to the Arc of the Covenant Gold Box and relocated the Arc 
- 
- 
- 
    Box containing the Rod and Staff from the Vale of Pewsey, England to  
- 
- 
- 
    where it remains hidden today. Arthur and his Knights were unsuccessful   
- 
- 
    in disengaging the Nibiruian Diodic Crystal Grid. But at least they man- 
- 
- 
- 
    aged to hide the Arc of the Covenant Gold Box and Rod and Staff tools  
- 
- 
    from Galactic Federation, their Hyksos-Knights Templar and the even-  
- 
- 
    tually competing Nephedem-Drakonian Knights Malta, preventing them  
- 
- 
- 
    from fulfilling their planetary genocide and takeover agenda. The  
- 
- 
- 
    “Quest for the Holy Grail” and “Search for Arc of the Covenant Gold  
- 
- 
    Box” has continued ever since.   
- 
- 
- 
- 
- 
- 
- 
- 
-   324 
- 
- 
 
-                                     
                                               Progression of Major Events in Atlantian Conspiracy
         . 1244 AD Albigensian Crusade: Church of Rome Nephedem Annu-  
- 
- 
- 
                         Melchizedek Illuminati, on behalf of the Omicron-Drakonian OWO  
- 
- 
- 
                         (One World Order) agenda, launch a genocide campaign against the Maji  
- 
- 
- 
                         Grail Line Catheri, the Tribe-12, Star Gate-12 Guardians in southern  
- 
- 
- 
-        
              France. The campaign was initiated to stop the Catheri from using their  
- 
- 
- 
- 
              Roundtable knowledge to disengage the Nibiruian Diodic Crystal Grid,  
- 
- 
- 
                         knowledge gained from CDT-Plate-12, which was in possession of the 
- 
- 
- 
                         Catheri at this time. The Catheri’s “last stand” was at Monsegur, Southern  
- 
- 
- 
                         France, an event historically recorded as the “Albigensian Crusade”, in  
- 
- 
- 
                         which the Catheri were cornered and burned alive at the order of the   
- 
- 
- 
                         Church of Rome and accomplices in the government of France. A small 
- 
- 
- 
                         group of Catheri escaped with CDT-Plate 12, and numerous volumes of 
- 
- 
- 
- 
              pure Jesheua-Essene records, which were hidden in France and will one  
- 
- 
- 
              day provide witness to the realities of the Atlantian Conspiracy.    
 •	 1500 AD Ameka Crusade: The quest for the''Holy Grai'' continued as   
- 
- 
- 
     Hyksos-Knights Templar Annu-Melchizedek Illuminati races and Omi- 
- 
- 
- 
     cron-Drakonian Nephedem Annu-Melchizedek Illuminati races ad-  
- 
- 
- 
     vanced their OWO agenda in pursuit of the “Holy GRU-AL”.The Gru- 
- 
- 
- 
     AL POINT is the central control point for Earth’s Templar and both com-  
- 
- 
     peting groups intended to hold dominion over the lands of the Gru-AL  
- 
- 
- 
     Point when the 2000-2017 SAC arrived. The''Protestant & Catholic   
- 
- 
- 
     Invasion'' of  Native American Tribes began. The name ''America''   
- 
- 
- 
     came from the name of one of the Emerald Covenant Maji Grail lines  
- 
- 
- 
     known as the Ameka, who were protectors of the Gru-AL Point. The  
- 
- 
- 
     Gru-AL Point was known to exist in the lands of the North American  
- 
- 
- 
     continent, a territory once held by Atlantis. Guided through “Mystical  
- 
- 
- 
     Secrets Societies” set up by their respective Fallen Angelic kin, competing   
- 
- 
     groups of Annu-Melchizedek Illuminati races launched a progressive in- 
- 
- 
- 
     filtration and takeover of the North American continent. Each intended  
- 
- 
- 
     to destroy the exiled Lemurian and native Seminol and Ameka ''Native  
- 
- 
- 
     American'' Maji Grail Line Tribes who had knowledge of Running the 
- 
- 
- 
     Roundtables, in a systematic take-over of the North American Templar. 
        ''America'' was founded by the Luciferian Hyksos-Knights Templar Annu- 
- 
- 
- 
               Melchizedek Illuminati, who now go by the name of “Free Masons”, on 
- 
- 
- 
               behalf of Galactic Federation and the Pleiadian-Nibiruian Anunnaki  
- 
- 
- 
               races of the 9560 BC Luciferian Covenant. Competing Illuminati groups  
- 
- 
- 
              and their Stellar co-conspirators intended to use the North American  
- 
- 
- 
               Gru-AL Point, and their holdings of Star Gate-11 Europe, Star Gate-4  
- 
- 
- 
               Egypt and Star Gate-10 Middle East, to gain full control of Earth’s Tem-  
- 
- 
              plar on behalf of their Stellar contacts during the 2000-2017 SAC.
                  It was anticipated by all that the “Final Conflict Drama” and the “Battle of  
- 
- 
- 
                   Armageddon” would take place as the competing Drakonian and Anun- 
- 
- 
- 
                   naki descendant Annu-Melchizedek Human Illuminati legions ''battled it 
- 
- 
- 
                   out'' for control of Earth’s Templar during the long-awaited 2000-2017 
- 
- 
- 
                   SAC. Neither side anticipated that there would be enough surviving An- 
- 
- 
- 
- 
             gelic Human 12-Tribes and Maji races left with knowledge to run the   
- 
- 
- 
                   Roundtables to prevent the Illuminati, known as the “Leviathan Force,” 
- 
- 
- 
                   from succeeding  in their OWO agenda. Included in this OWO agenda    
-                 325
 
-              
                 The Atlantian Conspiracy and Roundtables
         was the re-initiation of contact with the Fallen Angelic/ET Legions as
 the SAC   drew closer. The Fallen Angelics intended to slowly make their 
@@ -491,106 +213,40 @@ respective Fallen Angelic “ring leaders” agreed to take a united stand
 against Emerald Covenant races to ensure success of the OWO dominion 
 agenda and destruction of the Angelic Human races during the 2000-2017
 SAC.  
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
   . 1750 AD Nibiruian-Re-acquaintance: Pleiadian-Nibiruian Anunnaki  
- 
- 
- 
             races and Galactic Federation began initiating remote “Channel Con-
               tact” with their ''Chosen Ones,'' providing contrived spiritual teachings
               intended to develop into the later “New Age Movement”, through
                 which direct Fallen Angelic/ET contact could be made with little human 
- 
- 
- 
            resistance. 
     • 1916 Zeta Surveillance: Zeta races begin participating in the Earth drama 
              on behalf of the Zephelium-Zeta Rigelian and Odedicron-Reptilian (Ori-
              on) agenda. 
- 
 •  1930-1940's Covert Treaties: The Zeta negotiate covert treaties with                                                        
     Nephedem Annu-Melchizedek Illuminati human government, through                                            
     which “Majestic-12” and the contemporary “UFO Movement” emerge
           on behalf of the Drakonian OWO agenda, which initiated as a result
           of the pending Anunnaki takeover agenda. Anunnaki Fallen Angelics ad-
           vance their remote “Channel” contact with selected humans. 
-             
 •  1983 Orion Intrusion: Omicron-Drakonian races of Orion get directly in- 
- 
- 
-         
     volved in the drama, forming alliances with the Odedicron-Reptilian and 
- 
- 
- 
     Dracos races; Zeta’s lose footing in Illuminati affairs as Drakonians take 
- 
- 
- 
     over Zeta Treaties, some Zetas leave, Rigelian Zetas join to strengthen 
- 
- 
- 
     Drakonian forces in Earth affairs. 
 •   1992 Pleiadian-Sirian Agreements: Pleiadian-Nibiruian Anunnaki and  
- 
- 
- 
      Galactic Federation races enter Emerald Covenant peace treaty when they  
- 
- 
      realize that they may succumb to Drakonian Force in the anticipated 2000 
- 
- 
- 
      -2017 Final Conﬂict Drama. Agree to turn Solar Star Gate-4 control back   
- 
- 
      over to Emerald Covenant races, to end the Atlantian Luciferian Cove- 
- 
- 
- 
      nant for co-evolution programs, to assist Emerald Covenant and Human 
- 
- 
- 
      races in running proper Roundtables to block further Drakonian infiltra- 
- 
- 
- 
      tion and promise to disengage Nibiruian Diodic Crystal Grid by January 1,   
- 
- 
      2000. The “New Age Movement” takes a turn toward the Light.
     •  1999 Centaurian-Necromiton Intrusion: Drakonian agenda Necromiton- 
- 
- 
- 
        Andromi and  Alpha-Omega Centauri races get involved to reinforce the  
- 
- 
- 
        Drakonian agenda in reaction to Anunnaki joining the Emerald Covenant.    
-     326
 
-                                                           
                                                        Progression of Major events in Atlantian Conspiracy
-                      
                       •  January 2000 SAC Rebellion: When Stellar Activations Cycle com-
     menced on January 1, 2000, Galactic Federation and Pleiadian-Nibiruian
       Anunnaki groups defect from Emerald Covenant once Stellar Activa-
@@ -618,28 +274,10 @@ SAC.
          Earth’s Halls of Amenti star gates from falling under UIR dominion. UIR
          issued a formal Edict of  War on September 12, 2000, against Emerald Cov-
          enant races and the Angelic Humans of Earth. 
-  
- 
- 
- 
- 
-   
- 
- 
- 
- 
- 
- 
- 
- 
-     
 Galactic Federation and Ashtar Command is beginning to mobilize their 
              “Human Ground Crews” teaching their followers to expect a''landing''
               in which ''complete human compliance'' is promoted. The political arena
               is now being set for the UIR’s intended 2003 Mass Mind Control initia-  
- 
- 
- 
              tive and most humans are completely unaware of what is taking place.
               Emerald Covenant races are intending to awaken the Indigo Children as 
               quickly as possible. The Indigo Children are being prepared now to run 
@@ -651,8 +289,6 @@ Galactic Federation and Ashtar Command is beginning to mobilize their
               ready underway to assist Humans in DNA Template Activation so some 
               may become biologically capable of portal evacuation.   
                           Sometimes truth is stranger than Fiction.            
-                          327                                                                                                          
-                          
 
    The Atlantian Conspiracy and Roundtables
                      CORE TEMPLATE GRIDWORK IS REQUIRED
@@ -662,12 +298,7 @@ Galactic Federation and Ashtar Command is beginning to mobilize their
      OWO dominion during the 2000-2017 SAC. Properly executed RRTs
      can fulfill the Emerald Covenant Christos Planetary Security Commission 
        of disengaging the Nibiruian Diodic Crystal Grid and freeing Solar-Star   
- 
- 
                          Gate-4, which will prevent Fallen Angelics any further access to Earth’s  
- 
- 
- 
                 portal-vortex system. Running the Signet RRTs to reclaim Earth’s Tem-
      plar from Fallen Angelic dominion has been known for thousands of years 
      as the 11:11/12:12 Christos Reclamation Mission, the Divine Commis-
@@ -675,10 +306,8 @@ Galactic Federation and Ashtar Command is beginning to mobilize their
      ere-Knights, the Catheri,  the Native Americans and numerous other 
      Maji Grail Line Races throughout history since the  25,500 BC Luciferian
      Rebellion.
-                                                     
                                            Now it is up to Us. 
 CREATION OF THE LEVIATHAN FORCE &  RELATED HISTORY
-                                              
                                     798,000 BC - 33,000 BC
  250,000,000 Years Ago—
       Parallel Earth Human Seeding-1 five Palaidorian Cloisters
@@ -687,7 +316,6 @@ CREATION OF THE LEVIATHAN FORCE &  RELATED HISTORY
 5,500,000 Years Ago—Human Seeding-1 destroyed via Electric Wars
  3,700,000 Years Ago—Human Seeding-2
  848,800 Years Ago—Human Seeding-2 destroyed via Thousand Years War
-                          
                        ANGELIC HUMAN SEEDING-3—
                    CONTEMPORARY LINEAGE BEGINS
 798,000 BC—-five Palaida-Urtite-Cloisters Angelic Human Seeding-3: Round-1
@@ -702,9 +330,7 @@ CREATION OF THE LEVIATHAN FORCE &  RELATED HISTORY
        DNA Bio-Regenesis
 208,216 BC—SAC, Drac Invasion, Fall of Brenaui, 10-Code Pulse & pole shift
 208,100 BC—Urtite-Cloister Human: Round-2 subterranean resettlements
-328 
 
-                                           
                                    Angelic Human Seeding-3— Contemporary Lineage Begins
 155,000 BC—Emerald Covenant Anunnaki Bio-Regenesis Program begins:
       Lulcus-Neanderthal Hyperbornean-Human upgrade-1 to hybrid Luhari-
@@ -749,21 +375,8 @@ CREATION OF THE LEVIATHAN FORCE &  RELATED HISTORY
 63,000 BC—Root-Race-Human-Aryans
 33,000 BC—Melchizedek-Cloister-Humans seeded & 22,500 BC Eieyani Grail
        Line begins
-329 
- 
- 
- 
- 
- 
- 
- 
- 
- 
-               
-                                                                                                  
 
 The Atlantian Conspiracy and Roundtables
-                            
                                SUMMARY OF THE ATLANTIAN CONSPIRACY
 50,000 BC - Lemurian Holocaust
 28,000 BC - Atlantian Holocaust
@@ -808,15 +421,11 @@ February 2001 - Grid Spiking Campaign
 2004 - Intended Frequency Fence
 2008 - Intended Pole Shift via Nibiruian Battle Star and NDC-Grid
 2012 - Intended Resistance Re-settlement & Inner Earth Crusade
-330
-                                         
-
 
 
                             Note On 12-Strand DNA Template Activation:  BE AWARE
       NOTE ON 12-STRAND DNA TEMPLATE ACTIVATION:
                                           BE AWARE
-                   
               Averting the Seduction of the “Quick Fix” and “Ego Pat”
 • No Human on Earth at this time has true 12-Strand DNA Template ac-
      tivation or consummation, as the Planetary Shields cannot yet sustain bi-
@@ -857,16 +466,12 @@ February 2001 - Grid Spiking Campaign
      they are being intentionally misused to orchestrate Anti-Christiac Do-
      minion agendas. The tactics of false “Quick-Fix Claims” and false promis-
      es are further coupled with false “sugar and spice,” in which our egos are
-__________________
  1.  Sirius A, Arcturian, & ''Galactic Federation"
  2.  Anu-Seraphim Aquatic-ape-hominid
  3.  ''Andromies" &''Men-in-Black"
  4.  34-CCW/21-CW Nibiruian Merkaba                                                                               
-333 
 
-                     
                           The Atlantian Conspiracy and Roundtables
-    
      fed as we are told “what we want to hear” and “how great and Beloved we
       are,” while being covertly “railroaded right under our own noses.” If we do
       not “fall for” the age-old “Quick-Fix” and “Ego-Pat” Seductions, we can
@@ -883,22 +488,11 @@ __________________
      ness in biological form; the mechanics of this order must be understood
      and appropriately applied if one expects to attain genuine, essential, Bio-
      Spiritual Mastery.
-      
-                        __________________________
-         
            5.   24-48 Strands for Indigos
-         334
 
-                                                 
-                                                      16 
-                                     
-                                             
-                                                              
-                                    
                   The 9/11 WTC/Pentagon Attack
                                       and the
                       Illuminati One World Order        
-       
           Due to the continuing barrage of “stop-the-presses” new emergency
 release information provided by the Guardian Alliance (GA) since the
 United Intruder Resistance (UIR) Edict of War on September 12, 2000,
@@ -931,10 +525,7 @@ comprehend.
 cultural, mental and emotional fixation that was once expressed by a
 generation before in the query of “Where were you when Kennedy was shot?”
      has now been permanently deposed from its once-prominent position within
-      335 
 
-                                                                                      
- 
 The 9/11 WTC/Pentagon Attack and the Illuminati One World Order 
 the national collective mind. The old question has now been indelibly and
 forcefully replaced within THE collective cellular memory of the American
@@ -958,13 +549,6 @@ psyche, as individuals and nations begin to reassess and redirect their
 priorities. But in other cases, distraction from pertinent past concerns can
 prevent us from acquiring the very answers we seek concerning the     
 contemporary drama. 
- 
- 
- 
- 
- 
- 
-    
               ''UFO INVESTIGATION” AND “TRIGGER EVENTS'' 
     One of the most important multifaceted issues that might readily and
 “conveniently” succumb to further malnutrition of mass attention is the
@@ -991,7 +575,6 @@ world most needs to rapidly comprehend. In the immediate aftermath of the
 unspoken questions within the minds and hearts of the courageous people
 who have supported the GA work since 1999 were as follows. “Did the GA
 know this attack would occur?” “If not, and the GA supposedly knows so       
-336         
 
                          OWO Master Plans, GA State of War Alert and Imminent Crisis Order
         much, then why didn’t they know?'' ''If they did know, then why didn’t
@@ -1038,14 +621,8 @@ and submitted to the publisher in early July 2001. They contain a brief
 summary of GA emergency release dispensations that have been
 progressively provided since the September 12, 2000, Edict of War was
 issued by the Fallen Angelic/''Intruder ET'' UIR.¹ Before any obvious
-                
-       ________________________________  
-         
                           1.     Anunnaki/Andromie/Centaurian/Zeta/Drakonian/Reptilian/Illuminati “Unholy Alliance"
-                                     
-                            337 
 
-                                                                                                                              
 The 9/11 WTC/Pentagon Attack and the Illuminati One World Order 
 indication was made apparent within the “external world,” the GA’s
 information provided since September 2000 and brieﬂy summarized in the
@@ -1091,20 +668,14 @@ place since October 2000 in response to the covert influence of the
 September 2000 UIR Edict of War, represent only the beginning
 externalization of the UIR OWO agenda into the visible “Official Reality”
 arena. 
-                             ________________________________
                    2.     See Forbidden Testaments of Revelation, forthcoming.
                      3      lbid.
                      4.     Dragon Moth
                      5.     Andromie Beetle-insectoid-hominid 
-                  338  
 
-                                                 
-                                                                
                              Star Gate-6 and the Selenite Crystal Temple Network
-                                                      
                                                       STAR GATE-6 
                        AND THE SELENITE CRYSTAL TEMPLE NETWORK 
-                
     Since the GA’s direct intervention with initiation of the Bridge Zone
 Project in 1983 (see “The Bridge Zone Project” on page 142), the GA have
 been peacefully and diligently working to prevent advancement of the
@@ -1150,10 +721,7 @@ Maharaji Council triggered early activation of the D-6 Sirius B Star Gate
 (Density-2), in order to begin overriding Nibiru’s Photo-sonic hold on
 Earth’s planetary Merkaba, Templar and EM fields. If this initiative were not
 taken, the Anunnaki of the UIR intended to use the Nibiruian Templar      
-339                    
 
-                                            
-    
                     The 9/11 WTC/Pentagon Attack and the Illuminati One World Order
 connection to force cataclysmic pole shift on Earth by 2008; Earth’s Templar
 had to be freed from its artificial Nibiruian alignment by 2003 or pole shift
@@ -1200,8 +768,5 @@ Azurite “Signet Rainbow Roundtables” Templar Security Team, the GA
 have been advancing these planetary healing efforts through a program called
 the Emerald Covenant Masters Templar Planetary Stewardship Initiative
 (AKA “Planetary Christos Realignment Mission”). 
-             
-                   ____________________________
   6.   scalar templates
-  7.   see Masters Templar Coursebook, forthcoming.    
- 340 
+  7.   see Masters Templar Coursebook, forthcoming.

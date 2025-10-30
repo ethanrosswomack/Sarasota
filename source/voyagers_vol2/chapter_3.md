@@ -1,7 +1,5 @@
 # Chapter 3
 
-                                                                                                                
-                                                                                                              Melchizedek Races
 the mystery schools of old and those of the present were all designed to assist
 in the ascension passage. Many were designed specifically to release the Tem-
 plar Seals, and to protect individuals from inadvertently adopting the Seals
@@ -45,10 +43,7 @@ gration of the astral identity (which comes through building the fourth DNA stra
 the comprehension of the soul becomes available to the human on Earth. It is
 through this level of understanding that an individual can discover if the
 Templar Seals are an issue, and if they are, how best to proceed for their
-37 
-                                                                                                                                                                                                                           
 
-      
        The Second Seeding 
 removal. The issue of the Templar Seals, and of the dimensional frequency
 patterns held within the imprint for the DNA, will have to be addressed,
@@ -80,12 +75,9 @@ which you are presently involved. There is an order, purpose, plan and mean-
 ing for your personal evolution and your existence, and it is intimately inter-
 twined with the evolution of your planet and that of your species. Now we
 will offer a bit of information as to where your journey will next lead.
-                                     
                                       SCIENCE OF ASCENSION 
-  
     The Fifth World, the Seventh Race Cycle and Waves of Ascension
                                                  Beyond 2000 AD 
-        
     The Seventh Root Race and their Cloister will emerge upon Tara after
 the energetic grids of Earth and Tara reemerge. Earth's merger with Tara will
 mark the fulfillment of the Covenant of Palaidor, and represents the coming
@@ -94,11 +86,7 @@ Ascension. It would do many of you well to realize that the term ascension repre
 sents much more than some lofty spiritual concept invented by the ﬁnite human
   psyche in order to give purpose to its ﬁnite existence. Many in the earthly scien-
  tific communities believe that life is limited to the physical expression and
-  38 
-       
 
-                                                                                                           
-                                                                                                          
                                                                                                              Science of Ascension
 that consciousness is the result of the body's biochemical/neuro-electrical
 functions. Following these erroneous beliefs they draw an equally erroneous
@@ -143,10 +131,7 @@ ical expression into the more complex structures of pure conscious identity.
 Every being in existence is involved in this evolutionary process, and so the dynam-
 ics of the science of ascension apply directly to each and every one of you. If you
 can realize the significance of this science your evolution will occur much
-39 
-                                                                                                                                                                                                               
 
-     
       The Second Seeding 
 more rapidly and with less effort, for you will learn to work with the natural
 laws of energetic structure to which your consciousness is bound, instead of
@@ -191,9 +176,7 @@ place within the matter-body of Earth. New land masses will begin to rise in
 the oceans, new waters will emerge in places where they were not. But this
 process does not take place all at one. Planetary ascension takes millions or
 billions of years. Planetary ascension takes place in waves. All planets evolve
-40 
 
-                                                                               
                                                                                                              Science of Ascension
 within cycles of time designated by the dimensional bands in which they
 appear. At certain points in these dimensional time cycles the frequency
@@ -238,10 +221,7 @@ catch the morphogenetic wave will continue on in their own First Harmonic
 Universe time cycle (dimensions 1, 2 and 3). 
      For many people there will not be enough time between now and the
 height of the ascension wave of 2012-2022 AD, to completely assemble the
-41 
-                                                                                                                            
 
-     
         The Second Seeding 
 necessary frequency patterns into their DNA, which means they would end up
 remaining in the present time cycle, and having to reincarnate into that cycle
@@ -285,18 +265,12 @@ scend the mechanics of death, disease and aging, and rediscover the reality of
 the Immortal Body and a fully conscious connection to God. The Seventh
 Race cycle will assemble DNA strand 6, and open the potential of ascension to
 Gaia (Earth-Tara's HU-3 counterpart) following the Taran cycles. The Cloister
-42 
 
-                                                                            
                                                                                  The Thousand-Years’ War
 of the Seventh Race is the Yunaseti, and they carry the full 12-strand DNA
 package of the Turaneusiam lineage, in operational form. The Seventh Root
 Race is the Euanjhechi, often called the Paradisians; they carry DNA strands
 l-5, and the base codes for 6-12.      
- 
- 
- 
-              
     Members of the Seventh Race cycle do not experience death, nor do they
 breed through physical means but rather through replication of combined
 energy fields. They do not carry exaggerated physical gender distinction, but
@@ -319,7 +293,6 @@ hybrid race Dagos. Through understanding this history, you will discover the
 truth of The Arc of the Covenant, a well kept secret that will directly impact
 the course of your evolution over the next 30 years. 
                                         THE THOUSAND-YEARS’ WAR 
-    
         The Second Seeding, the Drakon and Dracos, the Anunnaki and the
        Nephilim, the Elohim, Seres, Serres and the Egyptians, Return of the
                               Sphere of Amenti, and the Thousand Years’ War 
@@ -334,10 +307,7 @@ their genetic codes, by transplanting their energetic bodies into Elohim mor-
 phogenetic fields. 
     The Elohim hoped that, by the accelerated evolution of these chosen
 groups, the vibration rate of Earth's grid could accelerate more rapidly so the
-43 
- 
 
-     
        The Second Seeding 
 Sphere of Amenti could be returned to Earth's core and the Seal of Palaidor
 lifted from all of the races of the Second Seeding. If 8% of the races could
@@ -381,7 +351,6 @@ escape the terror of the Drakon monitors. The Phalzants (Chupacabras)
 were also created at this time, combining certain animal strains from the Dra-
 kon planets with various Earth animals. The Phalzants and descendants of the
 Dracos are presently assisting Zeta Visitors with earthly agendas detrimental to the
-44 
 
                                                                                  The Thousand-Years’ War 
 human populace. These intrusive Visitors of Dracos lineage are in reality a
@@ -426,11 +395,8 @@ ian Council which culminated in the cataclysm of Tara. The Alanian civiliza-
 tion began to systematically disregard the Law of One. The Anunnaki brought
 to Earth Atlania the creed of the Templar Solar Initiates from Tara, an elitist,
 materialistic distortion of the principals of the Law of One, which had created
-45 
-                                                                                                                                                                    
 
                  The Second Seeding
-     
 the cataclysm of Tara. The Anunnaki added their own sexist slant to these
 teachings, so women would be viewed as subservient to men and therefore able
 to be used as breeders of hybrid children. This teaching was a tactic used to
@@ -474,10 +440,7 @@ the earthly race strains, and the Seres energetically interbred with certain
 members of the Atlanian and Ayrian races, creating a superior guardian race
 called the Serres, who later became known as the Egyptians. The Egyptians
  were originally one of the seven sub-races within the Atlanian Root Race.
- 46 
 
-                                                                             
-                                                                                                   
                                                                                                      The Thousand-Years’ War
 The original morphogenetic field for this sub-race became distorted through
 Anunnaki interbreeding of the Nephilim, at which time the Elohim and oth-
@@ -511,9 +474,6 @@ Breanoua and Hibiru Cloisters of the fourth and fifth races, which brought the
 Ayrian and Hibiru lineage into the Atlanian-Egyptian line. This realigned and
 advanced the genetic blueprint for the Egyptian subrace, creating what would
                         become the primary Egyptian lineage throughout the Third Seeding.  
- 
- 
- 
       After a period of development, the human evolutionary imprint began to 
 prosper, and about 900,000 years ago the Elohim, and the Sirian Council, Seres
 and Palaidorians of HU-2, re-entered the Sphere of Amenti into the Earth
@@ -524,10 +484,7 @@ from Sirius A devised a plan to destroy the Sphere of Amenti and utilize the
 Earth humans as a worker race to harvest Earth gold for Anunnaki purposes
 (the Anunnaki of Sirius A needed gold to replenish depleting elements within
 their planetary atmosphere). Wars broke out between the earthly Nephilim
-47 
-                                                                                                                    
 
-    
       The Second Seeding 
 and the Serres which escalated about 850,000 years ago into a great intergalac-
 tic war between the Elohim and the Anunnaki, each fighting for control of the
@@ -541,11 +498,9 @@ Again the Breneau of HU-5 had to intervene, and about 848,800 years ago
 they assisted the Elohim and Sirian-Anunnaki to negotiate a treaty through
 which both the Anunnaki and Elohim would assist in the Third Seeding of the
 human lineage. 
-       
 The Treaty of El-Annu, the Annu-Melchizedeks, and the Anunnaki
                             Resistance and Templar-Axion Seal 
                                                   848,800 YA 
- 
       The agreement the Breneau negotiated between the Elohim and the
 Anunnaki 848,800 years ago was called the Treaty of El-Annu, through
 which it was agreed that the Nephilim would not return to Earth but were
@@ -573,10 +528,7 @@ accepted the authority of the HU-2 Sirian Council. Not all of the Anunnaki
 agreed to this treaty, and those who continued to pose a threat to Earth secu-
 rity were banned from Earth visitation, and became known as the Anunnaki
 Resistance. The few remaining Dracos hybrids that had previously found
-48 
- 
 
-                                                                            
                                                                                                     The Thousand-Years’ War
 exile on Sirius A with the Anunnaki joined in the Anunnaki Resistance, and
 motivated their Drakon forefathers to join forces with the Anunnaki Resis-
@@ -599,23 +551,9 @@ defined. Great protection was needed for the races of the Third Seeding, for
 the Dracos, Drakon and the Anunnaki Resistance desired to see their
 destruction. The Thousand Years’ War between the Elohim and the Anun-
 naki brought an end to the Second Seeding of the human lineage on Earth.
-  
-       49 
-   
 
-                                                     
-                                                    3                            
-                                    
-                                                               
-                             
-                            
-                              
-                               
                                      The Third Seeding
-                                  
-                                    
                                                           THE ARC OF THE COVENANT
-    
                            Creation of the Arc of the Covenant, Removing the Sphere of Amenti,      
 the Flood, the Andromeda Galaxy, the Sirian-Arcturian Coalition for
      Interplanetary Defense and the lnterdimensional Association of Free 
@@ -643,9 +581,7 @@ close of the Thousand Years’ War —848,800 years ago.
 Anunnaki Resistance, a multidimensional, intergalactic effort was made to
 ensure protection for the Sphere of Amenti. The Sirian Council of HU-2
 petitioned assistance from numerous star systems in HU-1 and HU-2 to pro-
-50 
 
-                                                                                  
                                                                                  The Arc of the Covenant
 vide security. Races from the Arcturus and some from the Pleiadian systems
 offered assistance, as many humans had, during the course of their troubled
@@ -684,17 +620,13 @@ but it no longer connected to the Sphere of Amenti and so could not be used
 for ascension to Tara. 
                                              The Arc of the Covenant 
                                                           840,000 YA 
-      
        A portal bridge between the Sphere of Amenti in the Andromeda galaxy
 and the Earth's D-2 core was constructed by the Guardian organizations
 about 840,000 years ago. This inter-galactic bridge was called the Arch of the
    Covenant of Palaidor, and later became known as the Arc of the Covenant.
 Through the Arc of the Covenant the race souls of the Sphere of Amenti
-51 
 
-    
          The Third Seeding 
-      
 could once again be reseeded on Earth. Souls from the Sphere of Amenti
 would pass through the Arc/bridge as pure consciousness, merge with the
 Earth's morphogenetic field in D-2, then birth into physical manifestation. A
@@ -738,11 +670,7 @@ particles within D-2 Earth core. As the D-2 particles began to vibrate faster a
 blue-white spark of fifth-dimensional high-frequency energy would be sent up
 from the Earth core, through the portal bridge of the Arc of the Covenant.
 This spark would penetrate the fifth-dimensional Seal on the Arc and enter the
-52 
- 
- 
 
-                                                                                       
                                                                                        The Arc of the Covenant 
 Blue Flame within the Sphere of Amenti. The Blue Flame would then send a
 corresponding    spark       of      fifth-dimensional frequency      back     into      the       Earth's  core,
@@ -787,11 +715,7 @@ quencies had to be dispersed through the Earth grid, via the energetic fields of
 certain people alive on the planet. The bio-energetic fields of those individu-
 als would serve as frequency modulators for the fifth-dimensional energy.
 These individuals would hold the D-5 frequency of the Blue Flame within     
-53                                                                                                             
-                                                                                                                    
- 
 
-  
    The Third Seeding 
 their own energy system through the height of the dimensional blending,
 then when the natural cycle of dimensional blend reached its close, the Blue
@@ -836,11 +760,7 @@ the Staff Holder. The Flame Bearer would have to activate the 12-strand
 DNA package within the body before being able to embody the Flame. This
 person would incarnate with a support team of six fully activated 12-strand
 avatars (souls from the fourth Harmonic Universe), who would raise the
-54 
- 
- 
 
-                                                                             
                                                                                  The Arc of the Covenant
 planetary frequency high enough to allow the Flame Bearer to fully activate
 the codes. Due to the bio-energetic mechanics of the human body, the Flame
@@ -858,12 +778,10 @@ required a tremendous amount of multidimensional organization. The fulfill-
 ment of the promise of the Arc of the Covenant would take over 800,000 years
 to fulfill, and meanwhile the races of the Third Seeding would begin their evo-
 lutionary journey toward that destination. 
-     
    The Third Seeding through the Arc of the Covenant, the Hebrew, 
            Serres-Egyptians, Urites and the Priesthood of Ur, Races 3-6 
                                      and the Annu-Melchizedeks 
                                              800,000 - 55,000 YA 
- 
       For a period of time following the creation of the Arc of the Covenant
 840,000 years ago the Earth went through a period of re-balancing its ener-
 getic grid, and during this time the races did not evolve on the planet's sur-
@@ -885,8 +803,6 @@ group of survivors remaining from the Second Seeding, descendants of the
 Third race Lamanians and their Ur-Antrian Cloister. The Serres-Egyptians
 (who had been exiled on Sirius B and in the Pleiadian star systems, and thus
 now carried a stronger ET imprint within their genetic codes) interbred with
-55 
-                                                                                                                
 
 The Third Seeding 
 the Lamanians and Ur-Antrians, forming a new guardian race through incar-
@@ -931,9 +847,7 @@ netic field about 68,000 years ago. The Annu prospered in Atlantis, many
 migrating to various parts of the globe and interbreeding with other races.
     The primary concentration of Annu remained in Atlantis, where open lines
  of commerce with their Sirian-Anunnaki forefathers became a standard way
- 56 
 
-                                                                                   
                                                                               The Arc of the Covenant
 of life. The Anunnaki who had joined the Sirian Council through the Treaty
 of El-Annu, and the Sirian-Kantarians and Sirian-Blue races of Sirius B,
@@ -970,6 +884,4 @@ fed through the Earth's grid to the Lemurian continent and various other
 developing civilizations. Earth civilizations thrived following the Law of One
 until about 55,000 years ago, when members of the Anunnaki Resistance
 began to infiltrate Atlantean culture, creating genetic and social digression
-that nearly brought Atlantis to an end. 
-57 
- 
+that nearly brought Atlantis to an end.

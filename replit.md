@@ -59,12 +59,19 @@ make html
 - Base URL is set to https://sphinxguardian.com/
 
 ## Recent Changes
+- 2025-10-30: Cleaned and fixed Volume 2 formatting issues
+  - Removed Table of Contents headers from all chapters
+  - Removed PDF watermarks and transaction information
+  - Removed page numbers and formatting artifacts
+  - Cleaned up excessive whitespace
+  - All 22 files (21 chapters + appendices) now render cleanly
+  - Created cleaning scripts: `clean_vol2_chapters.py` and `clean_vol2_aggressive.py`
+  
 - 2025-10-30: Added Volume 2 content from user-provided files
   - Extracted 21 chapters and appendices from voyagers_vol2_md.zip
   - Created new `source/voyagers_vol2/` directory for organized chapters
   - Updated `source/index.rst` to include all Volume 2 chapters in navigation
   - Rebuilt Sphinx documentation to generate HTML for all Volume 2 content
-  - Verified all chapters and appendices display correctly
   
 - 2025-10-29: Initial Replit environment setup completed
   - Installed Python 3.11 and required Sphinx dependencies

@@ -1,6 +1,5 @@
 # Chapter 20
 
-                          
                           The Wall in Time and Atlantian Secrets of the Phoenix and the Falcon
 Atlantic continent (remains of it are now England, Ireland, Scotland,
 Wales), Ulta-Bruah-UR in the southwest (now Southern Florida, Cuba,
@@ -43,9 +42,6 @@ OWO dominion agendas and in 9560 BC formalization of the Anunnaki-
 Leviathan Luciferian Covenant OWO Anunnaki Master Plan for final
 capture of Earth and the Halls of Amenti Star Gates. Human populations of
 Atlantis were progressively driven into exile in other regions of the globe, as
-                         
-                          ___________________________________________
-                          
                            4.     '' Ulta'' was a term used to indicate ''place of, UR'' referred to ''Light/Spirit'' and, origi-
                                          nally, to “God.”
                                  5.     Neanderthal
@@ -53,10 +49,7 @@ Atlantis were progressively driven into exile in other regions of the globe, as
                                7.     Cro-Magnon-2   
                                8.     Cro-Magnon-3                              
                                  9.     Cro-Magnon-4
-                               390 
 
-                         
-                                 
                                  The WTC/Pentagon Disaster and the “Secrets of the Phoenix and Falcon”
 the competing Leviathan races, on behalf of their Fallen Angelic/lntruder ET
 kin, battled for conquest of the Atlantic Continent Star Gates.10 
@@ -99,9 +92,6 @@ Planetary Shields with those of Nibiru and Tiamat, via their NDC-Grid and
 NET from 25,500 BC. The Anunnaki used the Phoenix Matrix in their long-
 term Luciferian Rebellion Master Plan of drawing Earth and the Halls of
 Amenti Star Gates into the Phantom Matrix via merging Earth’s Planetary
-                       
-                        ______________________
-                       
                          10.   SG-11 Lohas, SG-3 Nohasa, and SG-2 Bruah.
                                 11.   Density-1.
                                 12.   Density-2 Phantom.
@@ -109,11 +99,7 @@ Amenti Star Gates into the Phantom Matrix via merging Earth’s Planetary
                                         interface with Earth; they are the activation sites for the corresponding 12 Primary Star
                                         Gates of Earth, which are located in different geographical positions than their counter-
                                         part Cue Sites.  
-  
-                              391                                                                                                               
-                                                                                                                                  
 
-                      
                            The Wall in Time and Atlantian Secrets of the Phoenix and the Falcon 
 Shields with those of Phantom Nibiru and Tiamat, which linked to Phantom
 Sirius A and Trapezium (Theta) Orion. This contrived anomaly of
@@ -161,11 +147,8 @@ restore the Golden Eagle and Great White Lion APIN Systems. In 9560 BC,
 the Anunnaki Fallen Angelic races that had escaped to Density-2 Alcyone
 and Tara in our Time Matrix motivated their Annu-Melchizedek Leviathan
 force of Bruah Atlantis to again open the Phoenix Matrix Wormhole. In
- ________________________
       14.    Phoenicia-Nohassa-Atlantis.
-     392
 
-                                  
                                          The REAL Founding of America— “Spiking Out the Territory”
 9558 BC this was done as part of the Luciferian Covenant Master Plan to
 fully draw Earth, Inner Earth and the Halls of Amenti into the Phantom
@@ -208,19 +191,12 @@ Indigo races by the Anunnaki Leviathan force, in time for the 2000-20l7
 SAC deadline. 
                         THE REAL FOUNDING OF AMERICA— 
                                  “SPIKING OUT THE TERRITORY” 
-         
   The “North American” continent, known then as Ulta-Amekasan-Ur
 or Ame-Ka15-Ra,16 which had become inhabitable following the induced
 “lce Age” of the 21,900 BC Lohas Celtec-Druidic Freeze-out territorial
-                        ________________   
-                      
                         15.   light/spirit body
                                 16.   One
-                                393 
-                      
 
-   
-                  
                        The Wall in Time and Atlantian Secrets of the Phoenix and the Falcon
                   conquest, was intended to become the ''New Jerusalem'' of the Jehovian/
 Enochian Anunnaki Leviathan, and the new “Ame-Re-Ka17 of the
@@ -264,18 +240,13 @@ interference.
            During the 2000-2017 SAC, the Phoenix Spike Matrix was intended
 to progressively activate via photo-sonic scalar pulses sent through the
           Phoenix wormhole. The NET Frequency Fence would descend into D-3
-                          ____________________________
-                             
                                 17.  “light/spirit reﬂection”
                                  18.   ln the Atlantian period, the North American continent was named after Human Tribe-3
                                         the Amekasan-Etur, who had been exiled from their Emerald Covenant post at Nohassa
                                         SG-3 to the North American Continent, as Nohassa and Bruah Atlantis progressively fell
                                         to Leviathan rule after the 10,500 BC Luciferian Conquest.
                                  19.  Knights Templar-Hyksos-Freemasons.
-                                394
 
-                   
-                                                      
                                                   The REAL Founding of America— “Spiking Out the Territory”
 frequency bands, putting all races under covert Anunnaki Mind Control.
 Under Anunnaki Mind Control, Human and Indigo races would mindlessly
@@ -325,11 +296,7 @@ Consciousness within the living Time Matrix. Phantom Matrix ''life-forms''
 are not truly “alive” in biological or spiritual terms; they are, in truth, ''living
 dead'' races, finite consciousness thought-form identities trapped within a
 progressively fragmenting and deteriorating Sub-time Universe, who can take
-395 
-                                                                                                                                                                                                                                                                
 
-                     
-                      
                         The Wall in Time and Atlantian Secrets of the Phoenix and the Falcon
 on “biological life” only through using living forms of consciousness as a
 Host. 
@@ -377,11 +344,8 @@ reduced to what remains as the Bermuda Islands. The land bridge that
 linked Bruah and the North American Continent to the Atlantian land mass
 that held the Phoenix Matrix was also destroyed. Lohas in the north, home of
  SG-11,20 suffered the least, while regions in the extreme north and south,
- _________________________
   20.   England-Ireland-Scotland-Wales
- 396
 
-                                             
                                              The REAL Founding of America— “Spiking Out the Territory”
 once habitable lands, experienced ﬂooding and quick-freeze. What the
 Thothian Leviathans had not planned on was that members of competing
@@ -427,16 +391,9 @@ territorial power under remote Fallen Angelic guardianship. Meanwhile,
 amnesiac Human and Indigo races did their best to survive on Earth, and
 Emerald Covenant races did their best to assist them via their limited
 communicative access through the NET. 
-                        ___________________________________________________________               
-                                                 
                                          The 2000-2017 SAC is the time when the whole mess
                                                            will inevitably “come to a head.”
-                        ___________________________________________________________                                                                                             
-                                                                                                                                       
-                        397 
 
-                                                                                          
-                          
                            The Wall in Time and Atlantian Secrets of the Phoenix and the Falcon
                                   OUR HIDDEN HISTORY OF SORROW, 9558 BC-PRESENT
    Competing forces from the Phantom Matrix used their limited access to
@@ -486,10 +443,7 @@ Drakonian Illuminati would then quest for the territories of the Nibiruian
 Crystal Temple Network, successfully gain governing control over some of
 the 24 Primary sites and use them to siphon energy from the NDC-Grid in
 order to ''blow the Cap back off'' of the Falcon wormhole. Anunnaki and
-398 
 
-                                                                                                 
-                                                                                                                            
                                                                                                                   Spiritual Manipulation
 Drakonian Illuminati factions continually warred over possession of these
 “Sleeping Phoenix Spike Sites” and Nibiruian Crystal Temple Networks,
@@ -529,21 +483,15 @@ peoples ''have a nice trip'' into the Phantom Matrix Black Hole Sub-Time
 Distortion Cycle during the 2000-2017 SAC. The unspoken “motto” of the
 UIR might be something like ''Have a Nice Trip... Join Us In the ‘Fall’...,''
 and I’m not talking about “autumn.'' 
-                                      
                                                           SPIRITUAL MANIPULATION  
-           
       The reality of our present drama means that there are hordes of
 amnesiac Illuminati Sleepers, ''Human Greeting Teams'' and ''just every-
 day people,'' that are presently the unsuspecting victims of Astral Tagging,
 targeted Psychotronic mind control or DNA bond possession. These are
 mostly good-hearted, intelligent people, who think they are ''honoring their
  God, Angel, ET, government or science.'' They are being blindly guided
-                           _________________________
                               21.   or might I say “Zombification?”    
-                                399                                                                  
 
-                                                                
-                       
                         The Wall in Time and Atlantian Secrets of the Phoenix and the Falcon
 through their chosen ''Pet Control Dogma'' (''Traditional'' or
 ''Contemporary,'' religious or scientific) into unknowingly playing a
@@ -589,22 +537,16 @@ teachings that formed the 12 Global Freedom Religions that were
 humanity’s heritage from the Ancient of Days until Atlantis, has been done
 as a strategically planned and progressively implemented element of the
 Atlantian Conspiracy agenda. Most people who succumb to these mind
-                        _______________________
-                       
                     22.    It truly amazes me how many people are so attached to the Anunnaki-implanted false-
                                   hood that ''Christ was Crucified.'' You would think people who cherish all Jesheua was
                                             and stood for would be delighted and joyful to discover that he ascended via the Arc of
                                             the Covenant portal passage without a nail hole in sight!
-                        400
 
-                                                       
-                                                  
                                        Breeding a Final Conﬂict Army and Planetary Shields Reversal
 control games are literally terrified to face the facts of our present reality that
 they have been led to believe exist, and so afraid to face reality that they
 must defend at all costs the illusion of 3-D safety. Denial is one of the greatest
 forms of fear, and it usually requires that the fear itself be denied. 
-                             
                                                 BREEDING A FINAL CONFLICT ARMY
                                             AND PLANETARY SHIELDS REVERSAL
       The “twist the true teachings” game was implemented by competing
@@ -646,14 +588,9 @@ into the Planetary Shields in reverse sequence during the SAC, Earth’s
      those of a Planet in the Phantom Matrix. Over-breeding has produced a
                   massive population. The “Checkerboard DNA Mutation” has reversed the
                Human DNA Template Security Codes and personal Merkaba Fields (which
-                       _____________________
                         23.    In even earlier days, it was seven years.
-                              401
 
-                          
-      
               The Wall in Time and Atlantian Secrets of the Phoenix and the Falcon 
-         
                give Planetary Shields access), and we have been denied all memory and
            knowledge—most of us don’t even know that Earth’s Templar, Star Gates
              and Planetary Shields exist. Sounds like the ''perfect set up,'' doesn’t it? But
@@ -663,23 +600,11 @@ into the Planetary Shields in reverse sequence during the SAC, Earth’s
                                   problems   themselves. RRT   Biotronic Technologies and   Masters   Planetary
                Templar Mechanics are the tools through which we can set ourselves, and
                   Planet Earth, free. 
-                             
-                   
-                              402
 
-                                                
-                                                20
-                                    
-                              
-    
-    
   HAARPs,Trumpets, Horsemen,
                   and Heaven
-                             
                                                  WHAT REALLY HAPPENED ON 9/11/2001 
-                                                
                                                       HAARPs, DNA and the Mass Awakening
-                   
       Like the sadly manipulated spiritual movements of humanity’s last
 10,000 years the ''science-technology movement,'' unfortunately, is the only
 one which “appears” to offer something more empowering. Such “beauty is
@@ -711,11 +636,7 @@ with the assistance of the Illuminati-manipulated U.S. government, is
 creation of the infamous ''High-frequency Active Aural Research 
 Program,'' or HAARP. You know the one...that ''Angels Don’t Play.'' Both
   scientists and outer External Government authorities have created the
-   403 
-   
 
-                        
-                        
                          HAARPs, Trumpets, Horsemen, and Heaven
 HAARP installation with no knowledge whatsoever that it is anything but a
 “potentially useful, though possibly risky” technology. Even the few elite, “in-
@@ -762,13 +683,9 @@ its Illuminati OWO Master Plan from the intended 2002-2003 to August
 12, 2001, which is when the “Big Game” really began. 
   Human DNA is designed to enter this natural Spontaneous Mass
 Activation cycle during SACs, in response to increasing frequencies within
-_____________________ 
 1.   Conveniently, the HAARP will be very handy in locating underground bases, “parked
         space ships,” Nibiruian Crystal Template Network sites and APIN Systems as well!  
- 
-404 
 
-                                                                        
                                                                                     What Really Happened on 9/11/2001
 Earth’s Planetary Shields; Human DNA progressively activates the 12th-sub-
 frequency band in each of 12 Human DNA Strand Templates, creating a
@@ -812,30 +729,23 @@ Maharata Merkaba and RRT technologies to clear ''Checkerboard DNA
 Reversal'' distortions, the organic sequencing of frequencies is now activating
 in the Mass DNA Template, clearing ancient distortions as it goes.3 The
 entire, long-suffered Fallen Angelic OWO Amenti dominion Master Plan
-                        _____________________
 2.     Pre-invasion Mass Mind Control/DNA and Pineal Gland suppression campaign.
 3.     We have just begun offering “Advanced Personal Coping Skills” programs regarding
         Spontaneous Mass DNA Template purging and activation. We need to learn to handle
         these organic “purging” energies in our bodies, minds and emotions or these energies will     
         “throw us all for a collective loop.” This DNA purging will affect all Humans and Illumi-
         nati-hybrid races via the Planetary Shields scalar template.         
-405                                         
-                                                                                                                      
 
-                                                                        
-                        
                         HAARPs, Trumpets, Horsemen, and Heaven
 will be shut down completely if Earth reaches 12-Code Pulse Critical Mass
 before 2003. Suddenly their plan has begun to “turn in on them.” All of those
 multitudes of excess Human bodies that Fallen Angelics have so carefully
 “cultivated” to become their “Reverse Security Code Amnesiac Inside
 Invasion Force” in the Final Conﬂict drama are now Spontaneously Healing.
-___________________________________________________________   
   If the Fallen Angelics don’t do something to prevent further Human DNA
   activation, their “Human Amnesiacs Force” will become the “Awakened
     Human Victory Force,” the very force by which the Fallen Angelics
                                       diabolical agenda is defeated.   
-___________________________________________________________
      The UIR Fallen Angelics are now scrambling to motivate their
 Illuminati Sleeper puppets of the World Management Team to force
 through immediately their OWO Master Plan. As they have always known,
@@ -869,17 +779,11 @@ Necromiton-Andromie Fallen Angelics—primarily during various time
 periods when our ancient Intruders desired to “keep the earthly populace in
 line.” Classic Biblical references pertaining to the use of the “Trumpet
  Technology” can be found in the stories of the “Walls of Jericho Tumbling
-                        ______________________ 
-                        
                       4.  The Anunnaki originally entered the 1992 Pleiadian-Sirian Agreements because they
                        had lost programming control of all but 9 out of the 24 Nibiruian Crystal Temple Net-
                       works to Drakonian, Reptilian and Necromiton conquest that resulted from the Zeta
                                    Rigelians’ success in expanding the Falcon Matrix wormhole during the 1983  Montauk   project.    
-                                                                                                            
- 
-                          406
 
-                                                              
                                                            The Hidden Realities of the WTC/Pentagon Disaster
 Down” and the likewise the “Tower of Babel,” and in the fall of “Sodom and
 Gomorrah.” The Bible, which derived from Jehovian embellishments of
@@ -899,7 +803,6 @@ as Fallen Angels are skilled HAARP players, they are equally “talented” in t
 diabolical arts of ''Trumpeteering.'' It is within the Silent Symphony of the
 Fallen Angelic “Brass Section” that the hidden reality of the September
 11, 2001, WTC/Pentagon Terrorist Attack Disaster can be found. 
-                 
                                           THE TRUMPETS, TOWERS AND TERRORISTS—
                          THE HIDDEN REALITIES OF THE WTC/PENTAGON DISASTER
      The ''Trumpet'' technology in which the Jehovian Annunaki and
@@ -928,10 +831,7 @@ is progressively accelerated, which causes the template of the matter-form to
 which it is bonded to instantaneously shatter. When the scalar-template of a
 wave-form shatters, the physical matter structure literally “de-manifests” into
 vapor, leaving only a trace of residual ash behind. The Trumpet technology 
-407     
 
-                                
-                         
                          HAARPs, Trumpets, Horsemen, and Heaven
 can be used with loving intention in a variety of ways, but in the hands of
 Fallen Angelic races, the Trumpet is a weapon of mass destruction. 
@@ -974,8 +874,6 @@ The first sonic pulse was sent from an area in Central Mexico called ''Cue
 Site-4,'' an Annunaki ''Serpent'' Base (Thoth-Enki-Zeta Nibiruian
 Annunaki), via the Chihuahua, Mexico, Nibiruian Crystal Temple
 Network. The pulse was sent first north, then east along horizontal Ley
-                           
-                             ____________________________
                 5.   A planetary ''Magnetic Peak'' occurs when the planetary Merkaba Field reaches its fastest
                       spin rotation, which amplifies all types of scalar projections. Primary Peaks occur between 
                       August 7-16, with the climax speed consistently occurring on August 12. Stronger peaks
@@ -983,9 +881,7 @@ Network. The pulse was sent first north, then east along horizontal Ley
                     phia Experiment and 1983 Montauk Project were launched on the 20-year August 12
                      Magnetic Peak. The UIRs’ intended Dimensional Blend Experiment is planned for the
                               100-year Magnetic Peak of August 12, 2003.   
-                   408                                             
 
-                                                         
                                                           The Hidden Realities of the WTC/Pentagon Disaster
                  Line-2, and passed through the Star Gate-2 Gru-AL Point at Sarasota, FL,
 on September 3, 2001.6 
@@ -1031,21 +927,16 @@ after the first plane was in the air.
 other GA contactees in three countries outside of the U.S.A., motivating
 these individuals (unknown to me) to place nine separate telephone calls to
 various governmental agencies in the U.S.A., warning of the pending
-                          __________________________
                              6.     Our Labor Day group was “hit” with this disruptive sonic pulse when it passed through
                                          the Gru-AL as we began our RRT work at Sarasota Beach the evening of September 3. I
                                          didn’t discover until later Eieyani dispensations revealed exactly what had occurred that    
                                          evening.
-                            409
 
-                       
                         HAARPs, Trumpets, Horsemen, and Heaven
 attack. Each call was dismissed as a ''hoax'' at the receiving end, and the
 Eieyani could do nothing directly to prevent fulfillment of the UIRs’ bin
 Laden/Trumpet Pulse initiative. 
-                           
                        UIR OWO MASTER PLAN AGENDA 
- 
       Although the hidden reality of activating Phoenix Spike sites via
 Trumpet Pulses was a primary Illuminati objective behind the September 11,
 2001, “terrorist attack,” there were also other UIR objectives served
@@ -1090,10 +981,7 @@ their “ET-Angels” will save them, are in for a rude awakening. Eventually
 they will discover that “bombs and bullets” can disrupt their “positive
 thought-constructed lives” just as much as anyone else’s. The big awakening
 will come when they realize that it is some of their “beloved ET-Angels” that  
-410            
-                          
 
-                                                                                  
                                                                                  UIR OWO Master Plan Agenda
   have planned and orchestrated these conditions of Human war all along, in
 order to advance a OWO invasion/dominion agenda. A progression to mass
@@ -1140,14 +1028,10 @@ in answer to our prayers”7
      Planets'' intend to show false historical and genetic evidence that the
       Annunaki groups are the creators of Human life and that they have returned
      to lead us to an ''enlightened'' future. ''Miracle Cures'' will be offered for
-                           ________________________
-              
                          7.     First Contact could come at any time, if the UIR thinks its scheduled OWO Master Plan
                                           “Dimensional Blend Experiment” will fail and they opt for direct, rapid, physical invasion
                                           under the “friendly space brother" ploy.    
-                             411                                                                                          
 
-                      
                         HAARPs, Trumpets, Horsemen, and Heaven
 healing and environmental cleanup, and new global governmental
 structures will be imposed as a condition of the “good-guy group” being
@@ -1197,6 +1081,4 @@ and “bad guys” assisting terrorists. Suddenly everyone is “getting in touc
 with traditional gods,” driven by the mourning and fear generated by the
 WTC/Pentagon terrorist attack event. And suddenly, the message of
 “brotherly interfaith tolerance” is being promoted within the political arena,
-bringing the once-adversarial world “superpower religions” of Christianity 
-412 
-                        
+bringing the once-adversarial world “superpower religions” of Christianity

@@ -1,7 +1,5 @@
 # Chapter 2
 
-   
-    The Secrets of Amenti 
    each of those areas. Meanwhile, the other planets would process the dimen-
  sional frequency patterns that Tara could not synthesize. Once a HU-1 planet
  pulled in its portion of the higher dimensional frequencies, it would then
@@ -38,13 +36,9 @@
          allow   Gaia   to    link  with   the   white-gold     ﬂame   of      the   Metagalactic   core. When     we
       speak of the colored ﬂames we are referring to multiple bands of frequency of which
                  morphogenetic ﬁelds are composed. Colors represent spectra of light and light repre-
-                    
-                      _________________________
                         2.    The other planets had undergone a similar Sphere and Halls creation at various other
                                       times, each set being named after the portion of the morphogenetic field it carried.
-                          14
 
-                                                                                        
                                                                                   Root Races - Cloistered Races 
   sents the manifestation of patterns of dimensionalized electro-tonal frequency.
 Through linking the frequency bands of dimensions 1 through 7 within the
@@ -69,14 +63,11 @@ through the Halls of Amenti (or through the Taran morphogenetic Sphere
 within one of the other 11 planets in your solar system) that you must ascend to
 fulfill your evolutionary imprint as souls and return to your Creator/Creative
 Source. 
-                                 
                                      ROOT RACES - CLOISTERED RACES 
-              
                     Forming of the five physical Root Races and their Cloisters 
                              Blue Print For Evolution Through DNA Assembly 
                                                     Rescue Mission Stage 4 
                                                              25,000,000 YA 
-                     
     After the Staff of Amenti was set within the Sphere of Amenti at Earth's
 D-2 core, the forming of the five remaining Root Races began. The five Clois-
 tered Races within the morphogenetic field of the Sphere polarized, splitting
@@ -89,25 +80,7 @@ Race that would simultaneously manifest into physical expression on Earth,
 during the time periods that corresponded to the dimensional DNA strand to
 which each race was appointed. These five morphogenetic fields became Root
  Races 3—7, through which DNA strands 2—6 would be assembled. 
- 15  
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
 
-             
              The Secrets of Amenti 
   Each Root Race was responsible for evolving/assembling one strand of
 DNA while its companion Cloister Race would hold the imprint of that
@@ -147,10 +120,7 @@ DNA codes/overtones from the Cloister.
          The Cloister Race held the higher frequency DNA codes/overtones for
          that dimension, which match the base tone frequency patterns of the body
  double in the parallel Earth (these are called the Activation Codes, as they
-              16 
-             
 
-                                                                   
                                                         Root Races - Cloistered Races
 allow the DNA particles to merge with their anti-particles, creating transmu-
 tation of the matter particles and anti-particles, through which DNA strands
@@ -175,11 +145,8 @@ body was designed to transmute and ascend, not die and reincarnate. The 24
 cycles of transmutation later became 24 cycles of incarnation, or birth and
 death, through which the DNA would assemble as the consciousness passed
 from one life to another. The original human body was immortal. 
-       
                                  The First Seeding-the Third World 
-                                                             
                                                                     25,000,000 to 5,500,000 YA
-                  
     The pattern for the evolution of the five remaining Root Races was set in
 motion 25 million YA. In the first wave of souls moving out of the Palaidorian
 morphogenetic field and into physical incarnation The Five Cloistered Races
@@ -195,10 +162,7 @@ fested six male and six female beings on Earth, and the same number on the
  this lineage. 
   After about 10 million years of evolution (25-15 million YA) the Third
 Root Race was entered through peoples of the Ur-Antrian Cloister. The Third
-17 
-                                                                                                                                             
 
-              
              The Secrets of Amenti 
  Root Race, and first physical Root Race to appear on Earth were the Lumari-
  ans. They were a brown race that appeared about 15 million years ago, who
@@ -217,9 +181,7 @@ Root Race was entered through peoples of the Ur-Antrian Cloister. The Third
  This period in time is known as The First Seeding, and represents the Third
   World in Native American tradition. 
                                                            THE ELECTRIC WARS
-                     
                                The Electric Wars & Palaidorian Resistance Entity Wars
-                                                 
                                                                  5,509,000 - 5,508,100 YA
        During the course of the First Seeding all went well as many soul frag-
  ments from HU-1 Earth successfully ascended through the Halls of Amenti
@@ -243,12 +205,7 @@ needed protection from such activities. Numerous other groups simply
  lasted around 900 years as Entities of these opposing groups battled for con-
  trol over Earth's natural portal system and the Sphere of  Amenti. The human
   races caught in this battle either ascended to Tara through the Halls of
-            18
-          
-        
 
-   
-                                                                           
                                                                    The Electric Wars
 Amenti or were relocated to other HU-1 planets with the help of the Elohim
 and HU-2 Palaidorians. Those who lost their immortal genetic codes and did
@@ -257,7 +214,6 @@ etary environment was thrown into chaos. Earth would have been destroyed
 if the Breneau from HU-5 had not intervened.                     
                                        The Seal of Amenti and the End of the Electric Wars
                                                                               5,508,100 YA
-       
      The Breneau entities negotiated a treaty between these opposing fac-
 tions. In the agreement the Root Races of Earth would be allowed to evolve,
 but the Halls of Amenti—the portals between Earth and Tara—would be
@@ -288,12 +244,8 @@ allow it to pull strands 7-12 into manifestation from the Cloister morphoge-
 netic field. The seventh strand (a primary base tone strand), which contained
 the frequencies of all of the strands below it, would plug in to the single
 strand assembled through the Cloister, then assemble all of the other Root
-         ______________________________ 
              3.   The frequency patterns that corresponded to their form double in the parallel universe.
-                                                                                                                                                              
-         19
 
-   
      The Secrets of Amenti 
 Race strands as their frequency patterns were contained within the seventh
 strand. Once strands 1—7 were assembled an lnterdimensional resonant tone
@@ -333,11 +285,7 @@ of souls awaiting rebirth into the Fifth Root Race through which the Seal of
 Amenti would be lifted, so they could ascend and be set free. 
      Following the Electric Wars, the Third and Fourth Root Races would
 have to be reseeded on Earth, and the new seeding would carry with it the
-    ___________________________ 
        4.     The sixth sub-frequency band overtone of dimension one was removed from strand one. 
-  
-   20 
- 
 
                                                                                                                 The Electric Wars
 Seal of Amenti. The Halls of Amenti were not in themselves sealed or
@@ -350,7 +298,6 @@ tric Wars.
 The Seal of Palaidor-Pole Tilt, Quick Freeze, Sphere of Amenti placed
   in D-4, lst Major Earth Flood, 5.5 Million Year-Old Wall in Time
                                    5,500,000 YA
- 
       Summary: As a result of damage from the Electric Wars the Elohim had to
 place the Sphere of Amenti in D-4 creating a fourth-dimensional frequency
 block within the second and third DNA strands, sealing Root Races 3 and 4
@@ -381,10 +328,7 @@ Race 5. The present Aryan Root Race is now responsible for integrating the
 soul fragments of their Lamanian/Lemurian, and Ur-Antrian and Breanoua
 Cloister ancestors from the Second and Third Seeding. The Aryan Root Race
 is also responsible for integrating the anti-particle overtones omitted by the
-21 
- 
 
-         
         The Secrets of Amenti 
 Seal of Amenti, which appear as a build-up of electrical particles within the
 etheric body called miasms, which distort the natural functioning of the chakra
@@ -425,16 +369,7 @@ could not reincarnate into the Fifth Aeiran/Aryan Root Race and became
 trapped in time within the second, third and fourth dimensions. Following
 death, these souls would enter D-2 Earth core and their consciousness would
 fragment into the Earth's D-2 Unified Field. Having lost their form-holding
-22 
 
-                                                                                                           
-  
- 
- 
- 
- 
- 
- 
                     The Electric Wars
  morphogenetic field, they would incarnate into elemental consciousness and
  evolve as second-dimensional life forms. They would be trapped in the ele-
@@ -474,10 +409,7 @@ the imprint for the fourth DNA strand. Members of these earlier races from
 the Second and Third Seedings could not pass into their race's morphoge-
 netic field at death, and thus they could not reincarnate into the Fifth Root
 Race. At death their soul essence fragmented into the Unified Fields of
-23 
-                                                                                            
 
-         
               The Secrets of Amenti 
  dimensions two, three and four where they would have to merge with Aeiran
 consciousness in order to ascend. A great burden was placed upon the Aeiran
@@ -516,13 +448,7 @@ allowed it to occur as a way of assisting to purify the digressive genetic codes
 The lower-vibrating genetic imprints would dissolve into the Unified Field of
            D-2, while the soul essences could re-evolve through the Fifth Races. They
              knew that one day, when Earth's grid vibrated high enough, the Sphere of
-           
-             24 
-           
-           
 
-                                                                                                                           
-                                                                                                             
                                                                                                                  The Electric Wars
  Amenti could be returned to Earth's core, releasing the fourth-dimensional
  Seal of Palaidor and the souls lost in D-2 and D-4 could ascend.
@@ -564,9 +490,6 @@ The lower-vibrating genetic imprints would dissolve into the Unified Field of
  it were accessed through the Sphere of Amenti in the fourth dimension. The
    Seal of Palaidor placed Earth in a frequency quarantine, through which it
      became temporarily disconnected from its inter-galactic community. Humans
-          
-          25 
-                                                                                                                  
 
         The Secrets of Amenti
 on Earth would not be able to remember what existed on the Earth, or that
@@ -604,29 +527,11 @@ on Earth would not be able to remember what existed on the Earth, or that
    of Amenti returned so the Seal of Palaidor could be lifted. Human evolution
                   was stunted 5.5 million years ago and would have remained so if it were not
           for Sirius B. 
-       
-        
-        
-         26 
 
-                                   
-                                         2
-                        
-                                   
-                                        
-             
-                 
                               The Second Seeding
-                                                                           
-                                                                                                                  
-                                                                         
                                                                            SIRIUS B
-                            
                                                      Sirius B and the Third Eye of Horus
-                                                                        
                                                                           4,000,000 YA 
- 
-      
     In an attempt to revitalize the human evolutionary program, on behalf of
 the Ur-Tarranates who had sacrificed their freedom 550 million years ago to
 rescue the lost souls of Tara through the Turaneusiam-2 experiment, about
@@ -653,14 +558,7 @@ consciousness of Sirius B and created a hybrid strain of Sirian-human con-
 sciousness which came to be known as the Kantarians. This name was
 derived from the Kuntureaz, the non-physical Sirian sub-race of conscious-
 ness with which the human consciousness had merged. The Kantarians       
-        
-       
-       27 
-                                                                                                                                                                                         
-      
 
-                 
-                                                                                             
                              The Second Seeding 
   became semi-dense physical beings upon merging with the morphogenetic
   field of humans from the Second Seeding. Much later the Kantarians founded
@@ -697,18 +595,13 @@ ness with which the human consciousness had merged. The Kantarians
   guarded secret, and passage through this dimensional bridge was reserved for
         the few elite races who carried the needed third strand genetic imprint. 
                              The Second Seeding - the Fourth World 
-                                       
                                              3,700,000 - 848,000 YA 
-       
      The morphogenetic field for the Second Seeding Races was entered into
    Sirius B approximately four million years ago. The races began incarnating on
    Earth through a small group of human hybrids who had found exile and
    evolved within the HU-1 Pleiades star system during the Electric Wars.
     Through the Sirian Council of HU-2 and the Galactic Federation of HU-1,
-       28 
-    
 
-                                                                                                                             
                                                                                                                           Melchizedek Races
 members of this hybrid race, known as the Europherites (sometimes called the
 Euries,) migrated from the HU-1 Pleiadian star system to Sirius B, interbred
@@ -730,10 +623,7 @@ entered, the Hibiru 1,500,000 and the Ayrians 1,275,000 years ago. The time
 period beginning with the Second Seeding 3,700,000 years ago and extending
 through the Third Seeding into the present time represents the Fourth World
 of Native American legend. 
-                                           
-                                               
                                          MELCHIZEDEK RACES 
-      
      DNA Strands and the Races, the Sixth Root Race, the Melchizedeks 
                     and Hibiru Cloister Mix, Agartha and the Essenes, 
                                           Hebrews, and Christians 
@@ -753,11 +643,7 @@ within their anti-particle doubles on parallel Earth. The Fourth Root Race
 Alanians, now the Atlanians, had three-strand DNA, strands one and two and
 the base codes of 3, their Breanoua Cloister having these plus the imprint for
 7-12. Atlanians and Breanoua would each manifest 1.5 strands within their
-29 
-                                                                                                                   
 
- 
-                           
                      The Second Seeding
 bodies on Earth and within the parallel system. Root Race three Lumarians,
 now Lamanians, had strand one and the base codes of strand 2, their Ur-
@@ -778,8 +664,6 @@ the higher dimensions. As races 3-5 of the Second and Third Seeding would
 be born with the Seals of Palaidor and Amenti, only those whose imprint
 contained the fourth DNA strand (the Fifth and Sixth Root Races) had the
 potential to activate all of the grounding codes to ascend. 
-      
- 
     The Fifth Root Race, which was also born with the Seal of Amenti, held
 the hope of activating the grounding codes, if they could fully assemble their
 fourth DNA strand. This would give them astral plane/D-4 mobility of con-
@@ -804,9 +688,7 @@ manifesting through this racial line. Melchizedeks appear within strains of all
 the races as they became involved as a Host Matrix/surrogate morphogenetic
 field for many of the races toward the end of the Second Seeding. The
 Melchizedeks carry DNA strands 1-4 and the base codes of 5, plus the
-30 
 
-                                                                      
                                                                              Melchizedek Races
 imprint for strands 7-12. They are free of the Seals of Palaidor and Amenti,
 and can thus undergo full transmutation of bodily form in order to ascend, if
@@ -814,10 +696,6 @@ they are able to fully activate the base tones within their fifth strand. Becaus
 of their advanced genetic package the Melchizedeks are able to pass through
 the Blue Flame in the Halls of Amenti and experience teleportation through
 the portals into the Taran environment. 
-      
- 
- 
- 
     The Melchizedeks assisted in repairing genetic digression toward the end
 of the Second Seeding, becoming one of the Host Matrix families, then
 began their race birthing cycle during the Third Seeding. The first wave of
@@ -855,12 +733,7 @@ ence, but also a genetic propensity that came into being 10,000 years ago.
 Spiritual teachings that have been either directly or indirectly inﬂuenced by
 the Templar-Melchizedeks will have an distinctly patriarchal slant, often pro-
 moting gender subservience, elitist philosophy and subjugation of Earth’s ele-
-31 
-                                                                                                                                                                                 
- 
 
- 
-    
      The Second Seeding 
 mental kingdoms. These attributes of the Templar-Melchizedeks were not
 originally part of the Melchizedek Cloister strain, but rather evolved through
@@ -903,15 +776,7 @@ been referred to as Agartha.
     As we have mentioned, the first full wave of the Melchizedeks birthing
 cycle began during the Third Seeding, about 35,000 years ago, the second
 wave about 3,500 years ago and the last about  250 years ago and continues on
-32 
 
-                                                                                     
-                          
- 
- 
- 
- 
-              
                                                                                               Melchizedek Races 
 today. During their first appearance they created the Priesthood of
 Melchizedek on Earth, a spiritual organization specializing in the process of
@@ -956,10 +821,7 @@ Melchizedeks who participated in these events. The second Templar Seal is
 called the Templar-Axion Seal. Both Templar Seals made physical ascension
 through the Halls of Amenti impossible for those who carried this genetic
 configuration, and only under certain circumstances could the soul essence
-33                                                                                                                    
-                                                                                                                                                                           
 
-       
       The Second Seeding 
  pass through the Blue Flame. Those baring the Templar-Axion Seal could
  eventually pass into Tara and enter incarnations within the sixth races, but
@@ -1004,8 +866,6 @@ configuration, and only under certain circumstances could the soul essence
             and passage way into the Metagalactic Core is often referred to as the Eye of
       Elohim, or the Galactic Core. Humans not bearing Templar Seal distortion
       can pass through this dimensional portal once they have fully evolved their
-           34
-         
 
                                                                                               Melchizedek Races 
 seventh DNA strand. Those bearing the Templar Seals must be assisted by
@@ -1016,7 +876,6 @@ with the lessons of love, unity and equality as taught through the sacred Law
 of One. When these lessons are learned, the incarnate's consciousness is no
 longer a threat to interplanetary security, and assistance in lifting the Tem-
 plar Seals will be provided. 
-  
    Though we will not address the mechanics by which the Templar Seals
 operate, we will provide a bit of information regarding the DNA strands
 affected. The Templar Seal is a sixth-dimensional seal affecting the second,
@@ -1052,11 +911,7 @@ Tara to continue evolution.
     The Templar-Axion Seal did all of this and more. It is a seventh-dimen-
 sional seal which meant that once the consciousness had managed to ascend
 to Tara it could not evolve into the seventh races, reclaim the immortal body
-35 
- 
- 
 
-     
      The Second Seeding 
 and ascend out of matter form. The Axion Seal required that the soul con-
 tinue innumerable cycles of birth and rebirth within the earlier races, until
@@ -1084,10 +939,6 @@ through these other star systems, teachings of the Law of One could slowly
 heal the identity, until eventually its tour of duty on Earth would be fulfilled.
 This tour would last until Earth had successfully re-evolved into Tara and the Cov-
 enant of Palaidor was fulﬁlled. 
-             
- 
- 
- 
     Due to the Templar and Templar-Axion Seals the concept of “soul har-
 vesting” became part of many religious teachings. Soul Harvesting referred to
 souls bearing the Templar Seals being brought, by one of the helper organiza-
@@ -1105,4 +956,3 @@ to “pass God's tests” and become “worthy.” But in truth, God's universe 
 free, and these concepts applied only to beings bearing the Templar Seals,
 who wore the armor of their disregard for the Law of One within the configu-
 rations of their genetic codes. Processes of initiation that developed through
-36 

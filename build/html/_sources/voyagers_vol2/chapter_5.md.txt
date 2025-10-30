@@ -1,6 +1,5 @@
 # Chapter 5
 
-                  A Journey Toward Awakening
 from the Blue Flame in order to charge objects with UHF fifth-dimensional
 energy. Two objects were charged prior to this sealing, so the Egyptian cul-
 tures would have a tool through which the Inner Earth portals could be
@@ -44,10 +43,7 @@ enter Earth's three-dimensional body during a time period when Earth's
 fourth-dimensional vortices were not opened, the Sphere would explode
 upon impact with the natural frequency barrier that separates the third and
 fourth dimensions. This astral explosion would cause the Earth's fourth vor-
-74 
- 
 
-                                                             
                                                                              Sinking Atlantis and Earth Quarantine
 tex/chakra to collapse, which would systematically create a build up of energy
 throughout the remaining vortices and the Earth grid would explode. If the
@@ -92,9 +88,6 @@ the release of the fifth-dimensional Seal of Amenti. This meant that in the
 dimensional blending period of 6835 BC the Sphere of Amenti could be
 entered into the 10th-12th overtone frequency bands of D-3, and from that
 point on soul fragments would no longer become trapped in the D-4 astral     
-75 
-                                                                                                               
-                                                                                                                    
 
   A Journey Toward Awakening 
 plane upon death. This was a definite advantage in terms of the evolution of
@@ -140,9 +133,7 @@ faded, and the advantages of technological advancement those relationships
 allowed were lost. 
     Due to implementation of the Frequency Fence in 9540 BC, Earth
 evolved under quarantine, and humanity was cut off from its interstellar heri-
-76 
 
-                                                                   
                                                                                        Dreaming, Ego, and Higher Self
 tage, but this was not the only disadvantage that the Frequency Fence cre-
 ated for the human populations. The process of a soul essence birthing out of
@@ -171,8 +162,6 @@ tones in its operational strands. The Frequency Fence caused the third DNA
 strand to manifest without the seventh through the twelfth base tones and
 the seventh through the ninth overtones, which resulted in a genetic muta-
 tion for the human lineage. 
-                               
-                      
                         DREAMING, EGO, AND HIGHER SELF 
                                                     Dreaming 
     The third DNA strand corresponds to the third-Solar Plexus chakra, and
@@ -187,8 +176,6 @@ tal body, and fourth-dimensional/astral body levels of the bio-energetic field,
 developed a second barrier, creating an even larger gap between the con-
 scious mental awareness and the astral level of awareness. ln sleep the con-
 sciousness could travel into the astral identity, but now there would be a gap
-77 
-                                                                                                                 
 
 A Journey Toward Awakening 
 between the waking identity and its astral experience. This gap, created by
@@ -233,19 +220,14 @@ the Frequency Fence is beginning to lift and the third DNA strand is being
 repaired, sequential dream recall and memory of higher dimensional experience is
 once again developing in the races, and experiences associated with development
 of the higher DNA strands, such as lucid dreaming, simultaneous dreaming, con-
-78 
- 
 
-                                                                                         
                                                                                       Dreaming, Ego, and Higher Self
 scious astral projection and mental bilocation are also now emerging. For the ear-
 lier races, this loss of cognizant dream recall created an extreme sense of
 isolation and an over developed focus of consciousness within the external
 world. Dream recall was not the only area of human consciousness to be
 affected by the Frequency Fence. 
-                                         
                                 The Ego and the Higher Self 
-       
      Through the mutation in the third DNA strand, which manifested as a
 division within the third chakra and mental body level of the bio-energetic
 field, a new kind of consciousness developed within the races. As the first
@@ -267,9 +249,6 @@ of the third dimension. The portions of identity manifesting through the
 higher overtones of the third DNA strand became the Higher Self. The
 Higher Self mind could perceive activity taking place within the highest sub-
 frequency bands of the third dimension.         
- 
- 
- 
     The lower mind Ego developed an exaggerated sense of dualistic percep-
 tion, as it became locked into five-sensory perception. Using only five sensory
 perception, extreme distinctions between the inner world of personal iden-
@@ -285,9 +264,6 @@ morphogenetic field as an energetic blue print through which identities and
 events manifest. The race morphogenetic field also holds the individuated
 morphogenetic field for a person, and contains the higher dimensional soul
 aspects of consciousness through which the contours of the individual incar-
-79 
-                                                                                                               
-                                                                                                               
 
 A Journey Toward Awakening 
 nation are designed. Through the Frequency Fence the Ego became cut off
@@ -333,10 +309,7 @@ municated data to the conscious awareness via sub-consciously sensed feel-
 ing, that became known as the Intuitive Sense. Intuition represents information
 from the Higher Self sent to the conscious awareness via the body and sub-conscious
 mind. 
-80  
 
-                                                                
-                                                                                       
                                                                                          Dreaming, Ego, and Higher Self
     In the present day human, as the third DNA strand begins its reverse-
 mutation through the lifting of the Frequency Fence, the perceptions and
@@ -370,45 +343,6 @@ self. The Higher Self and the Ego came into being within the human lineage in 95
 BC, manifesting as a result of the Frequency Fence that was created to stop the
 Sphere of Amenti from destroying the Earth by entering the Earth's core prema-
 turely. 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
-                                 
-   
-81 
 
 A Journey Toward Awakening 
                           ALCYONE AND THE TEMPLAR SEAL 
@@ -418,7 +352,6 @@ A Journey Toward Awakening
         and Cloister Melchizedeks Appointed as Guardians of the Arc of the              
                Covenant, Resurrecting the Great Pyramid and the Sphinx. 
                                        8000 BC-5466 BC 
-      
     The races who returned from the Inner Earth to re-establish surface civi-
 lization, after the 9558 BC sinking of the Atlantean Islands, were faced with
 many new hardships as rebuilding of their cultures was orchestrated through
@@ -453,8 +386,6 @@ with many different races in generations following Atlantis, especially with
 those of the Annu-Melchizedek and Hebrew (Hibiru/Melchizedek) lines,
 passing on concentrations of the Templar Seal distortion throughout the
 Melchizedek races. The distortions of the Templar creed had also made their
-82 
- 
 
                                                                               Alcyone and the Templar Seal
 way into the Inner Earth societies and their patriarchal, elitist, sexist, materi-
@@ -493,17 +424,12 @@ Annu, who had been seeded through the Melchizedek Host Matrix, and
 through them larger portions of the Melchizedek Cloister had become mis-
 aligned with the 12-strand DNA imprint. Through the Melchizedek morpho-
 genetic field, the Hebrew-Melchizedeks and Annu-Melchizedeks also carried
-                         ________________________ 
- 
-                 
                  1.   The Zephelium, the original race line of the modern day Zeta Reticuli and their Greys,
                            were one of the visiting groups to Atlantis who became genetically mixed with some of
       the Templar-Annu race families. The reason contemporary Zeta sought genetic material
       from our race was that they hoped to find traces of their own original genetic imprint in
       our DNA, so they could reverse the mutations that had occurred in their own genetic
            lines and create hybrid versions of themselves more suited to Earth's environment 
-83 
-                                                                                                                         
 
                   A Journey Toward Awakening
 excessive genetic deviation, so the morphogenetic fields of these three groups
@@ -549,10 +475,7 @@ additional sub-races which bear the primary skin color of their Root Race and
 Cloister, who carry a dominant gene from the First Polarian and Second
 Hyperbornean Root Races of Gaia. Each of the primary Root Races and their
 Cloisters have this inter-mixed sub-racial division. The seven sub-families
-84 
- 
 
-                                                                                       
                                                                                         Alcyone and the Templar Seal
 within each of the seven sub-races are even further intermixed. We tell you
 this so you may come to realize that all of your races, though diversified in
@@ -588,7 +511,6 @@ proved to be a second primary setback to preparation for the 2017 AD mass
 ascension wave. Due to interracial difficulties between the Annu-Melchizedek
 and the Serres-Egyptian majorities, the Halls of Amenti were once again closed
 and mass preparation for ascension was curtailed. 
-    
     When the Templar Seals were applied in 8,000 BC, guardianship of the
 Arc of the Covenant was transferred out of the hands of the Annu-
 Melchizedeks and Hebrew races into the protection of the Serres-Egyptians
@@ -597,7 +519,6 @@ Melchizedek Cloister after the Annu and Hebrew morphogenetic fields had
 been removed). Previously the four races shared responsibility and accessibil-
 ity to the Arc of the Covenant, but following the Templar Seal only Cloister
 Melchizedeks and Serres-Egyptians were permitted direct involvement with
-85 
 
 A Journey Toward Awakening 
 the Inner Earth Priesthood of Ur, whose training kept knowledge of the Arc
@@ -633,24 +554,9 @@ from various other regions. The Arc of the Covenant, Sphere of Amenti and
 the tools of the Rod and the Staff became closely guarded secrets, held within the
 conﬁnes of select Serres-Egyptian and Melchizedek Cloister families  with  whom the
 Priests of Ur continued covert contact. 
-                         
-                         
-                             86
-                    
 
-                                                
-                                                        5
-                                                                                                                                                      
-                                        
-                                                                    
-            
 Return to Amenti 
-                                                    
-                                                 
                                                  PHARAOH AKHENATON 
- 
- 
-           
                    Return of the Sphere of Amenti, Birth of Pharaoh Akhenaton/ 
                       Amenophis IV, Templar Seal Released From the Annu Races, 
                                            Opening the Halls of Amenti and Ascension 
@@ -678,7 +584,6 @@ held the imprint for the fifth DNA strand, which would pull fifth-dimen-
 sional frequencies into the Earth grid, the opening of the Halls of Amenti
 was dependent upon enough of the Melchizedeks and fifth strand hybrid races
 being present on Earth to raise the grid speed high enough to hold the Blue
-87 
 
                   Return to Amenti
 Flame. In order to raise the grid speed, 8% of the total global population had to have
@@ -724,7 +629,6 @@ inal order. The avatar was born in 1398 BC, in the city of Thebes, Egypt, as
 the son of a Serres-Egyptian father and Annu-Melchizedek mother. This
 child became known as Amenophis IV, son of Pharaoh Amenophis III and
 Queen Tiy. When the child was grown he changed his name to Akhenaton
-88 
 
                                                                                                               Pharaoh Akhenaton
 (1366 BC), and began the Atonist movement within the Egyptian New
@@ -770,8 +674,6 @@ of Amenti, to realign the morphogenetic field of the Annu races so they
 could be re-entered into the Sphere of Amenti, and to orchestrate ascension
 for the Templar-Annu, Annu-Melchizedeks and selected others of various
 races, whose genetic codes were evolved enough to undergo this process. The
-89 
-                                                                                                                                                                                                             
 
  Return to Amenti 
 Annu lived in concentration in the Inner Earth, and were also disbursed
@@ -780,7 +682,6 @@ Annu from various locations were brought to Akhetaton at Tel el-Amarna
 for ascension initiation and training, and then taken secretly into the lower
 chambers of the Great Pyramid of Giza where they could pass through the
 Halls of Amenti and return to Tara. 
- 
          Though the Halls of Amenti had been opened in 1374 BC, Akhenaton
 did not begin ascension practices until 1367 BC, when his sanctuary at
 Akhetaton had been prepared and his training with the Priests of Ur had
@@ -805,24 +706,18 @@ worth mentioning the less-than-desirable events that colored his reign as
 Pharaoh. Because of these events, the Halls of Amenti were once again
 closed, and the quarantine under which the races had evolved since 9540 BC
 remained in effect long after it was originally intended. 
-           
             Conﬂict Between Serres-Egyptian-Melchizedeks and Annu- 
          Melchizedeks and Akhenaton, Opening the Portals of the Underworld,
    Closing the Halls of Amenti, Guardianship of the Arc of the Covenant  
        transferred to Hibiru Cloister, Deactivation of the Rod and the Staff 
-   
     and the Templar-Axion Seal, Tutankhamon and Haremhab. 
                                          1362 BC -1309 BC 
-        
      Akhenaton successfully practiced the rites of ascension among the Annu
 populations from 1367 BC to 1362 BC, following directives from the Priests
 of Ur in the Inner Earth. Tensions began to mount between Akhenaton and
 the Ur Priesthood when he was instructed to begin ascending other individu-
 als not of Annu lineage. In his original soul agreement, Akhenaton was to re-
-90 
 
-                                                                                                               
-                                                                                                               
                                                                                                               Pharaoh Akhenaton
 enter the Annu-Melchizedek morphogenetic field back into the Sphere of
 Amenti, see that the Halls of Amenti were opened, then oversee the training
@@ -866,7 +761,6 @@ fourth wife Ankhi and his half brother Sabatoth. With the assistance of the
 Elohim, these individuals were exiled to Giza and placed under the protection
 of a select group of Serres-Egyptian priests who had been permitted to know of
 the secrets of Amenti. Akhenaton’s fourth wife Ankhi had produced a son for
-91 
 
 Return to Amenti 
 Akhenaton in 1363 BC, and the child was later secretly taken to Giza by his
@@ -911,4 +805,3 @@ were sealed away in the UHF bands of D-3 within the Arc of the Covenant.
 On the evening when this confrontation occurred, all members of the con-
 flicting parties were energetically altered and returned to their home in
 Akhetaton, having their memory of the night's proceedings erased.
-92 

@@ -1,6 +1,5 @@
 # Appendices
 
-                                                             
                                                  The Seven Seals and the Four Horsemen of the Apocalypse
 Etheric and Density-3 Etheric indigo/violet light spectrum, or the ''Pale
 Horse.'' As Revelations 6:7 warns, when the 4th Jehovian Seal releases, the
@@ -47,14 +46,9 @@ unsavory Fallen Angelic dictatorships.
 Shall Rise,'' but unfortunately it was not our long-lost loved ones that would
 be returning; the Jehovians were referring to the living-dead tortured souls
 from the Phantom Matrix Pit. Souls that have been “harvested”20 by the
-                         _________________________
-                        
                            20.     I.e., kidnapped—consciousness ''soul essence" siphoned into the Phantom Matrix at time
                                               of death.
-                              421
 
-                        
-                       
                         HAARPs, Trumpets, Horsemen, and Heaven
 Jehovian Annu-Elohim, Necromiton-Andromie, Pleiadian-Nibiruian, Zeta-
 Rigelian, Odedicron-Reptilian and Omicron-Drakonian “Grim Reaper”
@@ -81,12 +75,8 @@ fiction stories. All the while the truth of the Loving God and humanity’s true
 Spiritual Heritage of the Founders Emerald Covenant Freedom Teachings
 have been repeatedly suppressed, misused, abused, twisted and defamed on
 behalf of our Fallen Angelic galactic terrorists. 
-        __________________________________________________________
-                       
                          How long will we continue to allow these cosmic criminals to use us as pawns
                              in their conquest game for Earth/Inner Earth/Halls of Amenti dominion?
-                         __________________________________________________________                                         
-                           
                                                                  RETURN TO INNOCENCE
                         Salvaging the Sacred. Healing World Religions.
    In the times before the 208,216 BC Fall of Brenaui,21 when the Angelic
@@ -100,13 +90,9 @@ Mechanics that allowed for the experience of manifest expression and
 simultaneous experience of At-one-ment with the true loving God-Source.
 Back then, we all knew ourselves, each other, the Earth, and all things as
 blessed expressions of the one God, and we honored all things accordingly. In
-                             ___________________________
                              21.   See Forbidden Testaments of Revelation, forthcoming.
                                  22.  Pre-matter Density-4 ''Universal Christos Field.''
-                                
-                              422
 
-                                                                                     
                                                                                                              Return to Innocence
 those Ancient of Days, the Days of Innocence, there were 12 Angelic
 Human Tribes appointed as the co-Guardians of Earth’s Planetary Templar
@@ -152,9 +138,7 @@ find it within ourselves, which we cannot do while we continue to Crucify
 Ourselves in the name of external Warlords and Wrath-filled False Gods. In
 the salvaging of the sacred and discarding of the deception within our world
 religious creeds, we can all rediscover God, ourselves and each other, and in
-423 
 
-   
                         HAARPs, Trumpets, Horsemen, and Heaven
 that discovery we can begin the journey of our collective Return to
 Innocence. 
@@ -198,12 +182,8 @@ Shaman....to everyone. This was true in the days before the “Falcon,” the
 claim on Earth and attempted to possess humanity’s soul. These were the
 Ancient of Days, the Days of Innocence, when Angelic Humans lived in
 peace and joyful union with all other kingdoms in “God’s House of Many
-                              
-                             ____________________________
                               23.   Personal Inner Christos, Pre-matter Template and D-12 Divine Blueprint.
-                             424
 
-                                                                                             
                                                                                                               Return to Innocence
 Mansions” that is our 15-Dimensional Time Matrix System and the many    
 others of its kind. These were days before the dereliction of Atlantis. Right
@@ -215,32 +195,11 @@ ancient books, or do we reach within and Godward, to find the Living
 Presence of Source that has always been there? These are the most decisive
 of times, for in the contemporary drama we will witness the long-foretold
 “battle of the Angels.” 
-                              ____________________________________________________________
-                         
                                The Fallen Angels and the Living Angels will, in these very times, meet, and
                         each individual will face the choice of deciding which type of Angel to be. 
-                        ____________________________________________________________
-                        _________________________
                                   24.   Time is simultaneous.
                                   25.   Our D-12 personal Christed Avatar Identity level.
-                                425
 
-                                 
-                                                  21
-                                                                                                                                             
-                                                    
- 
- 
- 
- 
- 
- 
-                                
-                       
-            
-                                     
-                                      
-                     
                               Conclusion—
                          Earth Changes Potential
                            PLANETARY SHIELDS CRISIS, SEALS AND EARTH CHANGES
@@ -276,9 +235,7 @@ have already taken place.
       As circumstances have dictated since 1930, and even since 9558 BC,
 Emerald Covenant nations could not directly intervene via mass physical
 contact. If Guardians had attempted mass physical contact, various Fallen
-426 
 
-                                                          
                                                             Planetary Shields Crisis, Seals and Earth Changes
 Angelic legions would have immediately brought this covert intergalactic/
 interdimensional war “out into the open,” and human civilizations would
@@ -328,11 +285,7 @@ frequency transmission into Earth’s Planetary Shields. Without assistance
 from Human and Indigo Children in “anchoring” these frequencies into
                  Earth’s Shields via Rainbow Roundtables (RRTs) and Masters Planetary 
                        Merkaba Mechanics, Guardian efforts to prevent this crisis would fail.  
-      
-                          427 
 
-                       
-                        
                           Conclusion— Earth Changes Potential
 The unnatural Seven Jehovian Seals are a despicable atrocity of
 technological ''achievement.'' 
@@ -380,13 +333,8 @@ Jehovian Seal has released. If the Jehovian Seals release and are not realigned
 to a 12-Code-Pulse before reaching critical mass, climatic and/or tectonic
 disturbances will erupt within the geographical regions corresponding to the
 Jehovian Seal’s placement. just as is the case with Earth’s 12 Organic Star
-                          ___________________
                                 1.     “Maharata Current”       
-                               428                                                                                                         
-                      
-                         
 
-                               
                           Climatic Disturbances and the Labor Day 2001 Sonic Pulse lnterference
 Crystal Seals, each Seal in the Jehovian sequence progression is more
 powerful than the one before; the Jehovian Seals 1, 2 and 3 create a lesser
@@ -416,10 +364,8 @@ Seal-4 frequencies as they emerged. Just prior to our initiation of the RRT,
 the sonic amplification pulse,4 transmitted from “Cue Site-4" Central
 Mexico via the Nibiruian Crystal Temple Network at Chihuahua, Mexico,
 rumbled through the Gru-AL Point off the coast of Sarasota Beach. 
-                              
                                  CLIMATIC DISTURBANCES 
       AND THE LABOR DAY 2001 SONIC PULSE INTERFERENCE 
-  
   As Organic Seal-4 began to open, the UlRs contrived sonic pulse,
 carrying a “Phantom Pulse” with reversed ARPS, ran through the Gru-AL
 and through the Bio-energetic Fields of the RRT group.5 When the sonic
@@ -428,8 +374,6 @@ reversed the Seal-4 current to the Phantom Pulse ARPS. Reversal of the
 stronger Organic Seal-4 current, instantly began to reactivate the reverse-
 ARPS frequencies of Jehovian Seals 1, 2 and 3 that we had successfully
 helped to realign to the 12-Code-Pulse during the May and July 2001 RRTs.
-                         _____________________________
-                            
                               2.    the ''White and Red Horsemen"
                                   3.    the ''Black Horseman"
                                   4.    later used in orchestrating the September 11, 2001, WTC/Pentagon Disaster
@@ -439,8 +383,6 @@ helped to realign to the 12-Code-Pulse during the May and July 2001 RRTs.
                                        side effects we incurred from absorbing and transmuting these frequencies. Numerous
                                                       others within the group also reported the experience of “emotional body purging" follow-
                                          ing the frequencies encountered on the beach that evening.
-                          429                                                                                                                                                                                                      
-                                                                                                                                        
 
                         Conclusion— Earth Changes Potential
 Despite the terribly disruptive energies of the Psychotronic sonic pulse that
@@ -472,8 +414,6 @@ Eieyani were quite serious when they had earlier that day explained that the
 UIR was now taking aggressive steps to rapidly advance their OWO agenda.
 Just how aggressive these steps would be did not become apparent until the
 morning of September 11, 2001. 
- 
- 
            When Jehovian Seals release, their frequencies can create disruptions for up to a 
 1000-2000 mile perimeter surrounding the Seal’s placement, while the greatest degree 
 of climatic or tectonic disruption occurs in the location of the Seal and within 100-200 
@@ -489,14 +429,9 @@ and May 2002, with January-February 2002 being the most vulnerable
 periods. 
                 Jehovian Seal-2, also released in May 2001, is located where the
                  borders of Peru, Chile and Bolivia meet, at 70° W Longitude/18.1° S
-                             _________________________
                               6.    “Pale Horseman”
                                  7.     Organic Seals 5, 6 and 7 will activate in late December 2001.
-                              430 
-                    
 
-   
-                       
                           Climatic Disturbances and the Labor Day 2001 Sonic Pulse Interference
 Latitude; due to Jehovian Seal-2 release, this area is vulnerable to seismic
 activity, especially between December 2001 and March 2002. 
@@ -543,12 +478,10 @@ mixed with blood,'' ''a blazing mountain being thrown into the sea turning
 the sea to blood,'' the fall of Nibiruian Battlestar Wormwood on the Rivers of
  the Earth, followed by plagues, Beasts from the Pit and finally the intended                           
 grand Jehovian Anunnaki invasion. These guys are real humanitarians!  
- 
  The Indigo Children are the return of the Emerald Covenant Maji Grail
                   Line Eieyani/Humans who have incarnated into this time period to stand
                   with the Human races in prevention of all of the Fallen Angelics’ OWO
           dominion plans. Through loving use of the Founders’ Masters Planetary 
-                        431   
 
                         Conclusion— Earth Changes Potential
 Templar Mechanics, we can peacefully prevent fulfillment of the “Final
@@ -591,16 +524,13 @@ into the new dawn of Human freedom as our Inner Light awakens, to lead our
  living spirits Upward,....Godward,....Home. 
     With light, love and heartfelt condolences to all who have suffered from
   the dreadful events of the 9/11/2001 WTC/Pentagon Terrorist Attack....
-                                          
                                                               May peace be with us all....
                                                                 God bless us, everyone.
                                                            —Ashayana Deane, Ekr MC
                                                                     October 10, 2001
-                           432
 
                                                                                                                                                     Epilog
                                                                                       EPILOG
- 
 Since the September 12, 2000 United Intruder Resistance (UIR) Edict of
 War, Emerald Covenant races have provided us with massive amounts of
 data from the CDT-PLATES, covering the Hidden Realities of History and
@@ -616,31 +546,16 @@ about Signet Rainbow Round Tables, or other GA programs,
 such as DNA Bio-Regenesis Technologies, the Kathara Bio-Spiritual Heal-
 ing System or the Tangible Structure of the Soul Accelerated Bio-Spiritual
 Evolution Program, please contact us at the address below: 
-                                                               
                                                                   ARhAyas Productions LLC 
- 
                                                                          5020 Clark Rd #307  
                                                                                   Sarasota 
                                                                                   FL 34233 
                                                                   Email: office@arhayas.com
                                                                       Phone: 941-924-8109
                                                                         or visit our website   
- 
- 
- 
- 
-                      
                                  http://www.arhayas.com
-                                                                                                                               
-                        433
 
-                                         
                                                                           Appendix I
-                                                                                 
-                               
-                          
-                          
-                           
                               Data Summaries and
              At-A-Glance Blow-Up Charts
             Chapter 18 is provided as a summary of information contained through-
@@ -650,7 +565,6 @@ jects are addressed by topic heading and are summarized on one data sheet for
 easy reference. Condensing information for the data sheets requires a small
 size type. The At-A-Glance Blow-Up Charts are formatted for easy photo-
 copier enlargement. 
-                                   
                                        AT-A-GLANCE BLOW-UP CHARTS
   1. Recent History and Current Events page 435
   2. Amenti Ascension Program page 436
@@ -663,11 +577,9 @@ copier enlargement.
   9. Time Shift Continuum Progression Ill Voyagers Leap page 443
    10. Origins, Secrets of Amenti page 444
    11. The Three Seedings and the Root and Cloister Races of Amenti page 445
-                                            
                                                           DATA SUMMARIES
           1. The Six Silent Ascension Avatars page 446
           2. The Three Tracks of Time page 447
-                         434
 
                                                                                                          Data Summaries
                                         Recent History and Current Events
@@ -684,7 +596,6 @@ copier enlargement.
  1952-1968: Earth scientists observe instabilities on sun, unaware of 1943 Zeta cause. Concern of Pole Shift
  8/7/1972: Solar ﬂare explosions begin. Red Pulse due by 9/1973 would destroy Earth life. Guardians intervene.
  1972: Guardians 11:11/12:12 Frequency Fence to protect from Red Pulse & begin genetic repair abductions                   
- 
  1973:Guardians begin infusions of energy on sun to repair solar damage from Zetas 1943 sun manipulations
 1973 -1/11/1992: Guardians employ Holographic Inserts to maintain illusion of Earth stability while sun realigns
 1982: Guardians split and divert course of asteroid due to hit Earth.
@@ -709,10 +620,6 @@ copier enlargement.
 2nd Seal on Arc of the Covenant opens. Fate of human destiny changed. Ascension Program
 & Bridge Zone Project rescue mission will occur.
                                                                        ©2002 Ashayana Deane
-                                                                                                                                                 
-               
-                435
-                                                                                                                                                         
 
                  Data Summaries and At-A-Glance Blow-Up Charts
                                       Amenti Ascension Program
@@ -759,11 +666,8 @@ Earth's magnetic fields return. Grids of Earth & Tara begin to separate.
 ascension period comes to a close. Earth stabilizes within the Bridge Zone time continuum.
 Energy infusions through Earth's grid cease. Earth's 7" Vortex - Andes Mountains, South America - closes.
 1/1/2022-6/2047: Earth's 6 remaining primary Vortices close, Vortex 6 to Vortex 1. Ascension cycle ends.
-         
                                                                       ©2002 Ashayana Deane
-                  436
 
-                                                                                                                           
                                                                                                               Data Summaries
                                                             The Seven Seals
                                                         At-A-Glance Blow-Up Chart
@@ -771,7 +675,6 @@ Energy infusions through Earth's grid cease. Earth's 7" Vortex - Andes Mountains
                                    Opening-Activating and Closing-Deactivating Schedule
                  VORTEX & LOCATION                              OPENING CYCLE       CLOSING CYCLE
                               #                                                                     FULLY ACTIVATED       FULLY CLOSED
-                         ________________________________________________________________________________
                          1      Painted Desert, Arizona USA                      1/1988 - 6/1992              6/2042 - 6/2047
                          2      Jerusalem, Israel                                          6/1992 - 6/1996               6/2038 -6/2042
                          3      Himalayan Mountains, Asia                        6/1996 - 1/2000              1/2035 - 6/2038
@@ -809,25 +712,15 @@ now approaches, as it enters the ½ cycle point in its 2nd ascension cycle, are 
 within the annals of recorded human history. The coming of these events has been symbolically
 foretold through oral and written tradition for thousands of years.
                                                                             ©2002 Ashayana Deane   
-                     437 
-                                                 
 
-     
                 Data Summaries and At-A-Glance Blow- Up Charts
                                                     The Six Silent Ascension Avatars
                                                     At-A-Glance Blow-Up Chart
        AVATAR    DATE        SOUL             SOUL               ALIGNS         TURNS
              #             OF         ESSENCE      ESSENCE          DNA                33
                          BIRTH      NAME            LEVEL              STRAND
-____________________________________________________________
            1           7/26/1992            LAU CHA-             7th LEVEL                  STRAND                2025 AD
                                                           SAN                        AVATAR                          2                               
- 
- 
- 
- 
- 
-                                                                                                                                                                                 
                      ------------------------------------------------------------------------------------------------------------------------     
                                     2           6/24/1996             BRAHAMHAN     8th LEVEL                 STRAND                2029 AD
                                                                                    MAHA-TIA           AVATAR                          3
@@ -845,7 +738,6 @@ ____________________________________________________________
                                      12:01am
                                         6            5/5/2012              SANANDA-BEN- 12th LEVEL                STRAND               2045AD
                                                                                   JEVOHI                   AVATAR                             7
-                   _________________________________________________________________ 
 T = birth is scheduled for this date, but may occur any time earlier, most likely
 following the birth of the previous avatar. Birth must occur no later than
 scheduled date. Birth will remain as scheduled unless circumstances warrant
@@ -861,16 +753,8 @@ essential for Earth's passage into the Bridge Zone. The D-6 souls will birth on 
 to serve in fulfilling this requirement. The 6 Silent Avatars and indigo Children are born
 via Palaidorian Birthing Contracts and Contract Bonds.
                                                        ©2002 Ashayana Deane
-                  
-                  
-                  438
 
 
-
-
-
-
-                       
                         Data Summaries and At-A-Glance Blow-Up Charts
                                           Origins - Secrets of Amenti
                                             At-A-Glance Blow-Up Chart
@@ -919,8 +803,6 @@ Races of the 3rd Seeding were birthed into ﬂesh through the Arc of the Covenan
 called the Arch of the Covenant of Palaidor, denoting the Palaidorian Covenant through which the 
 Amenti Rescue Mission was begun 550 million years ago.    
                                                                                   ©2002 Ashayana Deane   
-                                444
-                            
 
 
                            Data Summaries and At-A-Glance Blow-Up Charts
@@ -962,11 +844,8 @@ because their identities, religious affiliations and geographical locations will
 be undisclosed to the public during the ascension period. Their identities will
 not be revealed until they have reached the age of 33 and their service mis-
 sions come into mass awareness. 
-446 
 
-                                                                                                                  
                                                                                                    The Three Tracks of Time
-                              
                              THE THREE TRACKS OF TIME 
 Earth’s populations will permanently divide into three separate groups
 2012-2017 
@@ -1006,7 +885,6 @@ ers & they will have open relationships with ET and metaterrestrial commu-
 nities while evolving on Tara. 
     • Few will take the path of the Voyager, but it is the path of choice & the
 opportunity of many life times for those who can qualify. 
-447 
 
 Data Summaries and At-A-Glance Blow-Up Charts 
    Time Track 2—Phantom Earth Descending Planet—D-3 Time Cycle 
@@ -1043,14 +921,11 @@ out of the HU-1 time cycles.
         • This is the least favorable path, with far reaching evolutionary conse-
 quences, but will be experienced by large numbers of the population if they
 do not rapidly awaken & take responsibility for conscious evolution.
-448  
 
-                                                                                              
                                                                                                         The Three Tracks of Time
                                                   Time Track 3—Night of the Two Moons— 
                                            Bridge Zone Earth—Agartha—D-3.5 Time Cycle    
             Bridging Humans – Earth’s 2213-year Leap into the Future (Agartha AD 5336.5) 
-          
         • Humans who achieve assembly & activation of all of the fourth & _ of
 the fifth DNA strand & who complete a minimum of 1.5 Stellar Activations
 will be able to pass into the Bridge Zone-Agartha time continuum with Earth
@@ -1089,8 +964,6 @@ are discovered.
 within the atmosphere & their physical bodies & the body will have a
 renewed sense of energy, health & vitality. As the higher chakra centers acti-
 vate conscious integration of the soul identity will accelerate. 
-   
-449        
 
 Data Summaries and At-A-Glance Blow-Up Charts
      •   During the 3-day period populations of Bridge Zone Earth may experi-
@@ -1106,7 +979,6 @@ enlightenment will begin.
 rescue mission through which the integrity of the human evolutionary blue-
 print will be secured. Bridge Zone Earth is the second most desirable path &
 one that will be taken by about 8% of Earth's populations.
-                                    
                                CHOOSING YOUR FUTURE
           The path you will find yourself on between 2012 - 2017 will be deter-
 mined by your choices now. The key to ascending to the Bridge Zone or Tara
@@ -1122,23 +994,14 @@ Crystal Seal activation & DNA acceleration, through which transmutative
 self-evacuation from Descending Earth can be achieved. You have free will to
 choose what future you will see, within the greater framework of Earth’s evo-
 lutionary course; this course now offer three primary options.
-______________________________________________________________
-                                                 
                                                  Choose Well.
-_______________________________________________________________
       •   For more information on Stellar Activations & Bodily Transmutation
          see page 464.
-         450
-                                                      
 
                                              Appendix II                                 
-                                       
-                                          
                                 Introduction to Keylonta
-                                        
                                  THE SCIENCE OF LIGHT, SOUND, THE SUB-CONSCIOUS
                                          SYMBOL CODES, AND THE BASE CODES OF MATTER
-                              
                                                  Exploring Ultra-Micro Particle Mechanics
         Keylonta is the science of energy dynamics as they apply to a multidi-
 mensional, perpetual motion universe. lt is the primary foundation upon
@@ -1165,9 +1028,7 @@ design through the Central Creative Source.
 Cosmic Cores and 12 Meta-Galactic Cores, both united through and existing
 within the Central Source of Creation. The Guardians refer to this Central
 Source as the Yunasai and it is the sentient, creative identity-in-energy
-451 
 
-                                                                                                                     
 Introduction to Keylonta 
 through and within which the cosmos and its parts manifest. The 12 Meta-
 Galactic Cores of the cosmos pair to form six primary reality fields in which
@@ -1211,9 +1072,7 @@ lons and the energetic dynamics inherent to Keylontic Science we can learn
 to consciously direct the path of our physical and spiritual evolution.
 Through this knowledge we can one day learn to master the contours of mat-
 ter and consciousness as they apply to the simultaneously co-existing space-
-452 
 
-                                                                        
                                                                          Six Primary Elements of Keylontic Science
 time fields of the 15-dimensional Matrix, within which our present existence
 takes place. 
@@ -1229,7 +1088,6 @@ tic Science is to understand the mechanics by which the elements of Keylon-
 tic Science interrelate with the components of multidimensional anatomy.
 The first step in the study of Keylonta is becoming familiar with the six pri-
 mary elements of Keylontic Science. 
-                  
                                      SIX PRIMARY ELEMENTS OF KEYLONTIC SCIENCE      
      1. Partiki: Partiki represent the units of crystalline morphogenetic sub-
 stance out of which particles and anti-particles emerge. Partiki are units of
@@ -1258,18 +1116,6 @@ with the Partika are called Particum. The Particum set the pulsation rhythm
 through which Partiki units will group to form particles that are a slower pul-
 sating reflection of the Partika anti-particles. Together the Partiki, Partika
 and Particum set the foundations for particle and anti-particle manifestation
-453 
-                          
- 
- 
- 
- 
- 
- 
- 
- 
- 
-    
 
 Introduction to Keylonta 
 within the Unified Fields of the 15-dimensional Matrix. They are the ener-
@@ -1315,7 +1161,6 @@ their individual structure that holds the morphogenetic imprint for the form
 or identity and the intrinsic base pattern for the particles and anti-particles
 that will manifest that form into matter. The personal Partiki Grid is inti-
 mately interwoven with the greater Partiki Grid of the Cosmic Unified Field.
-454 
 
                                                                          Six Primary Elements of Keylontic Science
 All things are eternally, energetically connected to the energy-identity of the
@@ -1360,7 +1205,6 @@ atomic and genetic makeup of a form and the characteristics of consciousness
 the form will possess. Keylon Codes represent complex patterns of interwo-
 ven sound tones and light spectra that form compound morphogenetic crys-
 talline structures that serve as the templates of living light and sound to
-455 
 
 Introduction to Keylonta 
 which pre-matter sub-particles and matter and anti-matter particles will
@@ -1406,7 +1250,6 @@ energetic system the pre-matter construction of a biological form is created.
 This pre-matter construction is referred to as the Nadis and Nadial Capsule.
 The Nadial Capsule separates the levels of the auric field and the identity
 into 3-dimensional divisions and the Nadis serve as a system of minute pre-
-456                                                                    
 
                                               Six Primary Elements of Keylontic Science 
 matter channels through which Partiki unit energy from the auric field ﬂows
@@ -1452,7 +1295,6 @@ and the physically embodied consciousness, following the design set by the
 Light-Symbol Code program within the Crystal Body. 
       Cellular Transmutation can be achieved by adding new frequency pat-
 terns into the Crystal Body by changing the program of the Light-Symbol
-457 
 
 Introduction to Keylonta
 Codes to hold the new frequency patterns. The use of internal and external
@@ -1491,12 +1333,10 @@ the 15-dimensional system:
      ness, possessing complex 15-dimensional Crystal Body structures.Keylon-
      tic Science studies and implements the natural laws and dynamics
      inherent to the creation of matter and the evolution of consciousness.
-      
    The Science of Keylonta can be viewed as the science of Light and
 Sound (electro-tonal units of Partiki), the Sub-conscious Symbol Codes
 (Light-Symbol Codes that program the Crystal Body and operate on a sub-
 conscious level) and the Base Codes of Matter (the crystalline Keylon Codes
-458 
 
                                            Six Primary Elements of Keylontic Science
 that make up the morphogenetic Crystal Body and form the basis of all struc-
@@ -1513,7 +1353,6 @@ and religion acknowledges the dynamics of energetic reality inherent to
 spirit. Keylonta is the science of the future and of the ancient past, reaching
 backward and forward through time to help humanity rediscover sovereignty
 over its being today.  
-                 
      Example of a Partiki Grid
 “Lines of Light,” composed
 of minute, electro-tonal Par-
@@ -1540,15 +1379,12 @@ within the Unified Field. Keylon Codes direct the patterns of Partiki fission/
 fusion and the patterns of refraction and replication of electro-tonal energy
 that allow for differentiation of form and consciousness within the unified
 Partiki grid of the Cosmic Matrix.        
-459 
 
 
-                                                                                        
                                                                                                   Welcome to the Fifth World
                          2.    A Light-symbol code program entered
                                into a Keylon code within a Partiki 
                                grid                                                                                             
-                                                                                                        
                                                    WELCOME TO THE FIFTH WORLD
     Many tribal cultures throughout our recent history have shared a rich tra-
 dition of prophecy regarding the transitions Earth will encounter during its
@@ -1582,11 +1418,7 @@ reached the necessary level of vibration. The planet would have remained
 within the HU-1 dimensions for another 26,566-year cycle. The new cycle
 would have reached an early close with the destruction of Earth before the
 next ascension period occurred. 
-461 
- 
-                                                                                                                                              
 
- 
                         Introduction to Keylonta
      In many Native American traditions, the coming “end times” ascension
 cycle period is viewed as a transition from what is known as the Fourth
@@ -1604,7 +1436,6 @@ ter Races of the 12 Tribes seeded on Parallel Earth.
    WORLD THREE: 25,000,000—5,500,000 years ago. The First Seed-
 ing of the 12 Tribes on Earth. The five Cloister Races and Root Race Three:
 Lumanians and Four: Alanians. Ended via Electric Wars. 
-           
     WORLD FOUR: 3,700,000 years ago to present. The Second Seeding
 3,700,000—848,000 years ago, Root Races Three: Lamanians, Four: Atlanians
 and Five: Ayrians and their Cloister Races. Ended via The Thousand-Year
@@ -1626,14 +1457,8 @@ Lemurians, Four: Atlanteans and Five: Aryans and their Cloisters.
               Earth will not make this transition and will remain within the digressing
               Fourth World evolutionary cycle of a Descending Planet in the D-3 time con-
                           tinuum. 
-                     462 
 
-                                                    
                                              Appendix III
-                                                                      
-                        
-                     
-                           
                         Ascension Cycle Dynamics 
     Earth is approaching a time continuum shift between 5/5/2000-2017.
 This continuum shift represents a literal planetary time acceleration. Time
@@ -1665,15 +1490,11 @@ vated and Stellar Spiral Alignments are the catalysts through which Stellar
 Activations can occur. Humans who complete a minimum of 1.5 Stellar
 Activations will be able to raise the particle pulsation rate of the body suffi-
 ciently to avoid adverse effects of Earth’s time acceleration. The following
-463 
 
-                 
                          Ascension Cycle Dynamics
                  information provides an introduction to the science of cellular transmutation
                            through particle acceleration.
-                        
                                       STELLAR ACTIVATIONS 
-                  
                   Transmutative Activations—Planetary and Personal 
       All matter forms and forms of consciousness, including planetary bodies
 and human bodies, are manifested through a morphogenetic (form-holding)
@@ -1712,10 +1533,7 @@ teen dimensional Merkaba Fields, which hold its morphogenetic imprint
 intact within the 15-dimensional Unified Field. Through the rotation of the
 15 Merkaba Fields, an energy structure in the form of an “egg” or capsule is
 formed within the dimensional Unified Field of each of the 15 dimensions.
-464       
-                               
 
-                                                                                                                 
                                                                                                               Stellar Activations
 Through these dimensional energetic capsule structures, the chakra system,
 or dimensional energy supply system, is formed. Through the chakra system a
@@ -1760,17 +1578,6 @@ ence six such activations between 2000-2017.
        Humans who do not prepare the body, consciousness and chakra system
 for these activations will be unable to shift into the Bridge Zone time contin-
 uum or ascend to Tara and beyond. (This applies to disembodied, HU-1 soul
-465 
-                      
- 
- 
- 
- 
- 
- 
- 
- 
-       
 
 Ascension Cycle Dynamics 
 essences, as well as to souls living within HU-1 bodies.) They will also expe-
@@ -1798,11 +1605,8 @@ tion rhythm of Earth’s three-dimensional particle base. This in turn directly
 affects the bio-energetic fields of all life forms on the planet and thus the met-
 abolic and biological processes of the body that are controlled through the
 personal bio-energetic field. 
-                                       
                                  STELLAR WAVE INFUSIONS 
-                                 
                                    Transmutative Wave Infusions 
-     
        Blue Wave D-5/D-6, Violet Wave D-6/D-7, Gold Wave D-7/D-8, Silver Wave D-8/D-9,
         Blue-Black Liquid Light Wave D-9/D-10 and Silver-Black Liquid Light Wave D-10/D-11
    As the Stellar Activations progressively take place, infusions of UHF
@@ -1817,9 +1621,7 @@ Bridge Zone or Ascension paths.
 the Earth’s core, through which the Earth’s core particle pulsation rhythm is
 raised high enough to merge with the frequency bands of the first Stellar Spi-
 ral, when it aligns with Earth’s Merkaba Fields during the ascension cycle.
-466 
 
-                                                                                                             
                                                                                                             Stellar Wave Infusions
 Normally the ascension cycle initiates because the human populations of
 Earth have reached a high enough vibration of consciousness and DNA
@@ -1863,7 +1665,6 @@ Races 75,000 years ago.
    Because of the Guardians’ intervention and the necessity of the Bridge
 Zone Project, this opportunity and the challenges it will present are available
 to the current generation of humans. The events that will occur on and with
-467 
 
 Ascension Cycle Dynamics 
 the molecular and bio-energetic structure of Earth during the 2000-2017 AD
@@ -1908,13 +1709,10 @@ lular structure, as the particles of the HU-1 body merge with their anti-
 particles and increase their pulsation rhythm to that of HU-2. 
   The consciousness is transferred into the time cycles and three-dimen-
 sional perceptual experience of HU-2 Tara, HU-3 Gaia or beyond, depending
-468 
 
-                                                                                                                   
                                                                                                              Stellar Wave Infusions
 upon the level of Stellar Activation that is completed. These are the dynam-
 ics of the science of ascension, which is one application of Keylontic Science.
- 
    The term Stellar Wave Infusion is derived from observation of the actual
 energetic process that takes place as these higher-dimensional frequencies
 enter the auric field. Once a DNA strand has reached one-half assembly, the
@@ -1955,15 +1753,7 @@ of Earth’s Stellar Activations can be avoided.
 one does not understand what is taking place and they can be life threatening
 if the lower chakras have not been balanced and the physical body has not
 been prepared for these alterations. Through the Stellar Activations and
-469 
- 
- 
- 
- 
- 
-                                                  
 
-                     
                         Ascension Cycle Dynamics
 Wave Infusions new areas of the brain are brought out of dormancy and the
 glandular systems of the body, such as the Thymus, Thyroid, Pineal and Pitu-
@@ -1992,7 +1782,6 @@ auric field and chakra systems through available resources, and begin working
 to clear and balance your in-body chakras through energy work, visualization,
 toning and other holistic health practices. 
                                      THE STELLAR BRIDGE                         
-                           
                   Stellar Spirals, Stellar Activations and Wave Infusions 
    During the two ascension cycle periods at the beginning and end of a
 26,556-year Harmonic Universe Euiago cycle, certain alignments of multidi-
@@ -2004,13 +1793,10 @@ These spirals of EM energy run through various galaxies and star systems
 before entering into Earth’s solar system. There is a natural pathway of inter-
 dimensional Merkaba Field alignment through which these energies interface                                                                                 
 with Earth during the second ascension cycle period.  
- 
    The form-holding morphogenetic imprint for the Milky Way Galaxy exists 
 within the frequency bands of D-9, thus D-9 is considered to represent 
 the Galactic Core. (D-8 holds the morphogenetic field for the entire 15-  
-470                                                                                                                              
 
-                                                                                                                         
                                                                                                                    The Stellar Bridge
 dimensional Universe, and is thus considered the Meta-Galactic Core.) The
 D-9 Galactic Core is located, in spatial terms, within the Andromeda Star
@@ -2055,15 +1841,6 @@ of Earth begins a Transmutative Stellar Activation. Between 5/5/2000 and
 Stellar Spirals of the multidimensional Earth-to-Andromeda Stellar Bridge
 progressively align with Earth’s Merkaba Fields. During each Stellar Activa-
 tion, the dimensional frequencies carried within the activating spiral begin to
-471 
- 
- 
- 
- 
- 
- 
- 
-                                                                                                                                   
 
 Ascension Cycle Dynamics 
 transmit through Earth's core morphogenetic field and grid, raising the pulsa-
@@ -2108,9 +1885,7 @@ and thus would have remained trapped within the D-3 time continuum,
 unable to enter the Bridge Zone continuum. 
    The outcome of this would have been planetary destruction in 2976 AD,
 due to Dracos-Zeta Resistance infiltration. We want you to understand the
-472 
 
-                                                                                                    
                                                                                                   Morphogenetic Crystal Seals
 principle of raising core pulsation rhythm high enough to receive frequency
 transmissions from the Stellar Spirals, for this principle applies directly to
@@ -2127,7 +1902,6 @@ evolution. Humans are connected to their HU-2 soul matrix via the Sphere
 of Amenti race morphogenetic field, which will remain at the core of Bridge
 Zone Earth. This condition can be avoided through conscious participation
 in the Stellar Activation process. 
-                       
                           MORPHOGENETIC CRYSTAL SEALS 
        Seed Crystals, Star Crystals and Transmutation of the Human Body 
    As Earth enters its cycle of Stellar Activations and Stellar Wave Infu-
@@ -2149,13 +1923,11 @@ the human bio-energetic field, it is passed into the multidimensional, per-
 sonal morphogenetic field of the human via Stellar Wave Infusions, just as
 stellar frequencies are added to the Earth’s core morphogenetic field through
 Wave Infusions. 
- 
   Planetary bodies and human bodies are multidimensional in structure.
 The primary morphogenetic identity (form-holding pattern) for galaxies,
 planets and people is held within the entry point to the 15-dimensional sys-
 tem, the D-8 Meta-Galactic Core. From that point the morphogenetic design
 spreads outward into each of the 15-dimensional particle fields. The slower
-473 
 
 Ascension Cycle Dynamics 
 moving particle fields of dimensions 1-7 hold the morphogenetic design of a
@@ -2201,9 +1973,7 @@ the other 15 seals are placed between dimensional bands and serve to regu-
 late the function of the Seed Crystal Seals. The 15 morphogenetic seals exist-
 ing between dimensional bands in the bio-energetic structure of a planet or
 person are called Star Crystal Seals or Fire Crystals. The Star Crystal Seals
-474 
 
-                                                                                                  
                                                                                                   Morphogenetic Crystal Seals
 control the angle at which the Dimensional and Harmonic Merkaba Fields
 will rotate, thus they direct the angular rotation of particle spin between the
@@ -2246,20 +2016,8 @@ rhythms of the body’s multidimensional particle base. The human body is
 connected to its HU-2 Soul Matrix, HU-3 Over-soul Matrix and Morphoge-
 netic Identity of HU-4 and HU-5 through its 15 Seed Crystal Seals. The
 human bio-energetic body also contains 15 Star Crystal Seals that control
-475 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
 
 Ascension Cycle Dynamics 
- 
 the operation of the Seed Crystal Seals. The Seed Crystal Seals of the human
 body are located at the center of the 15 primary chakra centers, nine of
 which are located within the physical body structure. 
@@ -2302,15 +2060,12 @@ out of HU-1 into HU-2, then from HU-2 into the Over-soul matrix of HU-3.
 This is a complicated process of interdimensional energy dynamics. For our
 discussion, it is enough for you to know that the Star Crystal Seals and Seed
 Crystal Seals exist as part of your bio-energetic make up. These energy cen-
-476 
 
-                                                                                                                           
                                                                                                                The Silicate Matrix
 ters will be used during Stellar Wave Infusions and Activations, in order to
 transmute the particle content of the body and consciousness out of the D-3
 time cycles and into the HU-2 time cycles of Bridge Zone Earth or Tara.
                                  THE SILICATE MATRIX 
-       
        The Crystal Seals, Seed Codes, Fire Codes and The Silicate Matrix 
   The process of assembling DNA strands by working with the higher
 chakras is the process of bringing frequency from the Stellar Spirals into the
@@ -2347,7 +2102,6 @@ Without the functional Silicate Matrix, the Star Crystal Seals of the bio-
 energetic body cannot activate and thus the body cannot achieve cellular
 transmutation. Without operational Fire Codes, the body becomes locked
 within its dimensional space-time station. The Fire Codes of the Silicate
-477 
 
     Ascension Cycle Dynamics 
 Matrix are restored to function through correcting distortions within the
@@ -2370,9 +2124,7 @@ In subsequent books we of the Guardian Alliance will provide exercises
 through which you can begin to consciously participate in this process. For
 now we would simply like you to become acquainted with these hidden
 dynamics of the science of ascension. 
-                                                       
                                                    DNA 101 
-                                                        
                                                    Definitions 
  1.    Seed Crystal Seals: Minute crystalline frequency seals within each chakra
 and auric field level of the 15-dimensional human bio-energetic field, that
@@ -2392,17 +2144,7 @@ Dimensional Merkaba Fields spin. Release of a Seed Crystal Seal allows
 the particles and anti-particles of one dimension to fuse and to accelerate
 in pulsation rhythm, causing the Dimensional Merkaba Field to accelerate
 its speed of rotation. 
-478 
 
-                                                                                                                                                                                                                                              
- 
- 
- 
- 
- 
- 
- 
- 
                            DNA 101
 When the body’s particles in one dimension fuse and accelerate and the
 rotation speed of the Merkaba Field increases, the Star Crystal Seal
@@ -2445,7 +2187,6 @@ crystalline structures to manifest within the molecular structure of the
 blood, which prepares the body’s bio-chemical, cellular, hormonal and
 metabolic systems for acceleration of particle rhythm and transmutation.
 Dimensional particle rhythm acceleration causes the Star Crystal Seal
-479
 
 Ascension Cycle Dynamics
 between that dimension and the dimension above to release. Release of a
@@ -2488,10 +2229,7 @@ Seals located within the structure of the human body, and six located
 within the multidimensional bio-energetic body (outside of the physical
 structure), for a total of 15 Star Crystal Seals within the design of multidi-
 mensional human anatomy.
- 
-480
 
-                                                                                                                                              
                                                                                                                          DNA 101
   4.       DNA Fire Codes—Activation Codes: Units of minute crystalline fre-
 quency within the dimensional morphogenetic imprint for the DNA that
@@ -2535,14 +2273,12 @@ verse above.
 There are 12 Fire Codes dormant within the original human 12-strand
 DNA imprint, each corresponding to one of 12 Star Crystals. The 12 Fire
 Codes are collectively referred to as the Silicate Matrix or Crystal Gene-
-481
 
 Ascension Cycle Dynamics 
 the Gene of Transmutation. The Fire Codes break down through distor-
 tion in the DNA Seed Codes and become dysfunctional until the DNA
 Seed Codes are realigned. The Star Crystal Seals of the bio-energetic body
 cannot release unless the Silicate Matrix is operational. 
-                            
                           DNA Mutations and the Ascension Cycle 
     Prior to mutation of the human genetic code, the process of Seed Crystal
 Seal, Star Crystal Seal and Fire Code activation happened automatically as a
@@ -2581,9 +2317,7 @@ Wave Infusions of the ascension period, the process of cellular transmutation
 can be brieﬂy called into action. This will allow for a self-generated bio-ener-
 getically induced transmutative evacuation from Phantom Earth to take
 place, for those who participate in the Stellar Activation process. The DNA
-482 
 
-                                                                                                                                 
                                                                                                                                 DNA 101
 strand mutations will be cleared from the race morphogenetic field of the
 Sphere of Amenti and the corrected imprint will be transmitted through
@@ -2620,13 +2354,11 @@ into the lower, in-body chakras. By intention you can use the Stellar Spiral
 frequencies to activate these higher chakra centers, then draw energy from
 the Spirals through the activated chakras into the lower chakras and the
 appropriate Star Crystal Seals. 
-483 
 
 Ascension Cycle Dynamics
                                            You must know:
    A. What Stellar Spirals carry what frequencies and when the Spiral aligns with Earth,
                                          making those frequencies available.
- 
   B. Where your higher and lower chakras and Star Crystal Seals are located, what
  frequencies each chakra can draw in and how the chakras correspond to the Star Crystal
                                                     Seals you need to activate.
@@ -2659,13 +2391,8 @@ For your convenience we provide the following charts.
 6.  Planetary Stellar Activations and Wave Infusions Chart, see page 490.
 7.  Stellar Activations and Wave Infusions Schedule, see page 491.
 8.  Stellar Spiral Alignments Schedule, see page 492.
-484
 
 
-
-
-
-            
                                                  Ascension Cycle Dynamics At-A-Glance Blow-Up Charts
                                          6 Personal Stellar Activations and Wave Infusions Summary
                                             The Star Crystal Seal - DNA Transmutative Activations Available to Humans 5/5/2000 -2017
@@ -2677,7 +2404,6 @@ For your convenience we provide the following charts.
       CHAKRAS: draw frequency  from Solar Spiral through chakras 11 & 12, into chakras 4 & 5 then into
       Blue Star Crystal Seal
       Blue Wave Infusions of D-4/D-5 frequency begin at Blue Star one-half activation
-                                             _______________________________________________________________________________________
                                       2   D-5 PLEIADIAN - SOUL SEAT -ACTIVATION: D-5 Pleiadian-Alcyone Spiral Aligns 6/2004
          DATES AVAILABLE FOR ACTIVATION: 9/9/2004 - 2022 general populations
             STAR CRYSTAL SEAL ACTIVATES: #6 D-5/D-6 INDIGO STAR CRYSTAL, In 8thchakra between chakras 4 & 5
@@ -2686,7 +2412,6 @@ For your convenience we provide the following charts.
   CHAKRAS: draw frequency from Alcyone Spiral through chakras 10 &11 into chakras 5 & 6 then into
    Indigo Star Crystal Seal
       Violet-Blue Wave Infusions of D-6/D-7 frequency began at lndigo Star one-half activation
-                                         ________________________________________________________________________________________
 3  D-6 SIRIAN - EARTH STAR - ACTIVATION: D6 Sirian Spiral Aligns 6/2008
    DATES AVAILABLE FOR ACTIVATION; 7/22/2008 - 2017 day-3 of conversion period 5/5/2017 - 6/30/2017
    STAR CRYSTAL SEAL ACTIVATES # 8 D-7/D0 GOLD STAR CRYSTAL: chakra 12 6" below feet
@@ -2695,7 +2420,6 @@ For your convenience we provide the following charts.
    CHAKRAS: draw frequency from Sirian Spiral through chakras 12, 9 8& 8 then into chakra 7, back to 12 and
    into Gold Star Crystal Seal
    Gold Wave lnfusions of D-7/D-8 frequency begin at Gold Star one-half activation
-                                             _______________________________________________________________________________________
                       4   D-7 ARCTURIAN - CORE STAR - ACTIVATION: D-7 Arcturian Spiral Aligns 2017 day-1 Holographic Beam
 .     DATES AVAILABLE FOR ACTIVATION 2017 day-1 through day-3 (between 5/5/2017 - 6/30/2017)
       STAR CRYSTAL SEAL ACTIVATES. # 9 D-8/D-9 SILVER STAR CRYSTAL, above navel
@@ -2704,8 +2428,6 @@ For your convenience we provide the following charts.
        CHAKRAS draw frequency from Arcturian Spiral through chakras 8 & 9 then into Silver Star Crystal Seal above
       navel
       Silver Wave Infusions of D-8/D-9 frequency begin at Silver Star one-half activation
-                                        ________________________________________________________________________________________
- 
                                   5  D-8 ORION - EARTH CORE -ACTIVATION: D-8 Orion Spiral Aligns 2017 day-2 Holographic Beam
                                           DATES AVAILABLE FOR ACTIVATION: 2017 day-2 through day-3
                                           STAR CRYSTAL SEAL ACTIVATES: D-9/D-10 BLUE-BLACK CRYSTAL chakra 13 In Earth's Core
@@ -2714,7 +2436,6 @@ For your convenience we provide the following charts.
                                      CHAKRAS: draw frequency from Orion Spiral through chakras 13. 7 &6, into 9 & 10 then into Blue-Black Crystal
                                            Seal in chakra 13 at Earth’s Core
                                     Blue-Black Wave Infusions of D-9/D-10 frequency begin at one-half Blue-Black Star activation
-                                       _______________________________________________________________________________________
  6  D-9 ANDROMEDA-GALACTIC CORE-ACTIVATION:D-9 Andromeda Spiral Aligns 20I7day-3 Holographic Beam
            DATES AVAILABLE FOR ACTIVATION: 2017 day-3
            STAR CRYSTAL SEAL ACTIVATES: D-10/D-11 SILVER-BLACK CRYSTAL. deep space
@@ -2724,18 +2445,6 @@ For your convenience we provide the following charts.
            Silver-Black Star Crystal Seal in deep space through Andromeda
            Silver-Black wave Infusions of D-10/D-11 frequency begin at one-half Silver-Black Star activation
                                                                                 ©2002 Ashayana Deane        
-                              489 
-                           
- 
- 
- 
- 
- 
- 
- 
- 
- 
-                                                                                             
 
                      Ascension Cycle Dynamics
                                              PLANETARY STELLAR ACTIVATIONS AND WAVE INFUSIONS
@@ -2747,7 +2456,6 @@ For your convenience we provide the following charts.
   DNA: DNA strand it 4 assembles and activates, Blue Star crystal activates
   EARTH ACCRETION LEVEL: 2 to 3) HUMAN ACCRETION LEVEL: 3 to 4
   (Earth accretion level presently 2.5, Human average presently 3 to 3.5 accretion)
-                                _________________________________________________________
       2   D-5 PLEIADIAN ACTIVATION: D-5 Pleiadian-Alcyone Spiral aligns with D-4 Solar Spiral & Earth
            DATE: 6/2004 - 6/2008 EARTH ACTIVATION
          EARTH VORTEX OPENS: Vortex # 5 - Machu Picchu, Peru - 6/2004 - 6/2008
@@ -2755,7 +2463,6 @@ For your convenience we provide the following charts.
          DNA: DNA strand # 5 assembles, activates after 5/5/2012, Indigo Star crystal pre-activation
          EARTH ACCRETION LEVEL: 3 to 4 HUMAN ACCRETION LEVEL: 4 to 5
          ( accretion levels 4.5= Bridge Zone 5 = Tara, Indigo Star activates after 5/5/2012)
-                                _________________________________________________________
                            3  D-6 SIRIAN ACTIVATION: D-6 Sirian Spiral aligns with D-5 Pleiadian-Alcyone Spiral. etc
            DATE: 6/2008 - 1/2012 TARAN ACTIVATION
        EARTH VORTEX OPENS: Vortex # 6 - Caucasus Mountains, USSR - 6/2008 - 1/2012
@@ -2763,7 +2470,6 @@ For your convenience we provide the following charts.
        DNA: strand # 6 assembles, Gold Star & Indigo Star crystals activate 5/5/2012-2017
        EARTH ACCRETION LEVEL : 4 to 5 HUMAN ACCRETION LEVEL: 5 to 6
            (grids of Earth & Tara begin to merge and Ascensions to Tara begin 5/5/2012)
-                                _________________________________________________________
       4  D-7 ARCTURIAN ACTIVATION: D-7 Arcturian Spiral aligns with D-6 Sirian Spiral etc via Holographic Beam
            DATE: 5/5/2017 - 6/30/2017 day 1 -2017 TARAN ACTIVATION
         EARTH VORTEX OPENS: Vortex # 7 - Andes Mountains, South America - 1/2012 - 6/2017
@@ -2771,7 +2477,6 @@ For your convenience we provide the following charts.
     DNA: strand # 7 assembles strands 5, 6 & 7 activate, Silver Star crystal activates for 3 days
     EARTH ACCRETION LEVEL: 5 to 6 HUMAN ACCRETION LEVEL: 6 to 7
     (Earth, Tara and Gala align with Holographic Beam Ascensions to Gaia)
-                              _________________________________________________________
     5    D-8 ORION ACTIVATION: D-8 Orion Spiral,. M .G. Core align with D-7 Arcturian Spiral, etc via Holographic Beam
  DATE: 5/5/2017 -6/30/2017 day 2 -2017 GAIAN ACTIVATION
  EARTH VORTEX OPENS: Portals between Earth, Tara, Gaia and D-8 Meta-Galactic Core open.
@@ -2779,7 +2484,6 @@ For your convenience we provide the following charts.
  DNA: strand # 8 assembles & activates, EARTH CORE Blue-Black Star crystal activates for 24 -48 hours
  EARTH ACCRETION LEVEL: 6 to 7 HUMAN ACCRETION LEVEL: 7 to 8
  (Ascensions to Meta-galactic Core)                                                                                                                                                        
-  _________________________________________________________      
                            6  D-9 ANDROMEDA ACTIVATION: D-9 Andromeda Spiral align with D-8 Orion Spiral. etc
    DATE: 5/5/2017 - 6/30/2017 day 3-2017 GAIAN ACTIVATION
    EARTH VORTEX OPENS: Portals open between morph dimensions 9-15, D-8 M G Core and Earth-Tara-Gaia
@@ -2787,23 +2491,14 @@ For your convenience we provide the following charts.
    DNA: strand # 9 assembles. Silver-Black Star crystal activates for 12 -24 hours
    EARTH ACCRETION LEVEL: 7 to 8 HUMAN ACCRETION LEVEL: 8 to 9
    ( Phantom Earth and Bridge Zone separation. Ascensions to D-9 +)
-                                         _____________________________________________________________________________
       DNA strands will activate only if the strands below have been fully assembled and activated.
        2017: 3-day particle conversion period, Earths particles and populations separate into different time tracks
         2022 Mass Ascension cycle ends. BT or OT = base tone or over tone frequencies
                                                        ©2002 Ashayana Deane
-490 
 
 
-
-                                          
                                                                        Appendix IV
-                                                                                                                          
-                                                           
-                                                        
-                                                             
                                                       Field Techniques
-                      
      FIELD TECHNIQUE 1: EXERCISE TO RELEASE CRYSTALLIZED
                         THOUGHT PATTERNS FROM THE DNA
                            AND CELLULAR MEMORY IMPRINT
@@ -2836,8 +2531,6 @@ poses. When you perceive the light you are seeing the fifth dimension.
 • Once visualizing yourself in the light, submerge yourself within it and feel that light
          move through every cell in your body, imagine it moving through your DNA.
       This raises the pulsation rhythm of the body’s particles by infusing them
-493 
-                                                                                                                                                                                                                                           
 
     Field Techniques
 within the D-5 frequency patterns carried by your accelerated conscious-
@@ -2879,17 +2572,14 @@ can now change it.¹
     sciousness take up every inch of area within the structure of the thought-
     form. Once you feel completely expanded into the thought-form, begin
     to recreate it.
-    ___________________________________
 1.      Note: Having the ability to consciously shift your entire awareness into the D-5 level is                 
          an attribute of complete fifth DNA strand assembly and activation, which most humans
          do not yet possess. When you use your present imagination to create the inner experience
          of this merger, you actually accelerate the assembly of strands four and five and rapidly
          increase your accretion level. The more you practice such exercises, the more your aware-
          ness will be able to access the D-5 pulsation rhythm, which will make the D-5 merger pro-       
-                                                                                                                                             
                     gressively more tangible and “real” in terms of physical perception and embodiment of D-
          5 frequency. Any exercises that mentally “take you into the light" will do this for you.           
-494
 
      Field Technique 1: Exercise to Release Crystallized Thought Patterns
 • Call light to yourself. Imagine that you can see light streaming in from a beam
@@ -2937,14 +2627,10 @@ lization had been.
  sageways and nerve endings. This increases the body’s ability to sense sub- 
    tle energy and expands the perceptual range of consciousness while it is                                        
  focused in the body. 
- 
   • As you visualize photonic light running through your body, consciously guide
        that light directly into the DNA, while holding the intention that the body will
        use this energy to accelerate the DNA-building process, under the direction of    
-495
-                                                                                                                                 
 
-                                                                                                                    
 Field Techniques
 the soul matrix identity. Visualize minute photonic particles moving into and ad-
 hering to your double helix DNA strands, until you perceive all of the light par-
@@ -2988,12 +2674,9 @@ Signet 2 point of the Planetary Templar Grid, on May 5, 2000.
 • The Maharic Seal is a major tool by which the purpose, intention, awareness
    and effect of the Angelic Human can be significantly accelerated in a gen-
    uine, substantial and high impact fashion.
-496
 
 
-                           
                           Field Techniques
-                                    
                              Regular use of the Maharic Seal will:
 • Begin the process of activating the 8th through 12th chakras of the personal
      Kathara Grid;
@@ -3014,8 +2697,6 @@ Signet 2 point of the Planetary Templar Grid, on May 5, 2000.
 • Amplify the results of spiritually focused activity;
 • Harmonize personal & environmental energies;
 • Create Morphogenetic Re-patterning, clearing karmic / miasmic imprints   
- 
-              
    which otherwise block DNA activation (and the attainment of true con-
      sciousness expansion and full embodiment of the "Christos Principle'');
 • Realign, revitalize and regenerate all aspects of the physical and subtle body
@@ -3027,16 +2708,13 @@ Signet 2 point of the Planetary Templar Grid, on May 5, 2000.
  higher frequency energies ﬂowing into the Planetary Grids and personal
  morphogenetic fields arising from the intensifying Stellar Activation Cy-
  cle now underway (2000-20l7).
-498
 
-                                                        
                                                                           The Personal and Planetary Maharic Shields Chart                                                                                         
 Temporary Maharic Seal Technique Steps
    Short Version of the Maharic Seal™ Bio-field Clearing, Alignment and Pro-
       tection Technique from the Kathara Bio-Spiritual Healing System ™
       Program. For temporary restoration and maintenance of personal Bio-
       Field Integrity and Physical Revitalization.
-                                                                                                                                                      
   Prior to use: Read through the steps and practice the visualizations and their se-
       quence slowly, for familiarity.
 1. Imagine the two-dimensional image of a “Merkaba Star” or six-pointed
@@ -3078,11 +2756,7 @@ positioned to activate the Planetary Shield.)
        Earth’s core, imagine that it trails a thick cord of Pale Silver Light behind
        it. Qne end of the Silver Cord remains attached to Earth’s core, the other
        attached to the Hierophant (the Cord represents an “Energy Feed Line”  
-     499                                                                                                      
-                                                                                                 
-  
 
-  
 Field Techniques
       through which you will draw energy up from the Earth’s Maharic Shield
       into your personal Maharic Shield)
@@ -3095,7 +2769,6 @@ Crystalline Platform of Pale Silver Light about 4' in diameter, extends on
 10. Inhale, while using the inhale breath to draw more Pale Silver Light up
    through the Pale Silver Cord from Earth’s Core, into the Hierophant at
    the center of your personal Maharic Shield.
-     
 11.  Exhale, using the exhale breath to push the Pale Silver Light from the Hi-
           erophant, out into your Maharic Shield. Imagine that your Maharic
           Shield now pulsates, as it fills with the Pale Silver Light from Earth’s Core.
@@ -3126,12 +2799,10 @@ Crystalline Platform of Pale Silver Light about 4' in diameter, extends on
 18.  Inhale, using the inhale breath to draw the Hierophant up through your
        Central Vertical Body Current, then out the top of your head (the 7th
        “Crown” Chakra), to a point about 36" above the head (the 14th Chakra).
-_______________________
  2.    This is your Maharic seal, a temporary scalar-wave pillar of dimension 10/11/12 frequency
          light that blocks out disharmonic frequencies from dimensions 1 through 12 and begins to
          realign disharmonic frequencies in your body and bio-field to their original perfect natural
          order.
-500
 
                                                              The Personal and Planetary Maharic Shields Chart
 19.   Exhale forcefully, using the exhale breath to rapidly expand the Hi-
@@ -3169,9 +2840,7 @@ _______________________
      ergy work, “channeling,” or Astral and Dream Projection. It will not only
      provide protection from disharmonic energies; it will also amplify the re-
      sults you desire to gain from these activities.
-501 
 
-                         
                          Field Techniques
                  FIELD TECHNIQUE 3: THE MAHARIC QUICK SEAL
 1.  Work with a 24 pointed, 3 Dimensional Star (Hierophant) and be aware
@@ -3217,16 +2886,12 @@ On each exhale send your energy down to the Earth’s Core to bring up another
        larger as you do this, expanding from approximately 4" to 6 to 8" diameter,
        until finally it feels like a skin around (as well as within) your body. . .as
        you load your Astral field with Maharic Frequency.    
-502                            
-                          
 
-                                                                              
                                                                                      Field Technique 4: The Maharata
 9. Move your attention to the Pale Silver ball you have created in your Heart
 Center, inhale and move it up to the 14th Chakra 36" above your head. . .as
 you do, feel for the sheath of Maharic Frequency encasing your etheric
 body, close to your skin. ɜ
-                     
                                FIELD TECHNIQUE 4: THE MAHARATA
                                   Anchoring the Planetary Christos Field
                            The Group Maharic Seal - Building the Um Shaddai Ur
@@ -3234,7 +2899,6 @@ body, close to your skin. ɜ
 1. One Breath + three
        Breath 1—Visualize Hierophant Symbol Code at the Pineal Gland. Inhale,
              then exhale forcefully, moving the Symbol Code down the Central
-           
 Body Current and into Earth’s core
     Three breaths—Take 3 full breaths, and on each exhale push firmly into
                the Symbol Code at the Earth’s core, making the Symbol Code spin,
@@ -3246,11 +2910,9 @@ Body Current and into Earth’s core
         from Earth’s core... following the Symbol Code. Exhale, and push the
         spinning disc of Pale Silver Light outward, 12" beneath the feet. This is your
         personal Maharic Shield.
-       
        Three breaths—Take 3 breaths, and on each exhale, push the breath out-
              ward into the disc making the disc spin faster.
 3. One Breath + three  
-      
       Breath l— On the inhale, draw a large amount of Pale Silver Energy up
      through the tube- from the Earth’s core, and exhale this energy into the
      Maharic Shield DISC, 12" beneath your feet. Visualize the disc “pop-
@@ -3261,16 +2923,13 @@ Body Current and into Earth’s core
      of the sun; aligns with the Eckatic Level of the Energy Matrix. Visu-
      alize your body as being sealed within the Silver Pillar - this is your Per-
      sonal Maharic Seal.
-        
        Three breaths—Take 3 breaths; on the inhale draw energy up from Earth’s
                  core to the 4th Heart Chakra. On the exhale, push the breath from the
                  Heart Chakra into the tube of Pale Silver Light around you; each
                  Breath making the Pillar appear brighter and stronger.
-___________________________________________________________
 3.       This Maharic/ Christos skin charges and saturates your etheric body. Try to feel the peace-
           fulness and all-knowing nature of this frequency.
 4.       This is the Earth’s Maharic Shield—the Shield of Aramatena.
-503
 
   Field Techniques
 3. One breath—Take a slow, full, inhale drawing a thick current of energy up
@@ -3293,19 +2952,11 @@ moves energy into the group center point. Stand with the group for a
 few moments and visualize the Um Shaddai Ur Pillar of Light emanat
 ing from the Sun, through the group Pillar and group Maharic
 Shield. . .and into the Earth core Maharic Shield
-___________________________
 5.      Or into focus object, if one is used.
 6.      This is your Personal Field Seal.
-504
 
 
-
-
-
-
-                                                                                                                                                                     
  2001 Update Summary Charts
-                         
            Crisis Intervention Expedited Amenti Opening Schedule 2000-2012
                                             Summary Chart (3 Pages)
 Abbreviations Key: SAC= Stellar Activations Cycle. GA= Guardian Alliance. UlR= United lntruder Resistance. NDC-Grid= Nibiruian Diodic 
@@ -3357,8 +3008,6 @@ Man'' LPlN Blue Wave activation via Rha-Veca Code. NCT-Bases Sarasota FL, Bermud
 2001 December: Alcyone Spiral aligns with Earth, Pleiadian Activation begins, Vortex/Star Gate-5 Macchu Picchu
 starts opening cycle (originally 2004 June). Veca Code NYC Trion Field Link indigo Outreach Program.
                                                                                                    ©2002 Ashayana Deane
-                                  510
-                                                            
 
                                                                                                          2001 Update Summary Charts
 2001 December end: RRT Macchu Picchu Peru, GA anchor Trion/Meajhe Field to Vortice/StarGate-5, Level-4 "4
@@ -3405,9 +3054,7 @@ grids to lessen storm/ quake/ volcanic potentials, World Peace Efforts .
 increase prep for intended late 2003 ''First Contact''; Frequency Fence/ Psycho-tronic attack amplify, ''Un-natural
 Disaster'' population reduction. Increased Nuclear War issues potential involving India. UIR ''Human Greeting
 Teams'' contact, ''ET inﬁltrate'' placed.
-                                                             
                                                                                            ©2002 Ashayana Deane
-                             511 
 
 2001 Update Summary Charts
 2003 August 8-20: Earth's Merkaba 100-year Magnetic Peak August 12, 2003. The GA /UIR ''Show Down''
@@ -3462,14 +3109,8 @@ Planetary Maharic Seal/D-12 Mahunta Phase Merkaba, Halls of Amenti/Earth's SGs p
 Matrix/Phantom Matrix permanently severed. Real Age of Enlightenment begins. Mass GA Contact Eieyani/Sinus B
 Maharaji/Azurites/Aethien/Serres 2017.
                                                                    ©2002 Ashayana Deane
-512
 
 
-
-
-
-
-             
 2001 Update Summary Charts
             Progression of Intruder APIN Templar Conquest -Atlantis to 2001
                                          Summary Chart (4 Page)
@@ -3478,302 +3119,112 @@ Maharaji/Azurites/Aethien/Serres 2017.
                                                  were implanted in Earth’s Template during various periods of Atlantis/Lemuria
 • 
 5.5 Million Years Ago: Elohei-Elohim Leonines (Anuhazi) and Seraphei-Seraphim Avians (Cerez-Serres) create  
- 
-      
- 
 “Wall in Time” Earth/Phantom Earth barrier, Great White Lion and Golden Eagle APINs to hold Earth’s Planetary  
- 
- 
- 
 Shields together and prevent Earth’s Phantom Matrix descent after Electric Wars. Founders install 24 NCT-Bases 
           (Nibiruian Crystal Temple Bases) Nibiru interface link 3 million years ago when Nibiru became Emerald Covenant  
- 
- 
- 
          planet. APIN and NCT-Base conquest battles frequent throughout Angelic Human Seedings 2 and 3. “Lion” APIN 
- 
- 
- 
          shut down by Intruder Omicron-Drakonians in 208,216BC SAC Fall of Brenaui. Anu Occupation 148,000BC- 
- 
- 
- 
          75,000BC, Nibiruian Anunnaki takeover 24 NCT-Bases, Humans underground exile.
 • 
 75,500BC: Omicron-Drakonian/Odedicron-Reptilian races create ''Dragon'' APIN in Templar Quest campaign.  
- 
- 
- 
 Anunnaki, attempt Inner Earth takeover, Anu Occupation dominion prevented in 75,000BC via Inner Earth Rebellion. 
- 
- 
- 
 Pacific Continent ''Lemuria'' destroyed 50,000BC Jehovian-Anunnaki Templar quest, Arc of the Covenant passage 
- 
- 
- 
 relocated from Atlantis to Giza, Egypt. GA, with Emerald Covenant Anunnaki build Mars Base and 1st Sphinx/Giza  
- 
- 
- 
 Great Pyramid teleport station in 46,459. Atlantic Continent reduced to islands, Sphinx/Pyramid-1 damaged, natural  
- 
- 
- 
 Sirius B alignment severed 28,000 BC Anunnaki/Illuminati Templar quest. 
 • 
 25,500 BC: Lucifer Rebellion. Pleiadian, Nibiruian and Alpha Centauri ''Luciferian'' Anunnaki Intruder races unite; 
- 
- 
- 
 bring NDC-Grid (Nibiruian Diodic Crystal Grid)/ Battlestar Wormwood Stonehenge link, NET (Nibiruian Electro-  
- 
- 
 static Transduction field) ''Checkerboard Matrix'' grid control/DNA mutation technologies to Atlantis for Earth  
- 
- 
- 
 Templar dominion.  Nibiruian Anunnaki seize control of Solar SG-4, and partial control of Giza Pyramid Earth SG-4.   
- 
- 
 24 NCT-Bases overtaken by various competing Intruder factions. Intruder Jehovian-Anunnaki create initial ''Dove''  
- 
- 
- 
 APIN. Golden Eagle APIN  ''hi-jacked'' by Necromiton-Andromies/Nephilim hybrids, run on reverse Phantom Matrix   
- 
- 
 current as ''White Eagle'' APIN. Pleiadian-Nibiruian Samjase-Luciferian/Enki-Zephelium/Enlil-Odedicron Anunnaki  
- 
-  
 install Level-1 ''Serpent'' APIN. Progressive Annu-Melchizedek Leviathan hybrid race infiltration of Atlantian culture   
- 
- 
 advances. GA/Humans/Indigos/Eieyani successful in preventing full Anunnaki invasion.
 • 
 22,500BC-22,326BC: Founders realize Phantom Matrix near critical mass accretion to pull Earth in. 22,500  
- 
- 
- 
 GA/Eieyani-Indigo Crisis Intervention Team from Inner Earth sent to Lemuria (Mauravhi) for Christos Realignment  
- 
- 
- 
 Mission (Level-12 Planetary Maharic Seal) Earth Rescue plan. Eieyani install advanced ''4 Faces of  
- 
- 
- 
 Man''/''Guardians of the 12 Pillars'' LPIN to realign/activate Great White Lion, Golden Eagle APIN’s and draw 
- 
- 
- 
 Earth into Meajhe Field for Christos Realignment in 22,236BC SAC. GA Sirius B Maharaji and Anteres/Altair  
- 
- 
- 
 Rashayana install Blue Oxen APIN Interface system. Intruder Jehovian-Anunnaki Dove APIN expanded. Thoth  
- 
- 
- 
 breaks Emerald Covenant, leads 22,326BC Eieyani Massacre, Founders Christos Realignment Mission postponed 
- 
- 
- 
 to next SAC December 21, 2012, “Final Conﬂict Stale Mate” to resolve 2000-2017AD SAC. 
 • 
 10,500BC: Luciferian Conquest: Anunnaki/ Drakonian Leviathan Illuminati Atlantian uprising, competing Templar  
- 
- 
- 
 Conquest. Two wormholes constructed in “Wall in Time” between Earth/Black Hole Phantom Matrix. The  
- 
- 
-  
 Pleiadian/Nibiruian Anunnaki Phoenix Wormhole/ Phoenix APIN to Phantom Nibiru/ Tiamat and Zeta-Rigelian/   
- 
- 
 Drakonian Falcon Wormhole/Falcon APIN to Phantom Earth/Alpha Draconis. Two Atlantian wormholes give 
- 
- 
- 
 advancing Fallen Angelic invasion forces greater dominion potential over Earth/Halls of Amenti Gates for 2000- 
- 
- 
- 
 2017AD SAC. Omega Centauri Intruder Blue Centaurs take over Blue Oxen APIN. Enoch defects from Emerald   
- 
- 
 Covenant, assists Intruder Jehovian-Anunnaki to link  ''Dove'' APIN to Phoenix Wormhole, creating the 7  
- 
- 
- 
 Jehovian Seals/''7Trumpets'' advanced Dove HD-C (Hyper-Dimensional Cone) APIN. Mars Base and   
- 
- 
- 
 Sphinx/Pyramid-1 destroyed; Sphinx/Pyramid-2 rebuilt by GA, realigned with Pleiadian-Alcyone following 
- 
- 
         10,500BC squelched invasion. Founders/GA secure temporary Phoenix/Falcon Wormholes Cap; confine  
- 
- 
- 
         Luciferian Conquest to Atlantian Island territories, temporarily pushing back further Anunnaki invasion of Egypt. 
-                                                                                              
                                                                         ©2002 Ashayana Deane
-518 
- 
 
-                                                                                                  
                                                                                                   2001 Update Summary Charts
 .      9560BC-9558BC: Luciferian Covenant. Atlantian Leviathan Illuminati enter Luciferian Anunnaki dominion covenant  
- 
 9560BC, blow GA Cap off Phoenix/Falcon Wormholes to stage 9558BC ''Atlantian Flood'' and ''Housecleaning''  
- 
 takeover. Sphinx/Pyramid-2 damaged, Alcyone link broken. GA install 9540BC Frequency Fence to re-Cap  
- 
- 
- 
 Wormholes and prevent cataclysmic early Blue Flame activation. GA create “Arc of Covenant Gold Box/Rod and   
- 
- 
 Staff Star Gate tools for Indigo Maji-Human race access to Inner Earth portals. Anunnaki, Drakonian and   
- 
- 
 Necromiton-Andromie races and Illuminati hybrids run competing territory conquest agendas since 9558BC, try to  
- 
- 
- 
 capture Arc of Covenant Gold Box/Rod and Staff tools to activate their APIN's for Templar dominion. Necromiton- 
- 
- 
 Andromies join Blue Centaurs in 5,900BC Centaurian War in attempt to use ''hi-jacked'' Blue Oxen APIN India for   
- 
 Templar dominion; air attacks squelched by GA Sirius B Maharajhi and Pleiadian Serres. Anunnaki Illuminati  
- 
- 
- 
 rehabilitate Sphinx/Pyramid-2 as cultural center 5546BC. Progressive “Atlantian Conspiracy” Templar conquest   
- 
 throughout post 9558BC period Sumer to America, Illuminati races infiltrate/hybridize with all major Human 12-Tribe 
- 
- 
 cultures; Eieyani-Indigo Maji Grail Line retains pure strain 12-48 Strand DNA to fulfill Christos Realignment Mission 
- 
- 
 via RRT’s during long-anticipated 2000-2017 SAC “Final Conﬂict” drama. 
                                                                                           Wormholes, APIN / LPIN’s 1916-2001
 • 
 1903-1916: Zeta’s of Phantom Earth open Atlantian Falcon wormhole off coast of Charleston, South Carolina in  
- 
- 
 Atlantic Ocean (was Nohassa Atlantis), begin speculation for invasion. Militant Zeta-Rigelian force of Phantom  
- 
- 
 Alnitak-Orion take over Falcon Wormhole, begin covert infiltration of Earth governments on behalf of the Zeta- 
- 
- 
 Drakonian agenda, overthrowing historically positioned Anunnaki strong-hold on Illuminati covert OWO operations.  
- 
- 
 Fallen Angelics begin competing progressive conquest for activation/ dominion of APIN systems in preparation for  
- 
- 
 2000-2017 SAC. 
 • 
 1930s: Zeta-Rigelians make treaties with Illuminati hybrid-human races in several major world governments, begin  
- 
- 
 early Zeta Treaties and Majestic-12 seed group covert Illuminati OWO World Management Team under Zeta’s  
- 
- 
 Drakonian Agenda. Zeta-Rigelians set out to activate Falcon APIN, begin Ethnic Virus/ Sonic Pulse Un-natural  
- 
- 
 Disaster program testing for intended reduction of human populations if SAC commenced in 2000 and  
- 
- 
- 
 abduction/hybridization programs. Zeta-Rigelians assist to organize and strengthen Hitler Nazi movement via   
- 
 physical contact with Nazi Inner Circles; Hitler agrees to advance ''Race Supremacy'' program with intention of  
- 
- 
- 
 exterminating specific Hibiru Anunnaki Illuminati hybrid races, while protecting Hibiru Illuminati hybrid lines of  
- 
- 
 the Drakonian races. Drakonian Illuminati in Allied Governments covertly assist Nazis financing. 
 • 
 1940s: Hitler makes double deals with Necromiton-Andromies, and kills groups of Drakonian Hibiru Illuminati;   
- 
- 
 Zeta-Rigelians withdraw Nazi support, assist Allied Governments in victory over Nazi regime, formalization of MJ- 
- 
- 
 12 World Management Team ''Big Brother Drac'' group. Necromiton-Andromie races attempt to mobilize their 
- 
- 
- 
 Illuminati races in Hawaii and Nagasaki Japan to built underground bases to hi-jack the Zeta-Rigelians Falcon  
- 
- 
- 
 APIN Port Interface System at its Nagasaki APIN site. Zeta-Rigelians instruct their Illuminati hybrids in Japan and  
- 
- 
 US via MJ-12, to launch Pearl Harbor strike; US and Japanese Illuminati know plan from start. Zeta’s provided allies  
- 
 with A-Bomb technology specifically to use on Nagasaki, to regain Nagasaki Falcon APIN site under Zeta- 
- 
- 
- 
 Rigelian control. Hiroshima Necromiton-Andromie Illuminati wiped out on behalf of Zeta-Rigelian Agenda, Maji  
- 
- 
 Grail Line Human YU race Indigos of Hiroshima destroyed, Nagasaki reclaimed under Zeta-Rigelian control.   
- 
- 
 Necromiton-Andromies prevented from building Nagasaki base, Falcon APIN continues to be activated by Zeta-Rigelians. 
 • 
 1943: Zeta-Rigelians expand Falcon APIN system via August 12, 1943 Philadelphia Experiment, putting east  
- 
- 
 coast US Falcon APIN system “on-line” with Falcon wormhole. Create the Phi-Ex wormhole Port Interface   
- 
 Network.
 • 
 1951: 1951 White Eagle-Dove Alliance. (AKA ''Archangel Michael joins Enoch''). Pro-Anunnaki Necromiton- 
- 
- 
 Andromies make deals with Jehovian Anunnaki to combine and activate their respective ''White Eagle'' and ''Dove'' 
- 
- 
 APIN systems to regain Anunnaki OWO dominion over Illuminati force and Earth’s Templar. Attempt to open  
- 
- 
 Phoenix Wormhole off eastern coast of Florida. Unsuccessful until 1972. Zeta-Rigelians continue Un-Natural  
- 
- 
 Disaster/Ethnic Virus testing, covert Interior Government contact, abductions throughout 1950s-1960s. 
 • 
 1972: Pleiadian-Nibiruian Anunnaki assist White Eagle-Dove Alliance (AKA. “Samjase, Thoth, Galactic Federation 
- 
- 
 and Ashtar Command join Archangel Michael and Enoch) to break through cap on Phoenix wormhole via Solar  
- 
- 
 SG-4 sonic transmissions, begin activation of the Phoenix, Serpent, Dove and White Eagle APIN systems;   
- 
 intensifies Solar anomalies from 1943 Phi-Ex opening to Solar Flare/Red Pulse crisis point. GA implements   
- 
 11:11/12:12 Frequency Fence to prevent 1973 Red Pulse destruction, initiate Solar SG-4 repairs. Anunnaki begin 
- 
- 
  regaining strength in Illuminati World Management Team.                        
                                                                                               ©2002 Ashayana Deane
-                           519                                                 
-                                                                                                                                                                                                                                                                                    
 
    2001 Update Summary Charts
 • 
@@ -3835,9 +3286,7 @@ Emerald Covenant Treaty of Altair, due to likelihood of either Emerald Covenant 
 begin 12-Code-Pulse grid re-coding and Human DNA Template
 clearing and activation’s.
                                                                       ©2002 Ashayana Deane
-           
 \
-       520
 
                   2001 Update Summary Charts
 • 
@@ -3888,7 +3337,6 @@ September 11 UIR successfully linked/ activated WTC/NYC and Pentagon/DC Phoenix 
 Wormhole and APIN system. Terrorist attacks as “Cloak Event” cover to hide Sonic Pulse activity damage to
 the WTC and Pentagon buildings.
 ©2002 Ashayana Deane
-521
 
 2001 Update Summary Charts                
      Sonic Pulse “Un-Natural Disasters” 1935-1992 Summary Chart
@@ -3938,7 +3386,6 @@ the WTC and Pentagon buildings.
  1998 February 4              Afghanistan               6.1           Phoenix-Dragon APIN site dispute
  1998 May 30                   Afghanistan               6.9           Phoenix-Dragon APIN site dispute
  2001 January 26              India                          7.7           United Resistance raid GA APIN
- 
  Sample of Related Hurricanes (many more too numerous to mention, various regions)
     Related to Fallen Angelic/Intruder ET/Illuminati Sonic Pulse and Falcon/Phi-Ex/Phoenix activity H=Hurricanes
 1919 FL, TX –H Falcon wormhole open cycle.     1958 Japan – Typhoon “Vera” Phi-Ex
@@ -3946,23 +3393,10 @@ the WTC and Pentagon buildings.
 1944 Northeast US – H Phi-Ex                               1965 FL, LA – H “Betsy”  Phi-Ex
 1955 Northeast US – H “Diane” Phi-Ex                           1972 Northeast US- H Agnes Phi-Ex amp
 1992 August 24, - H Andrew, FL- 215-350mph winds –Zetas ﬁght Aug.12 Falcon Cap
-                                                      
-                                                   
                                        ©2002 Ashayana Deane 
-522
-  
- 
- 
- 
- 
- 
-  
 
 
-
-                                                                                                                                                                                                                                   
 2001 Update Summary Charts
-                       
                                      24 United Intruder Resistance Nibiruian Crystal Temple Bases
                                                     (Underground or Underwater Illuminati Main Templar Control Bases)
 CB = Central Control Bases that direct operations of other Bases. MIB= “Men In Black” Necromiton-human hybrid
@@ -3978,1385 +3412,418 @@ CB = Central Control Bases that direct operations of other Bases. MIB= “Men In
 10.Giza Egypt SG-4- Omicron-Drakonian
 11. Halley South Pole SG-1- Necromiton-Andromie MIB, Drakonian Dracos, Omicron-Drakonian, Rigelian-Zeta
 12. Mauritania W. Africa CB- Omicron-Drakonian, Necromiton-Andromie MIB, Zeta Rigelian, Thoth-Enki-Zephelium  
- 
- 
- 
 Anunnaki
 13. Paxos Island Greece Cue Site-7- Necromiton-Andromie MIB, Alpha-Omega Centaurians, Pleiadian Samjase-  
- 
 Luciferian Anunnaki.
 14. Aguascalientes Mexico Cue Site-4- Thoth-Enki-Zephelium Anunnaki, Rigelian-Zeta and Jehovian-Anunnaki
 15. Cyprus Island Cue Site-1- Omicron-Drakonian, Necromiton-Andromie MIB
 16. Easter Island Cue Site-2- Pleiadian Samjase-Luciferian-Anunnaki and Nibiruian Thoth-Enki-Zephelium Anunnaki,  
- 
- 
- 
 Enlil-Odedicron-Anunnaki.
 17. Vatican City Rome Italy Cue Site-5- Drakonian-Drakos, Omicron-Drakonian
 18. Johannesburg S. Africa Cue Site-3 – Omicron-Drakonian, Marduke-Dramin-Anunnaki
 19. Brazil CB- Marduke-Luciferian-Anunnaki Alpha Centauri, Enlil-Odedicron-Anunnaki Nibiru, Pleiadian Samjse- 
- 
- 
 Luciferian-Anunnaki
 20. Lop Nor Tibet Cue Site-8- Jehovian-Anunnaki, Galactic Federation, Ashtar Command and Necromiton-Andromie  
- 
- 
- 
 Nephilim (Dove APIN central broadcast control)
 21. Xian China SG-8- Omicron-Drakonian, Necromiton-Andromie MIB
 22. Hamandan Iran CB- Odedicron-Reptilian 
 23. Al Basrah Iraq Cue Site-10- Drakonian-Dracos, Omicron-Drakonian, Necromiton-Andromie MIB
 24. Bosnia CB- Drakonian-Dracos, Necromiton-Andromie MIB and Nephilim , Marduke-Dramin-Anunnaki, Alpha- 
- 
- 
- 
 Omega Centaurians. (“Archangel Michael” broadcast central headquarters). 
 There are many thousands of other UIR hidden bases positioned throughout the globe;  
- 
- 
- 
 the above 24 are the Primary Bases, located at the ancient Nibiruian Crystal Temple   
- 
- 
 Pylon Crystal sites, through which the Planetary Templar and other bases are  
- 
- 
- 
- 
 controlled. Both UIR and Guardian subterranean bases are protected by UHF Cloaking 
- 
- 
                  Fields that are impermeable to present means of Earthly technological detection.
-                                                                      
                                                                        © 2002 Ashayana  Deane  
-                          
-                            
-                            525
-
-
-
-
 
 
                                                                                      2001 Update Summary Charts
-          
      Angelic Human 12-Tribes and Indigo Maji Grail Lines Summary Chart
 The ORIGINAL HUMAN 12-TRIBES Race Names that were edited from Essene CDT-Plate Biblical Translations 
 TRIBE-1: Isutu-Esheau (Pronounced: I sU’ too-  E’ shoo). 
 Star Gate DNA Signet Codes, Seed Locations and Races: SG-1. Arizona USA Vortex-1 Native American, Cue Site-1 Cyprus Island in  
- 
- 
- 
 Mediterranean Sea, Australia, Turkey and Greece and Antarctic SG-1 in Atlantian periods. Maji Indigo Grail Line: Original blue and  
- 
- 
- 
 green-eyed Australian Aborigine; often red haired.
 TRIBE-2: Maahali-Bruea (Pronounced: Ma a ha’ LE- BrU’ A) 
 Star Gate DNA Signet Codes, Seed Locations and Races: SG-2. Florida Seminol Native Americans SG-2 Sarasota Florida, and  
- 
- 
- 
- 
 Breanoua black and brown skinned Haitian-Bimini Island races. Easter Island Cue Site-2 Muavaharivi and Jerusalem Israel Vortex-2  
- 
- 
- 
 Hebrew races. Maji Indigo Grail Line: Mu’A of Lemuria (Hawaii), Easter Island and Southwestern Native American descendant  
- 
- 
- 
 tribes. Original Hebrew (Hibiru Cloister and Melchizedek Cloister hybrid) races of Jerusalem and Jordan. 
 TRIBE-3: Amekasan-Etur (Pronounced: a ME’ ka sun – e too’r). 
 Star Gate DNA Signet Codes, Seed Locations and Races: SG-3. Nohassa Atlantis Bermuda Islands SG-3, Johannesburg South  
- 
- 
- 
- 
 Africa black, brown and white skinned races and Nepal Vortex-3 Himalayas. Maji Indigo Grail Line: White-skinned Druedeks of  
- 
- 
- 
 Nohassa Atlantis.
 TRIBE-4: Nuagu Hali (Pronounced: Noo ah’ goo- ha’ LE). 
 Star Gate DNA Signet Codes, Seed Locations and Races: SG-4. Giza Egypt SG-4 and Sumerian UR, Aguascalientes Mexico Cue   
- 
- 
- 
 Site-4 and Central America. Maji Indigo Grail Line: Serres-Egyptians, original pre-Anunnaki Maya-Toltec and Mexicali Indians.
 TRIBE-5: Ionatu-Etillah (Pronounced: I  O’ Na too- et il’ a) 
 Star Gate DNA Signet Codes, Seed Locations and Races: SG-5. Machu Picchu Peru Incas SG-5, original Ionian Italic (Italian) races.  
 Maji Indigo Grail Line: Mu’A-Incas of Machu Picchu Peru and light skinned-often fair or red-haired Celtic-Druedek Mu’A Ionians  
- 
- 
- 
 (combined Maji Grail Line of  Nohassa Atlantis Tribe-3 Maji Druedeks and  Lohas Atlantis Tribe-11 Maji Celteks exiled to Ionia as 
- 
- 
- 
 Anunnaki Leviathan raiding progressed.) 
 TRIBE-6: Ramyana-Shridveta (Pronounced: Rah ma yah’ na- shrid vE’ Da). 
 Star Gate DNA Signet Codes, Seed Locations and Races: SG-6. Russia Caucasus Mountains SG-6 and Scandinavian white skinned  
- 
- 
- 
 blond haired races, brown-skinned Rama races of India Thar Desert Cue Site-6. Maji Indigo Grail Line: Rama-vita races of India  
- 
- 
- 
 and original blue-eyed blond Nordic races of Scandinavia and Russia. 
 TRIBE-7: Mahata-Agrah (Pronounced: ME hah’ ta- a’g-ra) 
 Star Gate DNA Signet Codes, Seed Location and Races: SG-7 Lake Titicaca Peru Incas and indigenous olive-skinned peoples of
 Paxos Island Greece. Maji Indigo Grail Line: Original Mahata-Incas Lake Titicaca Peru (ﬂed from Intruder raiders to Kauai Hawaii)  
- 
- 
- 
 and original olive-skinned green-eyed Ionians of Paxos Island.
 TRIBE-8: Chia Zhun Zan La-Yung (Pronounced:  ChE’ ah-Zoon – Yan LA-Yoong’). 
 Star Gate DNA Signet Codes, Seed Locations and Races: SG-8. Xian China SG-8 original yellow-skinned races, and original brown- 
- 
- 
- 
 skinned races of Taklamakan Desert Tibet. Maji Indigo Grail Line: Original YU-Melchizedek Tibetan light-brown-skinned, light-eyed 
- 
- 
- 
 races of Lop Nor Taklamakan Tibet region before Necromiton-Andromie Nephilim raiding and Yu-Chinese lineage.
 TRIBE-9: Yun Zu-Xen (Pronounced: Yu-Un Zoo-Zen) 
 Star Gate DNA Signet Codes, Seed Locations and Races: SG-9. North of Llasa Tibet SG-9 brown-skinned races and Westbury area  
- 
- 
- 
 Southern England white-skinned, dark-haired races Cue Site-9. Maji Indigo Grail Line: YU-Mu’A Chinese and dark-haired, dark- 
- 
- 
- 
 eyed fair-skinned original English Mu’A Melchizedek races. 
 TRIBE-10: Ma’ah-hu-ta (Pronounced: Ma-a hoo’ ta). 
 Star Gate DNA Signet Codes, Seed Locations and Races: SG-10.  Sumerian UR, Persian Gulf Abadan Iran SG-10 area and Al  
- 
- 
- 
- 
 Basrah Iraq Cue Site-10 area. Many family lines ﬂed to Sakkara Egypt and regions now called Afghanistan and Uzbekistan during   
- 
- 
- 
 early Sumerian raids; continue to live under persecution of Leviathan Illuminati races. Maji Indigo Grail Line: Light-brown-skinned  
- 
- 
- 
 light-eyed, dark-haired races and dark-eyed Essene-Melchizedek races of Persia, now most in Afghanistan, Uzbekistan and Russia. 
 TRIBE-11: Zephar-Duun-Atur (Pronounced: Ze-far-Doon a-Tur). 
 Star Gate DNA Signet Codes, Seed Locations and Races: SG-11. Southern Ireland Cue Site-11, Vale of Pewsey area Southern  
- 
- 
- 
- 
 England SG-11, Scotland lowlands; white-skinned European races now in England, France, Russia, USA and Germany. Raided by  
- 
- 
- 
 Pleiadian-Samjase-Luciferian-Anunnaki Germanic “Sacheons”/Saxons. Maji Indigo Grail Line: Celtek-Druedek hybrid Azurta-Arutus 
- 
- 
  “Celtic-Druids”, white-skinned, frequently red-haired. The true “King Arthur” Grail Line. 
 TRIBE-12: A-reah-Azurta (Pronounced: a-RI’-a  Zoor’-ta). 
 Star Gate DNA Signet Codes, Seed Locations and Races: SG-12. Monsegur Southern France SG-12 white-skinned and original   
- 
- 
- 
 MU’a Lemurian Kauai Hawaiian brown-skinned, dark-eyed races; exiled to Easter Island and Machu Picchu Peru (builders). 
 Maji Indigo Grail Line: Original Mu’A Kauai Hawaiian brown-skinned and KatharA-Cathari white-skinned races of Southern France. 
                                                    © 2002 Ashayana Deane 
- 
- 
-531                                    
 
-                          
                         2001 Update Summary Charts
                             Intruder ET and Illuminati Races of the 2001 UIR OWO Team Summary Chart Introduction.
                                                    Illuminati Hybrid Humans, Unity-Through-Diversity and Reclaiming Christos Potentials
   ''Primary Leviathan Illuminati Races''/'' Human Tribe Infiltration'' refer to Illuminati hybrid race imposters 
-  
-   
-  
 within a given HumanTribe, and select family lines within a given Human Tribe that have been genetically 
- 
- 
 compromised by Illuminati-hybrid interbreeding. These categories do not imply that named ethnic afﬁliations 
- 
- 
- 
 are dominated by Intruder race genetic distortion; Illuminati (non-human Intruder race souls) and Inﬁltrated  
- 
- 
- 
 family lines (Human souls, Intruder DNA attachments) make up the minority in each Human ethnic group. 
- 
- 
 Understanding the common problem of Intruder race inﬁltration now shared by all human cultures should 
- 
- 
- 
  allow for the advancement of a common ground problem-solving Human Unity Through Recognized    
- 
- 
 Diversity, built upon inter-racial equality, respect, love and compassion. This knowledge IS NOT an  
- 
- 
 excuse to apply the Anti-Christos hatred creeds of bigotry, race supremacy or prejudice against any   
- 
- 
 lineage.  If successful in their “First Contact” invasion plan, the UIR intend to use “contrived historical and 
- 
- 
 distorted genealogical” falsiﬁed “evidence” to indicate that all Human races are a “common genetic lineage”  
- 
- 
 derived from their combined Anunnaki-Sirian and Drakonian-Reptilian “stock”. This False Human Unity   
- 
- 
 promotion is intended to vanquish true Angelic Human Race identity and obscure Illuminati-hybrid  
- 
- 
 presence to prepare us all for a “common uniﬁed takeover” under a false UIR  “Creator God” platform. TRUE 
- 
- 
 Human Unity will be gained through loving identiﬁcation of the Species Diversity that exists within the 
- 
- 
- 
 “Common Chemical Clothing” of the “contemporary Human form”. Illuminati and inﬁltrated Human family lines   
- 
- 
- 
 can make the choice to refuse Intruder association and opt for Emerald Covenant DNA Template Bio-        
- 
- 
 Regenesis to continue their evolutionary path toward Christed Mastery, if they are aware of the evolutionary 
- 
- 
- 
 challenges and required solutions posed by Intruder race genetic connection.  Angelic Human/Indigo,   
- 
- 
- 
 Illuminati and Inﬁltrated races can all evolve to genuine “Christed Race” status and freedom. Due to                                                                
 inherent genetic and Core Template differences, each group requires a different evolutionary path by which 
- 
- 
- 
 the DNA Template, bio-energetic ﬁeld and consciousness template can reclaim the Base-12/D-12 Pre-matter  
- 
- 
 “Divine Blueprint” template coding required to attain genuine biologically based “Christed Avatar  
-  
- 
 Consciousness”/ minimum 12-Strand DNA Template potential. If the diversity within the illusion of the   
- 
- 
 “Common Human Genome” is not recognized, all races will remain trapped within the present state  
-  
- 
- 
- 
 of Common Race De-Evolution through which the Christiac genetic potentials within each diversiﬁed race will 
- 
- 
- 
 become lost in progressive degeneration to race extinction.   
-  
- 
-      
-    
 Most Human beings of Illuminati and Inﬁltrated Human race descent have no consciousness knowledge of 
- 
- 
-  
 their connection to Fallen Angelic Intruder ET races; nor are they aware that their genetic signature pre-   
- 
- 
 disposes them to Intruder manipulation. This physical/emotional/mental/spiritual vulnerability to Intruder   
- 
- 
 manipulation can be overcome if the individual comprehends the importance of utilizing genuine Founders 
- 
- 
- 
 Inner Christos Spiritual-Science teachings and technologies. Inner Christos D-12 Divine Blueprint sciences  
- 
- 
- 
 and Maharic Bio-Regenesis Technologies are the only methods by which regeneration of the DNA Strand  
- 
- 
-  
 Template–12 personal D-12 Pre-matter Divine Blueprint can occur to restore the individual’s direction    
- 
- 
 connection to its D-12 Christos Avatar Identity. The Founder’s Bio-Spiritual Technologies allow the original 
- 
- 
 connection to the Primal Light/Sound Fields to be restored via reactivation of the 9-dimensional   
- 
- 
 Antahkarana-Kundalini Cord and 12-Dimensional Maharata Cord Primal Life Force Currents.  Genetically  
- 
- 
 vulnerable humans and Illuminati hybrids are loved by God/Source just as much as any other race and can 
- 
- 
 regain their freedom, free will, Bio-Spiritual Integrity and genuine Christos potential through entering a  
- 
- 
 chosen path of conscious evolution built upon the genuine Founders Inner Christos spiritual/science 
- 
- 
- 
 teachings. Illuminati and inﬁltrated races are victims to Intruder exploitation just as are Angelic Human and 
- 
- 
- 
 Indigo race lines. Like numerous Fallen Angelic races, Illuminati human-hybrid races can evolve beyond  
- 
- 
 exploiting, abusive behaviors; they need Love (Tough Love usually works better than Soft Love, which 
- 
- 
- 
 fallen races tend to exploit), Healing and Inner Christos Spiritual education, not judgment, condemnation  
- 
- 
- 
 and destruction, to reset and develop the Christos Potentials within themselves.   
                                                      © 2002 Ashayana Deane    
-               
-             532    
 
-              
                                                                                                          2001 Update Summary Charts
-     
                     Intruder ET and Illuminati Races of the 2001 UIR OWO Team Summary Chart (5 pages)
                               Phantom Matrix Andromeda and Centaur Intruder Races  
- 
- 
- 
- 
- 
      Necromiton-Andromie: (Fallen Anu-Seraphim hybrid Andromeda). Phantom Andromeda Planets, Alpha/Omega      
- 
- 
-         
        Centauri, Inner Earth. APIN System: “White Eagle” ('hi-jacked” GA “Gold Eagle” APIN). Falcon and Phoenix 
- 
- 
- 
-  
         Wormholes. Primary Races: Raelian “Elohim” Necromiton-Andromie insectoid-Beetle-People. Jehovian-Anunnaki- 
- 
- 
- 
         Andromie-Human Nephilim dark-haired aquatic humanoid. /Annu-Melchizedek-Amealian-Nephilim. Hybornean- 
- 
- 
- 
- 
         Jehovian-Nephilim. Men-in-Black Human-insectoid hybrid Earth/Inner Earth. Marduke-Luciferian-Andromie- 
- 
- 
- 
- 
         Anunnaki insect-hominid hybrid. Omicron-Drakonian-Andromie “Vampire” serpent-dino-humanoid hybrid. Noors  
- 
- 
-     
- 
         Red Haired Humans (Omicron-Drakonian-Necromiton-Andromie-Pleiadian Human hybrid) Phantom Lyra  
- 
- 
- 
- 
         Vega/Pleiades/Alnitak (Orion-Necromiton Black League). Adalphi Blue Zeta (Necromiton-Andromie-Zeta Rigelian  
- 
- 
- 
         hybrid) Phantom Alpheratz, Andromea. Core Agendas: Andromie-Drakonian Drakonian-Orion Confederation 
- 
- 
 ,  
- 
         Andromie-Anunnaki-Luciferian Pleiadian-Nibiruian Coalition, Andromie-Anunnaki-Jehovian, United Federation of   
- 
- 
- 
         Planets, Andromie-Centaruian Alpha-Omega Order;  Andromie-Supremacists Orion-Necromiton Black League. 
- 
- 
- 
- 
         Primary Leviathan Illuminati Races: Taozan King Atlantian Leviathan Illuminati lines, Asian Scarab and 
- 
- 
- 
- 
         Sadducees-Semetic Dragon Kings Leviathan Illuminati lines. Human Tribe inﬁltration: Mongolian, China/ Japan/   
- 
- 
- 
         Tibet (Yu), Brazil, Chile, Turkey, Anastazi Native American, Hebrew. Associations: Buddhaic/ Tibetan/ Eastern/   
- 
- 
- 
         Christian spiritual text distortions, the “Necromancy” Luciferian-Satanic Bible, Luciferian Egyptian/Tibetan/Mayan   
- 
- 
- 
         mystical teachings, Alpha-Omega Templar Melchizedeks, “Lord Melchizedek”/“Archangel Michael”/”Angelic  
- 
- 
- 
- 
         Hierarchy”/ ''Kryon”/ ''Corteum'' Nephilim Anunnaki-Andromie hybrids.  False “Sananda-Jesus” contacts, Fallen  
- 
- 
- 
- 
         “Vairagi” false ''ascended masters,'' “Thule Society”, “Andromie” ET contact/channeling. ''Friendly Enemy'' allies 
- 
- 
- 
- 
         Marduke-Luciferian/ Marduke-Dramin(Omicron) Anunnaki /Jehovian-Anunnaki Nephite-Nephilim collectives.  Began 
- 
- 
- 
         UIR 2000 / War Edict. UIR head.
 •	
 Centaur-Luciferians and Blue Centaurs: (Fallen Anu-Seraphim hybrid Omega Centauri). Phantom Alpha and  
- 
- 
- 
- 
 Omega Centauri. APIN System: “The OX” (Hi-jacked Maharajhi “Blue Oxen” APIN). Primary Races: Blue Centaurs  
- 
- 
- 
 Phantom Omega Centauri, Centaur-Luciferian Hominid-Centaurs (Marduke-Luciferian-Anunnaki-Centaur hybrid)   
- 
- 
- 
 Phantom Alpha Centaur/ Phantom Sirius B. Core Agenda: Centaurian-Necromiton-Andromie Centaurian Nation   
- 
- 
- 
 and Alpha-Omega Order. Primary Leviathan Illuminati Races: Taozan King (Andromie-Anunnaki-Atalan King  
- 
- 
- 
- 
 hybrid)/ Bhud-Rama King (Fallen Rama-Anunnaki-Andromie hybrid) Atlantian Leviathan Illuminati lines. Human 
- 
- 
- 
- 
 Tribe Inﬁltration: India, Middle East, Pakistan, Turkey, the “Stans”, various Islands. Associations: Hindu/ Sanskrit  
- 
- 
- 
 Islamic text distortions, various Shamanic, Pagan, Druid, and WICCAN tradition distortions. Work with Andromie-  
- 
- 
-  
 Necromiton, some with Rebel Omicron-Drakonians. Joined UIR 2000 with Andromies. 
-                                                                              
                                                                             Phantom Matrix Zeta Intruder Races
 •	
 Zeta-Rigelian/Zeta-Reticuli Zephelium: (Fallen Seraphim Lyra Vega/Apexian-Lau) Phantom Rigel Orion, Zeta- 
- 
- 
- 
- 
 Reticuli, Bellatrix, Nibiru, Andromeda, Phantom Earth and various other locations. Primary Races: All Zeta emerge   
- 
- 
- 
 from Zephelium (tall bipedal blue-skinned Insectoid-Reptilian-Serpent seed race); many strains. Azazael (Blue- 
- 
- 
- 
- 
    Human-Reptile Omicron-Zephelium hybrid) Bellatrix. Aggressive Zeta-Rigelian Omicron-hybrid “Tall Greys” Rigel 
- 
- 
- 
- 
 Orion, Rutilia (E.B.E.) Zeta-Dracos hybrid. Zeta-Reticuli  “Short Greys”, several insectoid forms, various   
- 
- 
- 
- 
 systems/Phantom Earth. Thoth-Enki-Zephelium (Zeta-Reticuli-Amealian-Anunnaki) hominid hybrid Nibiru  
- 
- 
-          
- 
 Kurrendara Orange Zeta (Dracos-Anunnaki-Zeta Rigelian hybrid) Nibiru. Adalphi Blue Zeta (Andromie-Necromiton-  
- 
-  
- 
 Zeta-Rigelian hybrid) Alpheratz Andromeda. Core Agenda: Zeta Reticuli Zeta-Pleiadian-Nibiruian-Anunnaki 
- 
- 
- 
- 
 Pleiadian-Nibiruian Coalition or Emerald Covenant (refugee) GA. Zeta-Rigelian Zeta-Drakonian Drakonian-Orion  
- 
- 
- 
- 
 Confederation. APIN System: Zeta-Rigelian “The Falcon” APIN/Falcon Wormhole. Zeta-Reticuli: Pleiadian-Nibiruian   
- 
- 
- 
 Phoenix/Serpent. Primary Leviathan Illuminati Races: Zeta-Reticuli/ Ezeural/Beli-Kadmon/ Atalan King (Thoth- 
- 
- 
- 
- 
 Enki-Zephelium-Anunnaki Nibiruian) Atlantian Leviathan Illuminati lines.  Larsa King Sumerian/Osirius King Egyptian  
- 
- 
- 
  (Nibiruian Anunnaki-hybrid) Leviathan Illuminati Lines. Zeta-Rigelian/ Dragon King (Germanic) Atlantian Leviathan 
- 
- 
- 
- 
 Illuminati Lines. Human Tribe Inﬁltration: Both groups have small ancestral lines in most human 12-Tribes and  
- 
- 
- 
- 
 contemporary abduction hybrids and clones of “body-snatched” human bodies. Associations: Zeta Reticuli-  
- 
- 
- 
- 
 Opened Phantom Earth Falcon Wormhole 1903-1916 raided by Zeta-Rigelians. Pleiadian-Nibiruian Samjase- 
- 
- 
- 
- 
 Luciferian/Thoth-Enki-Zephelium allies. Most accepted 1983-1984 Emerald Covenant Amnesty/Redemption  
- 
- 
- 
- 
 Contracts, some joined Pleiadian-Nibiruian Anunnaki, to escape Zeta-Rigelians. Zeta Rigelians- Drakonian-Orion  
- 
- 
- 
- 
 Confederation administration, MJ-12 and Nazi Zeta Treaties, enslaved Zeta-Reticuli,  “Zeta-Talk”, Thule Society, 
- 
- 
- 
- 
 Allister Crowley/ “Black Sun”/ “Golden Dawn”/ “Enochian Watchtowers” metaphysical cults, Pagan teaching  
- 
- 
- 
- 
 distortions, Philadelphia Experiment/Montauk Project, 1983 Rigelian-Andromie Alliance. Work with Drakonian  
- 
- 
- 
- 
 Necromiton-Andromies, some Omicron-Drakonian/Odedicron-Reptilian factions, “Big Brother Drac” World  
- 
- 
- 
- 
 Management Team Illuminati/ “Montauk Boys”. Joined UIR 2000 with Necromiton-Andromies. 
                                                                                            © 2002 Ashayana Deane  
-                      533      
-                                                                                                                                                              
 
-                  
               2001 Update Summary Charts
                                        Phantom Matrix Drakonian and Reptilian Intruder Races
 •	
 Omicron-Drakonian: (Fallen Seraphim line of Lyra-Vega) Alnitak,-Alnilam Orion, Alpha Draconis, Bellatrix.  APIN  
- 
- 
- 
 System: “The Dragon”. Primary Races: Omicron Bipedal Dragon-Moth-insectoid-dino-reptiles Orion.  Dracos   
- 
- 
- 
 human-hybrid (Lizard-hominid, some “morph” to human-like) Earth/Inner Earth, Phalzants (Chupacabras) Omicron- 
- 
- 
- 
 Odedicron-mammal-hybrids, Kurrendara Anunnaki-Omicron-Zeta hybrid (Orange Zeta hybrid) Nibiru, Azazael (Blue- 
- 
- 
- 
 Human-Reptile Omicron-Zephelium hybrid) Bellatrix. Marduke-Dramin-Anunnaki insect hominid (Omicron-Anunnaki 
- 
- 
- 
 hybrid) Core Agenda: Omicron-Drakonian, Drakonian-Orion Confederation. Primary Leviathan Illuminati Races:  
- 
- 
- 
 Nephedem-Omicron human-hybrids. Etruan King/ Etalian King (Atlas-Etruan King hybrid)/ Roman Remus King 
- 
- 
- 
- 
 (Etalian-Lathin King hybrid)/ Pharisees-Semetic Dragon King (Hibiru) and Hallah King (Hibiru) Atlantian Leviathan 
- 
- 
- 
 Illuminati lines. Dragon King (Sumerian/ Egyptian-Tuthmosis-Ramses/Chinese/Japanese/Germanic) Leviathan  
- 
- 
- 
 Illuminati lines. Human Tribe Inﬁltration: Middle East/Persian (Ur/Hibiru/Hebrew/Akkadian), Taliban, Sumeria,  
- 
- 
- 
 Ionian (Etruscan and Roman), German/Russian, Anglo-Saxon, Asian/China (Yu), African, Aztecs, Incas, Native   
- 
- 
- 
 American. Associations: Knights Malta Catholic Templar Knights, Roman “Mofﬁa”, Scots “McDonald” raider line, 
- 
- 
- 
 Nazi creeds, “Black Sun” mystical schools, Curendara/ “Dramin Dragon Queen” Shamanism (Native American/   
- 
- 
- 
 Peru/ Africa), Haitian/African “Voo-Doo”, Roman Catholic control creeds, Toltec-Aztec, Inca, Islamic,  
- 
- 
- 
- 
 WICCAN/Pagan, Reiki text distortions, false GA claims “Omicron” group. Zeta-Rigelian/ some Odedicron-Reptilian/  
- 
- 
- 
 Marduke-Dramin-Anunnaki allies. Most join UIR 2000; rebels refuse UIR for Omicron-Drakonian OWO agenda.  
- 
- 
- 
 •	
 Dracos: (Fallen Seraphim-Human hybrid) Earth, Inner Earth, Alcyone/ Tara. APIN System: Access to Omicron-  
- 
- 
- 
 Drakonian “Dragon”, Zeta-Rigelian “Falcon” and Pleiadian-Nibiruian “Phoenix” APINs. Primary Races: Hominid- 
- 
- 
- 
 Reptile created 1 million years ago Earth via Omicron-Drakonian forced Human interbreeding. Core Agenda: 
- 
- 
- 
- 
 Reptilian-Drakonian Drakonian-Orion Confederation. Primary Leviathan Illuminati Races: “Human-Lizard Shape- 
- 
- 
- 
 shifters” Nephedem-Dracos hybrids Earth/ Inner Earth. Human Tribe Inﬁltration: North-South American/ Brazilian/  
- 
- 
- 
 African/various island Tribal cultures, Middle Eastern, Egyptian, South/South-Mid Western USA, Cuba, Australia,  
- 
- 
- 
 England, Spain, Portugal. Associations: Various Shamanic tradition distortions, promote false “Environmental   
- 
- 
- 
 causes  /  Drak “technologies”/ “ET Contact demos”, utilize astral projection to initiate “astral-body sex” with Humans 
- 
- 
- 
 for D-4 astral-body bio-ﬁeld/DNA Template implanting, use sound-tones for D-4/Chakra-4 astral cording/ bio-ﬁeld  
- 
- 
- 
 Tagging in unsuspecting humans via public events. Work with Zeta-Rigelian/ Omicron-Drakonian/ Odedicron- 
- 
- 
- 
- 
 Reptilian UIR groups, Nibiruian Kurrendara (Dracos-Anunnaki hybrids) and Marduke-Dramin-Anunnaki  (Omicron- 
- 
- 
- 
 Anunnaki hybrids). Most joined UIR 2000 with Zeta-Rigelians; some refuse UIR for Rebel Omicron-Drakonians. 
 •	
 Odedicron-Reptilian: (Fallen Seraphim line of Lyra-Vega) Alnilam Orion, Lyra-Vega, Inner Earth.  APIN System:  
- 
- 
- 
  “The Falcon”. Primary Races: Odedicron Avian-Reptile “Gargoyle” winged reptile-hominid hybrids. Enlil Enlil-  
- 
- 
- 
 Odedicron-Amealian-Anunnaki hybrid Nibiru, Beli-Kudyem Odedicron-Anunnaki-Turaneusiam-Human hybrids   
- 
- 
- 
 Alcyone/Tara. Core Agenda: Reptilian-Drakonian, Drakonian-Orion Confederation or Reptilian-Anunnaki Pleiadian- 
- 
- 
- 
 Nibiruian Coalition.  Primary Leviathan Illuminati Races: Nephedem-Odedicron human-hybrids Earth/Inner Earth,  
- 
- 
- 
 Lathin King Atlantian-Greek and Arcadian King Illuminati line, Roman Romulous King (Etalian-Lathin King Atlantian 
- 
- 
- 
 hybrid) Illuminati line, Atlas King, Sumerian-Egyptian Horus King (Enlil-Odedicron-Anunnaki-hybrid) Leviathan 
- 
- 
- 
- 
 Illuminati line. Human Tribe Inﬁltration: Egypt, Central America, Native American, Mexico, Hawaii, Polynesian   
- 
- 
- 
 Island, South America, South Africa, Ionia (Italy/Greece), England, Germany. Associations:  
- 
- 
- 
- 
- 
 Egyptian/Pagan/Shamanic/Kahuna mystical teaching distortions, Egyptian “Crocodile Cults” and “Falcon Cults”,  
- 
- 
- 
 Malaysian “Voo-Doo”, “Lord Maitreya”, Christian texts distortions. Some work with Odedicron-Drakonian Dragon- 
- 
- 
- 
 Moths, others with Zeta-Reticuli Greys and Pleiadian-Samjase-Luciferian-Anunnaki; most joined UIR 2000, a few  
- 
- 
- 
 factions joined Rebel Omicron-Drakonians. Several factions in Emerald Covenant Redemption Contracts. 
                                                                                   © 2002 Ashayana Deane
-               
-               
-              534    
 
-                                                                                                                                          
                                                                                                                        2001 Update Summary charts        
-                                    
                                                        Phantom Matrix Anunnaki Intruder Races
 • 
 Marduke-Luciferian-Anunnaki: (Fallen Anu-Seraphim hybrid, Lyra Aveyon) Phantom Alpha/Omega Centauri,  
- 
-                       
 Nibiru, Tiamat. APIN System: NDC-Grid/NCT-Bases/NET, Phoenix, Serpent Nibiruian APINs. Primary Races: - 
- 
- 
- 
 Vichoritz insectoid-serpent-hominid (Thoth-Enki Lulitan family-Amealian-Anunnaki/Marduke Satain family-Amealian  
- 
-    
 -Anunnaki/Necromiton- Andromie hybrid) and Vichor Light-haired Humanoid (Pleiadian-Amealian-Anunnaki/Vichoritz   
- 
- 
 hybrid) Nibiru, Tiamat, Alpha Centauri. Centaur-Luciferians Hominid-Centaur hybrids (Vichoritz-Centaur) Alpha  
- 
- 
-      
 Centaur. Core Agenda: Luciferian-Anunnaki Pleiadian-Nibiruian Coalition and/or Necromiton-Andromie Orion- 
- 
- 
- 
 Necromiton Black League. Primary Leviathan Illuminati Races: Elucum King/ Beli-Kadmon Atalan King Atlantian   
- 
- 
 Leviathan Illuminati lines. Babylonian-Sumerian Vicherous King (Elucum King-Druedic Maji hybrid) “Scandinavian  
- 
- 
- 
 Vi-Kings”, Hyksos King Knights Templar/Freemason Master Race Leviathan Illuminati lines. Human Tribe  
- 
- 
- 
 Inﬁltration: Raided Tribe-3 Druedic Maji lines Nohasa Atlantis/ Scandinavia/ England/Ireland/Scotland, Scots  
- 
- 
- 
 “McGregor” raider lines, Knights Templar Freemasons. Associations: 9560BC Luciferian Covenant. Work with  
- 
- 
- 
 Pleiadian-Samjase-Luciferian-Anunnaki/ Nibiruian Thoth-Enki-Zephelium-Anunnaki and/or Centaur Luciferian/  
- 
- 
- 
 Necromiton-Andromie Orion-Necromiton Black League.  Druid, Celtic, Pagan and Protestant Christian text  
- 
- 
- 
 distortions. Most joined UIR 2000 with Necromiton-Andromies. 
 • 
 Marduke-Dramin/Satain-Anunnaki: (Fallen Anu-Seraphim hybrid, Lyra Aveyon) Phantom Alpha Centauri, Sirius B,   
- 
- 
 Alnilam Orion, Alpha Draconis, Nibiru. APIN System: NDC-Grid/NCT-Bases/NET, Dragon, “Crocodile”(now dis-  
- 
- 
- 
 mantled) and Falcon Drakonian APINs Primary Races: Dramin-Dragon-Queen dino-insect-hominid Anunnaki hybrid  
- 
- 
 (Amealian-Anunnaki-Aquatic-Ape Marduke-Satain family line-Omicron-Drakonian-Dragon Moth hybrid). Sathosah   
- 
- 
 Dark-haired “Hook Nose”, olive-skinned Humanoid Sirian Anunnaki (Jehovian-Satain-Nephilim-Omicron-Nephite- 
- 
- 
- 
 Human). Core Agenda: Satanic-Drakonian Orion-Necromiton Black League. Primary Leviathan Illuminati Races:   
- 
- 
 Sathian King (Etruan King-Marduke Sathosah hybrid) Atlantean Leviathan Illuminati line. Babylonian-Chaldean- 
- 
- 
- 
 Akkadian King (Jehovian Anunnaki Nohassim-Hassah King-Sathian King hybrid) Atlantian Leviathan Illuminati line.   
- 
- 
 Set King Egyptian (Sathian King-Babylonian King-Horus King hybrid) Leviathan Illuminati line. Human Tribe  
- 
- 
- 
 Inﬁltration: Middle Eastern Hibiru, Sumeria, Akkadian-Chaldean, Babylonian, Egyptian, Native American “Kota” 
- 
- 
- 
 tribes, Angolan-Portuguese-W. African, Russian. Associations: “Dramin the Dragon Queen”, Egyptian “Set”  
- 
- 
- 
 schools, Biblical “Seth” lineage, “Necromancy” Satanic Bible, “Satanism”, Islamic and Hebrew text distortions, 
- 
- 
- 
  “KKK”, Russian Psychic “Rasputin” and related “channels”. Work with Omicron-Drakonians, Dracos and Orion- 
- 
- 
- 
 Necromiton Black League Pro-Drac Necromiton-Andromies. Most joined UIR 2000; some factions refused UIR for  
- 
- 
 Rebel Omicron-Drakonians.
 • 
 Enlil-Odedicron-Anunnaki: (Fallen Annu-Seraphim hybrid, Aveyon Lyra) Nibiru, Phantom Tiamat, Lyra-Avalon  
- 
- 
- 
 APIN System: “The Phoenix”. Primary Races: Enlil Amealian-Anunnaki-Aquatic-Ape/Odedicron-Avian-Reptile  
- 
- 
- 
 scaled reptile-hominid hybrid. Beli-Kudyem Odedicron-Anunnaki-Turaneusiam-Human human-reptile hybrids  
- 
- 
- 
 Alcyone/Tara Core Agenda: Reptilian-Anunnaki Pleiadian-Nibiruian Coalition or Reptilian-Drakonian Drakonian- 
- 
- 
- 
 Orion Confederation.  Primary Leviathan Illuminati Races: Ediruan King Atlantian/Sumerian/African Leviathan                   
- 
 Illuminati lines. Beli-Kadmon/ Atalan/Arcadia-Greek King (Nibiruian Anunnaki hybrid) Atlantian Leviathan Illuminati   
- 
- 
 lines. Atlas King Atlantian-Sumerian and Horus-Scarab King Egyptian Leviathan Illuminati lines. Hyksos Knights  
- 
- 
- 
 Templar King Anunnaki and Drakonian Anti-Christos Master Race line. Roman Romulous King and Sacheon-Gual   
- 
- 
 King (Pleiadian-Samjase-Luciferian-Anunnaki Sacheon/Saxon-Germanic-Hyksos-Omicron Drakonian) Dragon King   
- 
- 
 lines. Human Tribe Inﬁltration: Egyptian, African, Arcadian-Greek, South American, Inca, NW Native American,  
- 
- 
- 
 NW French, S. English. Associations: With Enki-Zephelium/Marduke-Luciferian Anunnaki created Nibiruian  
- 
- 
- 
 Primate-hominid Lulcus-Neanderthal slave race for African gold mines and Middle East labor, 250,000BC. Enlil- 
- 
- 
- 
 Anunnaki Raider Race of 148,000BC-75,000BC Anu Occupation, 25,000BC Lucifer Rebellion, 10,500 BC Luciferian   
- 
- 
 Conquest, 9560BC Luciferian Covenant Atlantian Human Tribe Invasions Atlantian-Egyptian “Phoenix” and Falcon   
- 
- 
 mystical schools, Falcon Shamanic traditions, Nubian/ Mayan/Toltec/Olmec/ Native American “Falcon Cults” and 
- 
- 
- 
 “Crocodile Cults”, Gaul raider races of France, Britain, Europe, Knights Templar Free Masons Anunnaki and  
- 
- 
- 
 Drakonian factions. Most are members of Nibiruian Councils 9 and 12, Pleiadian-Nibiruian Coalition, Galactic  
- 
- 
- 
 Federation and Ashtar Command. Defected from Pleiadian-Sirian Agreements/Treaty of Altair to join UIR 2000 with   
- 
- 
 GF, Ashtar Command and Nibiruian Council Anunnaki.                        
-                                                                                               
                                                                © 2002 Ashayana Deane   
-               535                                                     
-                                                                                                                                       
 
-                                                                                                                      
                    2001 Update Summary Charts
                                                                    Phantom Matrix Anunnaki Intruder Races (continued)
 •	
 Jehovian Anunnaki: (Fallen Annu-Elohim Jehovani D-11 “dark avatar” collective) Phantom Lyra Aveyon, Sirius A,  
-   
-    
 Arcturus, Alpha Centauri, Andromeda, Trapezium (Theta) Orion. APIN System: Jehovian-Nephite: “Dove and Olive 
-   
- 
 Branch” HD-C/APIN, Jehovian 7-Seals, Arcturian Trumpet technologies and Phoenix Wormhole access. Jehovian- 
-   
- 
 Nephilim-Morantian: Dove, Dragon and Falcon APINs. Jehovian-Nephilim-Nephite-Drakonian: Dragon and Falcon  
-   
- 
 APINs. Primary Races: Jehovanians Fallen Annu-Elohim. Fallen Ophanium “Overlords”  (Oraphim Maji-Nephite 
-   
- 
 Anunnaki hybrid) Arcturus, Trapezium Orion. Bipedal Dolphin People Anunnaki cetacean-hominid Sirius A (original  
-        
- 
 Anunnaki pure strain), Schriki-EL aquatic dolphins Earth. Nephite “Hook Nose”, dark haired Humanoids (Dolphin  
-   
- 
 People Anunnaki-Hebrew/Hibiru-Melchizedek-Cloister-Human hybrids) Phantom Sirius A (“Etheric Sirians”), Orion, 
-   
- 
  Anteres, Pleiades, Arcturus and Lyra Aveyon (Humanoid “Arcturians” and “Lyrans”). Morantians Jehovian-Nephilim  
-   
- 
 Humanoid (Necromiton-Andromie-Jehovian-Anunnaki-human hybrid) Sirius A, Arcturus, Alpha Centauri, 
-   
- 
 Andromeda. Core Agenda: Jehovian-Nephilim-Morantians: Annu-Elohim Federation of Planets. Jehovian-Nephite- 
-   
 Nohassim(Zadok): Orion-Necromiton Black League. Jehovian-Nephite-Drakonian (Baal): Drakonian Orion 
-   
- 
 Confederation. Jehovian-Nephite-Adam Kadmon (Belil-Davidic): Pleiadian-Nibiruian Coalition. Primary Leviathan 
-   
- 
 Illuminati Races: Jehovian-Nephilim-Morantians: Admian-Nephilim Urantia King (Morantian-Necromiton-Andromie- 
-   
- 
 Jehovian-Anunnaki-Ur-Antrian-Cloister-Human hybrid) and Annu-Melchizedek Adamian-Nephite King Lemurian 
-   
- 
 Leviathan Illuminati lines. Jehovian-Nephite-Nohassim “Sirian Sons of Zadok”: Zadokhim-Hassim King (Enochian  
-   
- 
 Adamian-Nephite), Hassa King (Zadokhim-Hassim) and YHWH Hibiru King Atlantian Leviathan Illuminati Lines. 
-   
- 
 Jehovian-Nephite-Adam Kadmon “Nibiruian Sons of Belil”: Nohassim-Adam-Kadmon King (Enochian Zadokhim /  
-   
- 
 Thoth-Enki-Zephelium Ezeural Beli-Kadmon Nibiruian hybrid), Larsa King (Enochian Nohassim-Adam-Kadmon/  
-   
- 
 Thoth-Enki Ezeural and Samjase-Luciferian Sacheon-Atalan) and Davidic King (Knights Templar Enochian- 
-   
- 
 Thothian-Hyksos Adam-Kadmon, the Abraham-David-Moses-Akhenaton-Jeshewua-9 lineage) Atlantian Adam  
-   
- 
 Kadmon-Nephite Leviathan Illuminati lines. Jehovian-Nephite-Drakonian “Orion Sons of Baal”:  Taozan-Sadducees  
-   
 (Necromiton-Andromie-Jehovian Anunnaki hybrid) and Hassad-Pharisees (Omicron-Drakonian-Jehovian-Anunnaki 
-   
- 
  hybrid) Semetic Jehovian Dragon King lines.  Hallah King (Zadokhim-Hassim-Necromiton-Andromie-Omicron- 
-   
 Drakonian) Atlantian Nephilim-Nephite-Drakonian Leviathan Illuminati line. Human Tribe Inﬁltration: Extensive  
-   
- 
 raiding of Angelic Human Hibiru, Hebrew (Hibiru-Melchizedek Cloister) and Essene (Melchizedek Cloister) Indigo  
-   
- 
 Maji Grail Lines, and moderate inﬁltration of Yu (Chinese/Tibetan), Sumerian/ Egyptian/Middle Eastern, all  
-   
- 
 European/ American cultures. Associations: Jehovian-Nephilim-Morantians: Major distortions of original  
-   
- 
 Lemurian/Atlantian/Essene Emerald Covenant CDT-Plate Christos teachings, Christian Protestant text distortions,  
-   
- 
 Urantia Book, Templar Melchizedek Mormon texts.  Jehovian-Nephite-Nohassim: Created “YHWY”/ “Jehovah” God 
-   
- 
  stories/ false 12-Tribe History in Hebrew/Christian texts. Jehovian-Nephite-Adam Kadmon: Promote Jehovah/  
-   
- 
 YHWH/ Metatron/ Ophanium/ Enoch/ Archangel Michael and Tibetan creeds. Jehovian-Nephite-Drakonian: Kaballah 
-   
- 
 Hebrew text distortions, inverted-reversed 10-Sephiroth “Tree of Life”, removed 6 letters from Hebrew alphabet.  
-   
- 
 Traditional and Hassidic Hebrew texts distortions. Jehovian renegades in Galactic Federation/ Ashtar Command/ 
-   
- 
 Nibiruian Councils. Course in Miracles channeling and Thoth-Isis-Merlin-Archangel Michael teachings are Jehovian/  
-   
- 
 GF/ Necromiton-Andromie Nephilim Anunnaki Co-op. Most join UIR 2000 with GF, Ashtar Command and Nibiruian  
-   
- 
 Council. Some Jehovian-Nephite-Drakonian groups joined Rebel Omicron-Drakonian OWO agenda.
 •	
 Pleiadian-Samjase-Luciferian-Anunnaki: (Fallen Annu-Seraphim hybrid, Aveyon Lyra) APIN System: The NDC-  
- 
-  
- 
 Grid, NET, “Phoenix” APIN, Phoenix wormhole, “White Eagle” APIN Primary Races: Beli-Kudyem Reptilian- 
- 
- 
-      
- 
 Anunnaki-human hybrid “Blonds” (Marduke-Luciferian-Anunnaki line of Sirius A raided Procyon Serres Maji races)  
- 
-  
- 
 Tara, Alcyone, Procyon and Nibiru.  Borjha “little blue hominids” of Pleiadian Alcyone, Nibiru, Tiamat, Tara. Beli- 
- 
- 
-  
- 
 Kudyem human-reptile hybrids Alcyone and Inner Earth. Beli-Mahatma Pleiadian-Jehovian Anunnaki-Human 
- 
- 
-  
- 
 reptilian-aquatic-human hybrids, look like “pretty perfect humans” of various heights with blond or dark hair and 
- 
- 
-           
- 
 bright blue eyes, usually wear white robes and falsely claim ascended mastery, Alcyone, Inner Earth, Parallel Earth  
- 
-  
- 
 and Sirius A (majority race of GF and Ashtar Command). Core Agenda: Pleiadian-Nibiruian Coalition- Luciferian 
- 
- 
-  
- 
 Covenant “Anunnaki Resistance” agenda. Primary Leviathan Illuminati Races: Bruah Atlantis Atalan Kings, Lohas  
-  
- 
 Atlantis Sacheons-Saxons Kings (Celtec-Dreudic Maji Tribe raids), Atlantian-Sumerian Larsa Kings, Isis Queen- 
- 
- 
-  
- 
 Egyptian line, Hyksos Knights Templar-Freemason Master Race, Cathari (raid of Maji KatharA Indigo Tribe of S.  
- 
- 
-  
- 
 France). Human Tribe Inﬁltration: Russia-Germany, England, France, Scotland, North and South America. 
- 
- 
-  
- 
 Afﬁliations: Protestant Christian text distortions, “Isis” mystical schools, Pleiadian channels and UFO contacts,                                            
 work closely with Nibiruian Anunnaki Thoth-Enki-Zeta, Enlil-Odedicron and Marduke-Luciferian lines. “Mahatma” and   
- 
-  
 Rosecrution spiritual teachings, ancient “Olympian Gods” of Rome and Greece, Galactic Federation, Ashtar  
- 
- 
-  
- 
 Command and Pleiadian-Nibiruian Council. Anunnaki portions of World Management Team Illuminati, Alpha-Omega  
-  
 Melchizedek schools, false “Mother Mary” contacts. Work with Nibiruian Thoth-Enki and Enlil-Odedicron-Anunnaki,   
- 
-  
- 
 Zeta-Reticuli, Necromiton-Andromie-Nephilim hybrids, Centaur-Luciferian-Anunnaki. Defected from 1992 Pleiadian- 
- 
-  
- 
 Sirian Agreements; all joined UIR 2000 with Galactic Federation, Ashtar Command and Nibiruian Council.                                                                    
                                                                                          © 2002 Ashayana Deane   
-             536                                                                                                        
-             
-  
 
                                                                                                                      2001 Update Summary Charts
                                                            Phantom Matrix Anunnaki Intruder Races (continued)
 •	
 Thoth-Enki-Zephelium Anunnaki: (Fallen Anu-Seraphim hybrid Lyra Aveyon). Nibiru, Tiamat, Lyra-Aveyon. APIN 
- 
- 
- 
- 
- 
 System: NDC-Grid/Battlestar Wormwood/ NET, “Serpent”, “Phoenix” and “Falcon” APINs. Primary Races: 
- 
- 
- 
- 
- 
 Amealians Anunnaki-aquatic ape-hominid Lyra-Aveyon. Enki-Zephelium-Anunnaki black-haired, tan-skinned, “Hook 
- 
- 
- 
-           
- 
 Nose” tall humanoid-insectoid-reptilian-serpent (Amealian-Anunnaki-Zeta-Reticuli-Zephelium hybrid) Nibiru. Thoth- 
- 
- 
- 
-              
 Enki-Zephelium-Anunnaki (the Enki-Zephelium-Anunnaki Lulitan family line of Thoth), seed of the earthly E-Luhli  
- 
- 
- 
- 
 Levi, Juda, Nephi and Annu-Melchizedek human-hybrid Leviathan races. Essesani, Luciferian-Anunnaki similar to  
- 
- 
- 
- 
 Enki-Zephelium-Anunnaki but shorter, stockier build (Nibiruian Thoth-Enki-Zephelium Lulitan family line plus  
- 
- 
- 
- 
 Marduke-Dramin/Omicron-Anunnaki Satain family line combined to form the original “Luciferian” Amealian-Anunnaki  
- 
- 
- 
- 
 seed race.)   Core Agenda: Pleiadian-Nibiruian Coalition- Luciferian Covenant “Anunnaki Resistance” agenda.  
- 
- 
- 
- 
 Primary Leviathan Illuminati Races: Belil-Annu-Melchizedek (Paracletes) Atalan King Atlantian Leviathan  
- 
- 
- 
- 
 Illuminati line Bruah Atlantis, Larsa Kings raiders of Lohas Atlantis and Sumeria (Thoth-Belil/Samjase-Luciferian 
- 
- 
- 
- 
 Sacheon/ Jehovian-Nephite-Adam Kadmon Leviathan hybrids). Osirius and Thoth Egyptian King lines, Greek- 
- 
- 
- 
- 
 Roman Amulius King (Hermes-Tris-me-gis-tus lineage) and Hyksos Kings Anunnaki Master Raider Race (Knights  
- 
- 
- 
- 
 Templar Freemasons) and Mayan-Hyksos King Leviathan Illuminati lines. Human Tribe Infiltration: Raiding of 
- 
- 
- 
- 
- 
 Bruah (Florida Seminal Native American Maji Tribes), Nohassa (Bermuda Island Maji tribes), Lohas (Druedic and  
- 
- 
- 
- 
 Celtec Maji Tribes) Atlantis, Sumerian Ur, Egypt Giza and Sakkara (Serres Maji Tribes), Mayan, African, Central  
- 
- 
- 
- 
 American, Peruvian-Inca (Maji Tribes) and various Native American tribes. Associations: Initiators of the 9560BC  
- 
- 
- 
- 
 Luciferian Covenant OWO Nibiruian-Atlantian Dominion Master Plan. Dominant force of the Anunnaki portions of  
- 
- 
- 
- 
 World Management Team Illuminati. Greek Hermes Tris-me-gis-tus, Greek-Roman Amulius and Julius Caesar  
- 
- 
- 
- 
- 
 Nibiruian King lines, some Roman and Greek “Olympian Gods” legends. Mayan-Quetzalcoatl, forced Human tribes 
- 
- 
- 
- 
 to adopt Nibiruian-distorted Mayan Calendar and Nibiruian-created Julian Calendar in Rome. Egyptian Osirius-Isis  
- 
- 
- 
- 
 mystical schools, the Atlantian Emerald Tablets (Written translations of part of data stored on Emerald Covenant 
- 
- 
- 
- 
- 
 CDT-Plate-11 stolen by Thoth in 22,340BC.) and “Brotherhood of the Snake” Atlantian mystical schools. Led  
- 
- 
- 
- 
 Nibiruian Anunnaki invader races in the Eieyani Indigo Massacre of 22,326BC Lemurian Islands (Kauai Hawaii). 
- 
- 
- 
- 
- 
 “Thoth” Alpha-Omega Melchizedek mystical schools, “Lord Melchizedek” and related channel contacts, Christian- 
- 
- 
- 
- 
 Protestant text distortions, Osirius-Isis-Horus Egyptian schools. Most groups were Emerald Covenant loyal until  
- 
- 
- 
- 
 Thoth defected from Emerald Covenant just prior to the SAC and Eieyani Massacre of 22,326BC. Coerced Enoch  
- 
- 
- 
- 
 and his Kodazhim hybrid races to defect from Emerald Covenant to enter the Luciferian Covenant in 10,500BC to  
- 
- 
- 
- 
 launch “Hyksos-Knights Templar Master Race Plan”.  Works closely with Nibiruian Enlil-Odedicron-Anunnaki,  
- 
- 
- 
- 
 Pleiadian-Samjase-Luciferian-Anunnaki (primary allies), Zeta-Reticuli Zephelium, Necromiton-Andromie- 
- 
- 
- 
- 
 Drakonian/Jehovian-Nephilim (primary allies) hybrids and Centaur-Luciferian-Anunnaki.  Defected from 1992 
- 
- 
- 
- 
- 
 Pleiadian-Sirian Agreements /2000 Treaty of Altair for UIR 2000. A driving force within the contemporary New Age  
- 
- 
- 
- 
 Movement Indigo Hi-jack Plan (body-snatching of as-yet-unawakened Indigo Maji Types 1-2-3 via Astral Implant   
- 
- 
- 
 Tagging, Astral Over-shadowing and eventual full body possession.) 
-                                           
 (Afﬁliations also include ‘’Merlin and Thoth’’ channels and contacts)
-                                   
- 
                                                             © 2002 Ashayana Deane  
- 
- 
- 
- 
- 
- 
- 
-537
 
                                                                                Appendix VI
-                                                        
-                          
-                      
                        Crisis Intervention Expedited 
-                       
                          Amenti Opening Schedule            
       Due to the Sept 12, 2000 Fallen Angelic /Intruder ET United Resistance Illuminati   
- 
- 
   Edict of War and United Resistance’s intention of orchestrating Earth Templar takeover  
- 
- 
   and pole shift by 2008, Guardian nations issued an Imminent Crisis Order in October  
- 
- 
   2000, setting in motion the Emerald Covenant Masters Planetary Stewardship Initiative.  
- 
- 
   As per this Crisis Intervention Program, Sirius B Star Gate-6 and the D-12 Halls of  
- 
- 
   Amorea Passage were activated seven years early in May 2001. Advanced Planetary Tem- 
- 
- 
   plar RRTs are now being conducted, in effort to achieve Planetary D-12 Maharic Seal 
- 
- 
   Protection of Earth’s Templar and populations before Aug12, 2003. Early activation of D- 
- 
- 
   6 Sirius B Star Gate-6 and continued United Resistance Templar Quest sonic pulse activ- 
- 
- 
   ity has greatly accelerated the rate of frequency infusion into Earth’s Planetary Shields,  
- 
- 
   causing time acceleration and expedition of the natural SAC cycle. The accelerated  
- 
- 
   schedule of Amenti Opening and Ascension Cycle events is as follows. 
  Abbreviations Key: 
 • APIN= Atlantian Pylon Implant Network global “microchip” grid.
@@ -5372,30 +3839,15 @@ Tagging, Astral Over-shadowing and eventual full body possession.)
 • RIT= Remote Interactive Team
 • RRT= “Rainbow Roundtable” Masters Planetary Templar Merkaba Mechanics.
 • SAC= Stellar Activations Cycle.  
-                                                                                            
 • UIR= United Intruder Resistance. 
-                            
                                                       EVENTS LEADING TO GA CRISIS INTERVENTION 
                                                               AND EXPEDITED AMENTI OPENING
 1.	 1992 Nov: Anunnaki reluctantly enter Pleiadian-Sirian Agreements, give up OWO     
-  
  agenda fearing Drakonian OWO defeat, enter Emerald Covenant, promise to assist                     
  Founders Christos Realignment Mission; Founders postpone Christos Realignment                
  fulfillment date from 2012 to end of continuum cycle 4230 to give Anunnaki races                                   
  time for more Bio-Regenesis.  
- 
- 
- 
- 
- 
- 
- 
- 
-                        
-                           538        
-                     
 
-               
                         Events Leading to GA Crisis Intervention and Expedited Amenti Opening
      2.   2000 Jan 1: Florida Shields Clinics, Transcendence Day successful, Stellar Bridge
  Grounds on a 12-Code-Pulse for first time since 208,216 BC failed SAC. 1998-2000 
@@ -5444,98 +3896,42 @@ Tagging, Astral Over-shadowing and eventual full body possession.)
      550,000 Types-1, 2 and 3 presently on planet) could be freed and evacuated from Earth
      by UIR Galactic Federation, leaving all of Humanity and remaining Indigos to UIR
        takeover and 2008 pole shift demise. If Emerald Covenant Founders refused UIR 
- 
-     
-     
- 
           Ultimatum, UIR would issue immediate Edict of War against Founders and Emerald Cov- 
- 
-                                 
             enant/Human nations. Emerald Covenant nations collectively refuse UIR 
     blackmail Ultimatum intimidation; UIR issue ''fight to the death'' Official Edict of 
     War. 
          8.     2000 Sept-2001April: GA issues War Crisis Order, begin expedited revelation of 
     Atlantian Conspiracy Invasion Agenda, institute early Masters Templar Planetary 
     Stewardship Initiative RRT plan, and return full “Christos Realignment Mission”   
-      
-      539
- 
 
                    Crisis Intervention Expedited Amenti opening Schedule                                        
                               schedule to original Dec 21, 2012, deadline. Begin Indigo Emergency Intervention/  
-   
- 
                                    Expedited Amenti Opening schedule to prevent pending UIR pole shift/genocide  
- 
- 
-        
- 
- 
             agenda.                        
                                                               EXPEDITED AMENTI OPENING
                                                    CRISIS INTERVENTION PROGRAM BEGINS
  9.   2001 May: RRT Kauai, Hawaii, GA Crisis Intervention. SG-6 Sirius B activated 
- 
- 
 (originally due 2008) and Halls of Amorea D-12 Passage opened beginning Planetary  
- 
- 
 Maharic Seal/D-12 Christos Merkaba initiative to prevent pending 2008 pole shift,  
-    
- 
 2003 UIR First Contact invasion agenda and initiate full 2012 Christos Realignment   
- 
- 
 Mission. Planetary and DNA Star Crystal Seals, and unnatural Jehovian-Anunnaki   
- 
- 
 Fire-Letter-Reversal Implants, the 7 Planetary and DNA Jehovian Seals begin auto-  
- 
- 
 matic expedited activation in response expedited frequency acceleration in Earth’s  
- 
- 
- 
 Planetary Shields. RRTs stabilize and progressively realign Seal-released frequencies  
- 
- 
 to natural 12-Code-Pulse, to prevent progressive Earth Changes and biological deteri-  
- 
 oration from Jehovian Seals. NCT-Base  Kauai Hawaii realigned to 12-Code-Pulse.   
- 
-     
 PSC-Seals  #1 and #2, and J-Seals  #1 “White Horseman” and #2 “Red Horseman” 
- 
- 
- 
 release. Mass DNA Seals #1 and #2 and J-DNA Seals #1 and #2 Initiate; Seals begin  
- 
-    
 Consummation/Activation in Aug 2001. 
  10.  July 2001: RRT Ireland Cue Site-11. Guardians draw D-12 frequency from Halls of    
 Amorea passage Kauai to realign Cue-Site-11 Eye Island Ireland in preparation for 
 11:11 (Axiatonal Line-11/Ley Line-11) 12-Code realignment to sever. Remote acti-
 vation of “Arc of the Covenant” Gold Box  “Rod and Staff” SG tools buried in Irish   
- 
- 
 Sea to trigger 12-Code activation of SG-11. July 24-27, GA code SG-11site at “Milk   
- 
- 
 Hill White Horse”, Vale of Pewsey England with NDC-Grid 12-Code release pro- 
- 
- 
-  
 gram, the first fully-GA-created “Crop Circle” (mathematical Planetary Shields 
- 
- 
- 
 encryption) called the “Aveyon Spiral”.  RRT England GA/Indigos draw 12-Code fre- 
- 
- 
 quency from Ireland Cue Site-11 to realign 11:11 grid line to 12-Code. NDC-Grid/  
- 
- 
-       
 Nibiru/Wormwood Battle Star link at Stonehenge, the ''Checkerboard Matrix"
   Nibiruian remote scalar transmission point, successfully severed and realigned to nat-
   ural 12-Code at SG-11. NCT-Bases England, Iran and Pakistan realigned to 12-
@@ -5543,649 +3939,195 @@ Nibiru/Wormwood Battle Star link at Stonehenge, the ''Checkerboard Matrix"
   #3 and J-DNA Seal #3 Initiate; Seals begin Consummation/Activation October 2001. 
 11.   2001 Aug: UIR expedites OWO agenda and early Frequency Fence transmissions. 
 Eieyani Reserve Intervention Program initiated; 720,000 Eieyani Ascended Masters  
- 
- 
 Indigo-Type-1’s prepare to consummate Walk-In Soul Agreements (most adult) to 
- 
- 
- 
 join the 550,000 adult Indigo Children already on Earth.  The 720,000 Eieyani 
- 
- 
- 
 Reserve Walk-In Crisis Intervention Team will enter Earth in “waves” as 60 Teams of  
- 
- 
 12,000; they will fulfill their pre-birth Walk-In contingency contracts by Dec 2002  
-   
- 
- 
 end, one  Team of 12,000 entering each week between Sept 1, 2001-December 31, 2002. 
- 
-  
 The   150,000 Palaidorian Birthing Contract Indigo Children infants due to incarnate  
- 
-      
 by 2017, and all of the “6 Silent Avatars”, will be on planet by 2007. PSC Seal # 1 and 
- 
- 
 #2, Mass DNA Seals #1 and #2 and J-Seals/J-DNA Seals  #1 and #2 begin Consumma- 
- 
- 
 tion/Activation. Indigo/Human Mass DNA 12-Code Awakening begins. Aug 12  
- 
- 
 (originally due 2012 May 5), UIR expedites OWO agenda to prevent Mass DNA   
- 
- 
 12-Code from reaching critical mass in Earth’s grids; would naturally prevent UIR  
- 
- 
- 
 intended 2003 Dimensional Blend Experiment by amplifying 12-Code in Planetary 
- 
- 
-  
 Templar. UIR sends two “ULF Slow Pulse” sonic transmissions from Chihuahua, 
- 
- 
-       
 Mexico and Lake Titicaca Peru NCT-Bases to fully activate Montauk-Phi-Ex  
- 
- 
- 
 APIN and connect Anunnaki APINs to Falcon Wormhole.
 12.  2001 Sept 1: First Team of Indigo Eieyani Reserve Walk-Ins enter Earth via Halls of    
        Amorea and SG-6 Sirius B.
                         13.  2001 Sept 3: RRT Sarasota FL. GA initiates Trion/Meajhé Field “Planetary Buffer   
- 
- 
                                Blanket” with Bi-Veca and Tri-Veca Master Code transmissions, despite United Resis- 
- 
- 
                                 tance Psycho-tronic attack on Indigos via Chihuahua/Titicaca ULF Slow Pulse. GA
-                            
-                             540
-                             
 
                                  Expedited Amenti Opening Crisis Intervention Program Begins
       completes Giza/ Pleiadian-Alcyone Spiral alignment (originally due 2001 Sept 17).  
- 
- 
- 
      Blue Wave Infusion of D5/D6 frequency activates in Earth’s Core (originally due 
- 
- 
- 
      2002 June), will reach critical mass to Activate in grids mid Nov-early Dec 2001.   
- 
- 
-   
      NCT-Bases Sarasota, FL, and Bermuda partially realigned to 12-Code; UIR Psycho- 
- 
- 
- 
      tronic pulses disrupt full 12-Code realignment, will be completed Nov 2001. PSC-  
- 
-                                    
      Seal #4 releases, Mass DNA Seal #4 Initiates; Seals begin Consummation/ Activation 
- 
- 
- 
      Dec 2001.            
-         
                          14.  2001 Sept 11: UIR staged WTC/Pentagon Disaster Trigger Event begins UIR/Ill- 
- 
- 
- 
- 
                    uminati WW3 agenda. UIR “Trumpet” Phantom Pulse amplified by Chihuahua/Titi- 
- 
- 
- 
                               caca ULF Slow Pulse sent from Bermuda NCT-Base to WTC/Pentagon APIN “Spike” 
- 
- 
- 
- 
                    sites; Anunnaki Dove/Phoenix/Serpent APINs phase-1  “on line” with Zeta/ Drako- 
- 
-  
                     nian Falcon Wormhole. UIR/Illuminati Terrorist Event used to cloak potential Trum- 
- 
- 
- 
                    pet Pulse damage to APIN “Spike” site buildings. UIR expedited Frequency Fence 
- 
- 
- 
- 
        and Psycho-tronic Pulse Program begins in Earth’s grids on Sept 12, 2001, commem- 
- 
- 
- 
                    orating the first anniversary of the Sept 12, 2000 UIR declared War Edict. Expedited   
- 
- 
                    UIR Frequency Fence, now progressively accelerating, is slowing 12-Code Mass DNA   
- 
                    Template activation. If UIR 2003 Dimensional Blend Experiment did not have 
- 
- 
- 
- 
                    chance to succeed, UIR would give up their Halls of Amenti dominion Master Plan  
- 
- 
- 
- 
        and settle for Earth dominion/Human extinction until next potential SAC. In this   
- 
- 
- 
                    case, UIR would stage direct, physical, Mothersship Invasion as early as end of
                     2001. To prevent early physical UIR invasion, GA will carefully modulate Planetary 
- 
- 
- 
- 
        Shields frequencies, creating progressive planetary protection while allowing the 
- 
- 
- 
- 
        potentiality for UIR Dimensional Blend Experiment success until the GA/UIR  
- 
- 
- 
- 
        Show Down of Aug 2003.  
-      
                       15.  2001 October: RRT Allentown, PA, temporarily blocks/postpones UIR attempt   
- 
- 
- 
                                 to remote-activate Philadelphia APIN Spike site. UIR amplifies Frequency Fence and 
- 
- 
- 
                                 Psycho-tronic Indigo Assault program. GA initiates Level-1 “4 Faces of Man” LPIN  
- 
- 
- 
                                 activation with Khu-Veca Code transmission, begins Jehovian Seal Override Pro- 
- 
- 
- 
                                 gram and amplifies Trion/Meajhé Field “Planetary Buffer Blanket”.
-        
                         16.   2001 October end: GA initiate Level-2 ''4 Faces of Man'' LPIN activation via   
- 
- 
- 
                                 Dha-Veca Code transmission. PSC Seal # 3, Mass DNA Seal #3 and J-Seal/J-DNA  
- 
- 
- 
                                 Seal #3 begin Consummation/Activation.
-       
                      17.   2001 Nov : Blue Wave Infusions begin Planetary Shields D5/D6 accelerations. RRT
                                  Sarasota FL, GA initiates Level-3 ''4 Faces of  Man'' LPIN Blue Wave activation, 
                                  and amplify Planetary Trion/Meajhé Field protection with Rha-Veca Code transmission. 
                                  NCT-Bases Sarasota, FL, and Bermuda realignment completed. 
                      18.   2001 Dec: Pleiadian-Alcyone Spiral aligns with Earth, Pleiadian Activation begins,  
- 
- 
- 
                               Vortex/Star Gate-5 Macchu Picchu begins 12-Code opening cycle (originally due  
- 
- 
- 
- 
                     2004 June). Dec 1, GA engage NYC Trion Field Link Indigo Protection/Outreach  
- 
- 
- 
                               Program. RRTs Macchu Picchu, Peru, GA anchor Trion/Meajhé Field to Vortex/SG- 
- 
- 
- 
                               5 and initiates Level-4 “4 Faces of Man” LPIN activation. NCT-Bases Machu Pic- 
- 
- 
- 
                               chu Peru, and Portugal realigned to 12-Code. PSC Seal # 4 and Mass DNA Seal #4  
- 
- 
- 
                               begin Consummation/Activation. PSC- Seals #5, #6 and #7, Mass DNA Seals #5, #6  
- 
- 
- 
                               and #7 Initiate; begin Consummation/Activation April 2002. 
                        19.   2002 Jan: Blue Wave Infusion completes and Violet Wave Infusion of D6/D7 fre- 
- 
- 
- 
- 
                     quency activates in Earth Core (originally due 2006 June), critical mass and release  
- 
- 
- 
                              through Earth grids early April 2002. RRTs Lake Titicaca Peru, GA anchor Trion/ 
- 
- 
- 
                              meajhé Field to Vortex/SG-7, initiate Level-5 “4 Faces of Man” LPIN activation  
- 
- 
- 
                              and intercept/12-Code override UIR’s intended Trumpet Pulse transmission to pre- 
- 
- 
- 
                              vent Falcon-Phoenix Wormhole merger. PSC Seals #8 and #9, J-Seals #4 “Pale Horse- 
- 
- 
- 
                              man” and #5 release; Mass DNA Seals #8 and #9, J-DNA Seals #4 and #5 Initiate;  
- 
- 
- 
                              begin Consummation/Activation mid April 2002. NCT-Bases Lake Titicaca-Peru,  
- 
- 
- 
                              Giza-Egypt, South Pole and Mauritania, West Africa realigned to 12-Code. UIR 
- 
- 
- 
                              will attempt Trumpet Pulse Falcon-Phoenix Wormhole merger, to activate/ intercon- 
- 
- 
- 
                              nect all Intruder APINs. If GA Trumpet Pulse interception is successful in Peru, GA 
- 
- 
- 
                              will continue with Plan A Templar Protection Mission. If GA unsuccessful, and
-                        541
-                                                                                                                                                                       
-                                                                                                                                                           
 
-                       
                         Crisis Intervention Expedited Amenti Opening Schedule
    Wormholes merge, cataclysmic East Coast USA storms by Feb-July 2002 and pole 
- 
-                   
    shift by 2008 cannot be prevented; GA will then initiate Plan B Evacuations sched- 
- 
- 
- 
    ule. If GA prevents Jan 2002 UIR Wormhole merger, UIR will accelerate WW3 sce- 
- 
- 
- 
    nario in external political arena to prepare for expedited 2003 end Physical Invasion   
- 
- 
    ''First Contact'' drama. Cue Site-10 Iraq territories presently rebel Omicron-Drako-  
- 
- 
    nian controlled, is one of various targets for UIR Illuminati acquisition. If GA shifts to   
- 
- 
    Evac agenda, UIR will continue their Illuminati OWO Master Plan, slow WW3  
- 
- 
- 
        advancement toward later 2005 “First Contact” agenda. 
- 
- 
- 
- 
- 
- 
- 
- 
 20.  2002 April: Violet Wave Infusions begin Planetary Shields D6/D7 accelerations.  
- 
- 
- 
        RRT Sarasota, FL, GA initiates Level-6 “4 Faces of Man” LPIN Violet Wave acti-  
- 
- 
        vation and amplify Planetary Trion/Meajhé Field protection. PSC Seals # 5,  #6 and  
- 
- 
- 
        #7 and Mass DNA Seals #5, #6 and #7 Consummation/Activation early April. PSC  
- 
- 
- 
        Seals #8 and #9, Mass DNA Seals #8 and #9, J-Seals #4 “Pale Horseman” and #5, J- 
- 
- 
- 
        DNA Seals #4 and #5 Consummation/Activation mid April. 
- 
- 
- 
- 
- 
- 
- 
- 
       21.  2002 May-June: Sirian Spiral aligns with Earth, Sirian Activation begins, Vortex/ 
- 
- 
- 
             Star Gate-6 Russia begins opening cycle (originally due 2008 June). RRTs Paxos,   
- 
- 
            Greece, GA initiate Level-7 ''4 Faces of Ma'' LPIN activation, linking Earth’s ''4  
- 
- 
- 
             Faces of Man'' LPIN to its 2 companion ''4 Faces'' LPINs on Parallel Earth and Inner 
- 
- 
- 
            Earth to activate ''Guardians of the 12 Pillars'' Trion Field in Earth’s Core. Begins 
- 
- 
- 
             merger of Earth’s Planetary Shields to those of Inner Earth Bridge Zone and Trans-  
- 
- 
             Harmonic Meajhé Time Cycle.  NCT-Bases Paxos-Greece, Central Mexico, Cyprus,  
- 
- 
            Easter Island, Rome-Italy, Johannesburg-South Africa and Brazil realigned to 12-  
- 
- 
             Code. GA realign and begin 12-Code Cue Sites activation¹. Inner Earth to Earth 
- 
- 
- 
             portals begin 12-Code-Pulse opening cycle; will fully open by Dec 2003. Trans-Har- 
- 
- 
- 
             monic Time Cycle Meajhé Zone sites (interface points to neighboring Trans-Har- 
- 
- 
- 
             monic Meajhé Time Matrix) begin opening cycle; fully open Jan 2003.   
- 
- 
- 
- 
- 
           22.  2002 July: RRTs Bermuda and Sarasota, FL, GA begins forming permanent CAP 
- 
- 
- 
                  on Falcon and Phoenix Wormholes and begin 12-Code-Pulse realignment of all  
- 
- 
- 
                  Intruder APIN systems to prevent UIR 2003 Physical Invasion drama. GA initiates 
- 
- 
- 
                  Level-8 ''4 Faces of Man'' LPIN activation and 12-Code-Pulse sonic transmissions  
- 
- 
                  to amplify Trion/Meajhé Field “Buffer Blanket” around Earth’s magnetosphere. Pro- 
- 
- 
- 
- 
           gressive Sub-space sonic scalar ''Phantom Pulse'' assaults from UIR expected dur- 
- 
- 
- 
- 
           ing and after this period in attempt to prevent Wormhole Capping; may cause   
- 
- 
- 
                  excessive storm activity in Atlantic Ocean and Gulf of Mexico at various periods if   
- 
- 
                  GA cannot successfully intercept and neutralize UIR attack pulses.  Brief GA ''fly 
- 
- 
- 
                  bys'' will be conducted whenever possible to warn of local Earth Changes, but suffi- 
- 
- 
- 
                  cient “ﬂy-bys” may be prevented as UIR will stage rapid physical invasion if GA  
- 
- 
- 
                 overtly reveals their presence to the masses.
        23.  2002 Aug-Sept: Violet Wave Infusion completes and Gold Wave Infusion of D7/D8  
- 
- 
           frequency activates in Earth’s Core (originally due 2010 June), will reach critical 
- 
- 
- 
           mass and release through grids December 2002. RRTs Tibet and Sarasota, FL, GA initiate  
- 
- 
           Level-9 “4 Faces of Man” LPIN activation, continue Wormhole Capping, Intruder   
- 
- 
           APIN system 12-Code realignment and strengthening Trion/Meajhe Field to stabilize   
- 
- 
           Seal release, realign J-Seal transmissions to 12-Code-Pulse and begin jamming UIR  
- 
- 
- 
           Frequency Fence. NCT-Bases Lhasa-Tibet, Xian-China and Hamandan-Iran  
- 
- 
- 
           realigned to 12-Code-Pulse. UIR intends to increase Frequency Fence transmission to   
- 
- 
           begin reversed Pineal Seal activation keyed to Phantom Arcturus on Jehovian “Cho- 
- 
- 
- 
           sen Ones” genetic harvest. PSC Seals #10, #11 and # 12 and J- Seals #6 “great earth-  
- 
- 
           quake” and #7 “Golden Censer/7Angels/7 Trumpets” release; Mass DNA Seals  
- 
- 
- 
           #10, #11 and #12 and J- DNA Seals #6 and #7 Initiate; begin Consummation/Activa-
-                              ___________________________________________________
-                           
-                                            
                                  1.     Earth’s 12 Cue Sites are Earth SG Activation sites/ Inner Earth SG sites that hold Halls of                                             
                                              Amenti Crystal Pylon Temple control systems
-                             542
- 
-                     
 
                                                 Expedited Amenti Opening Crisis Intervention Program Begins
 tion Dec 2002. J-Seal #6 transmissions may cause cycles of earthquake activity in   
- 
- 
 regions around Peru/Chile border during and after this time, and may trigger intensive  
- 
- 
 storms and volcanic activity in various areas. 
- 
- 
- 
- 
- 
- 
- 
- 
- 
                24.  2002 Nov -Dec: Earth’s Vortex/Star Gate-7 begins 12-Code-Pulse opening cycle  
- 
- 
- 
 (originally due 2012 Jan). Gold Wave Infusions begin Planetary Shields D7/D8 
- 
- 
- 
 accelerations; will continue until 2012. RRTs France and Sarasota FL, GA initiate 
- 
- 
 Level-10 “4 Faces of Man” LPIN activation, realign UIR ''Golden Censer Pulse''  
- 
- 
 to 12-Code-Pulse, SG12 France begins 12-Code opening cycle to initiate activation of  
- 
- 
 D-12 Planetary Maharic Shield to prevent further UIR invasion and use of  “Trum- 
- 
- 
 pet” technologies. NCT-Bases Iraq and Bosnia, the last of 24 NCT-Bases, realigned to  
- 
- 
 12-Code. Galactic SC Seal  #13 releases; Mass Indigo DNA Seal #13 Initiates; begin  
- 
- 
 Consummation/Activation March 2003. PSC Seals # 10, #11 and #12, Mass DNA   
- 
- 
 Seals #10, #11 and #12, J-Seals and J-DNA Seals # 6 and #7 Consummation/Activa- 
- 
- 
 tion begins. UIR intends to release reversed-current D-8 (gold light spectra) Photo- 
- 
- 
 sonic bursts from Phantom Trapezium Orion into Earth’s core via D-4 Beam Ship/sat- 
- 
- 
 ellite/HAARP link, in attempt to destroy Planetary SG-12 France; the “Golden   
- 
- 
 Censer” Revelation prophecy. If UIR is successful, several earthquakes will be trig- 
- 
- 
 gered in various regions within 4-7 months. GA will shift to Plan B Evacuations and  
- 
- 
 UIR will prepare for Jan 2003 ''Trumpet-1" (of 7) remote sonic pulse blast to acceler- 
- 
- 
 ate Nibiruian Battlestar Wormwood passage into Asteroid Belt for UIR-intended  
- 
- 
                      2004 forced descent to Earth. If UIR unsuccessful in destroying SG-12, UIR will   
- 
- 
 increase sonic pulse and Psycho-tronic attacks, strengthen Frequency Fence transmis- 
- 
- 
 sions, further advance WW3 drama, continue Templar Quest and instigate progressive 
- 
- 
 financial “crash” and  “Martial Law” drama in ''last-ditch attempt'' to achieve domin- 
- 
- 
 ion of Earth’s Templar by Aug 12, 2003. GA Photo-sonic transmissions will reduce  
- 
- 
 Wormwood to small pieces; Wormwood fragments will enter Asteroid Belt on erratic 
- 
- 
 orbits in 2011, causing manageable meteor showers and gravitational ﬂuctuations  
- 
- 
 while Earth is protected in Trion/Meajhé Field Buffer Blanket. 
 25.  2003 Jan: Trans-Harmonic Time Cycle Meajhé Zone sites fully open, GA begins  
- 
- 
            greater subtle communication with trusted Indigo and human groups. As Plan A Tem- 
- 
- 
           plar Protection progresses, GA continues strengthening Trion/Meajhe Field, Earth’s 
- 
- 
           Bridge Zone link and Planetary Maharic Seal. GA educational programs shift to pre- 
- 
- 
           paring Indigo teachers/MC Regent Consulate Team for early three-day Particle Con- 
- 
- 
           version Period under Trion/Meajhé Field ''Buffer Blanket'' protection. Indigo Crisis  
- 
- 
           Intervention Teams offer education on Trion/Meajhé Field ''Safe Zones,'' DNA Tem- 
- 
- 
           plate rapid activation/ Kathara Healing and intensive RRT Planetary Protection Pro- 
- 
- 
           grams to those who will listen, as UIR advances escalation of Frequency Fence, WW3 
- 
- 
           drama and population reduction via ''Un-natural Disasters'' sonic pulses, bio-terrorism 
- 
- 
           and regional warfare. Rebel Omicron-Drakonian groups expected to pit their Illumi- 
- 
- 
           nati races against those of UIR as external political warfare escalates in areas not suf- 
- 
- 
           ficiently protected by Trion/Meajhe Field Safe Zones. 
                     26.  2003 March: Galactic SC Seal  #13 and Mass Indigo DNA Seal #13 Consummation/  
- 
- 
                              Activation.
                     27.  2003 April: RRTs in various areas, GA initiates Level-11 ''4 Faces of Man'' LPIN  
- 
- 
-            
                              activation, begins ''Great White  Lion''APIN  (“Guardian of the Axiatonal Line Ver-  
- 
- 
                              ticals”) activation on 12-Code-Pulse, Trion/Meajhé Field efforts to balance grids to  
- 
- 
- 
                 lessen storm, quake and volcanic potentials, and GA World Peace Efforts. 
                      28.  2003 May-July: UIR ''UFO activity'' increases UIR prepares for expedited Nov-Dec 
- 
- 
                             2003 ''First Contact'' Invasion drama; UIR intends to increase use of sonic pulses for  
- 
- 
                             Frequency Fence amplification, Psycho-tronic attack on select groups and ''Un-nat-  
- 
- 
                             ural Disaster'' population reduction. Increased potential for Nuclear War issues  
- 
- 
                             involving India, as UIR attempts to block GA from releasing Universal SC Seal-14  
- 
- 
- 
                 site in India during Aug 2003 GA/UIR “Show Down”. UIR accelerates physical con- 
- 
- 
- 
                 tact with their “Human Greeting Teams” and begins placing more small groups of 
-                     543
-                                                                            
-                                                                                                                                                       
 
-                   
                   Crisis Intervention Expedited Amenti Opening Schedule
 their "ET infiltrates" physically on Earth to move invasion agenda along. GA contin-
 ues Great White Lion APIN activation and initiates final preparations for August 8-20, 
@@ -6243,128 +4185,47 @@ over Earth’s Templar during the remainder of the SAC.
   begins (originally due 2012 May 5) and Earth’s Temporary Level-3 Planetary Mah-
   aric Seal begins amplification toward GA intended 2006 acceleration. Earth begins
   entry into Holographic Beam/Photon Belt, particle base begins polarity reversal and 
-544
-                 
 
-                                                         
                                                   Expedited Amenti Opening Crisis Intervention Program Begins
 Hall of Records begins transmitting through Earth’s grids Dec 21-22, 2003 (originally 
- 
- 
- 
 due 2012 Dec 21). GA initiate 12-Code-Pulse realignment/ activation of "Golden   
- 
- 
- 
 Eagle" APIN (“Guardian of the Ley Line Horizontals”), connecting it to fully act-  
- 
- 
- 
 ivated “Great White Lion” APIN ("Guardian of the Axiatonal Line Verticals") and
 "4 Faces of Man"(“Guardian of the Four Corners”)/"Guardians of the 12 Pillars"
  LPIN systems. 12-Code Activation of the Golden Eagle APIN will permanently dis-
 abling Necromiton-Andromies’ “White Eagle” APIN Templar Control/Broadcast- 
- 
- 
- 
- 
 ing Grid. GA will attempt to slow organic progressive acceleration of Earth core 
 oscillation speed to prevent Earth from entering the Three-Day Particle Conversion 
 Period in 2003, which will create some degree of cataclysmic Earth Changes if  it
  occurs before the Trion/Meajhé Field  “Buffer Blanket” is sufficiently strengthened. 
 The Trion/Meajhé Field will be progressively amplified and the Level-3 Temporary  
- 
- 
- 
 Planetary Maharic Seal will be amplified to a Level-6 Temporary Planetary Maharic 
 Seal between Dec 2003-June 2006. UIR in this Time Matrix, with limited resources  
- 
- 
- 
 and Phantom Matrix “back up” due to Level-3 Wormhole Cap, will continue efforts 
 to disengage GA LPIN/APINs and to erode Temporary Level-3 Maharic Seal. If all 
 goes well, the Three-Day Particle Conversion Period can be held off until June, poss-
 ibly Dec 2006, giving time for intensive GA RRT efforts to strengthen the Trion/ 
- 
- 
- 
- 
 Meajhe Field Buffer Blanket. 
         A greater quantity of Earth’s Planetary Shields, geographical territories and  
- 
- 
- 
 populations will progress into Trion/Meajhé Field Buffer Blanket protection if the 
- 
- 
- 
 Three-Day Particle Conversion Period can be postponed for as long as possible. 
 Emerald Covenant Founders and GA can slow Earth’s accelerated frequency acc-
 retion progression to hold off the Three-Day Particle Conversion Period only until  
- 
- 
- 
 2006. This can be achieved only if humanity is willing to assist in Emerald Cove- 
- 
- 
- 
 nant RRTs through which the integrity of the Temporary Level-3/Level-6 Plane- 
- 
- 
- 
 tary Maharic Seal and Buffer Blanket can be maintained.  With success of the GA  
- 
- 
- 
 2003 Temporary Level-3 Planetary Maharic Seal, UIR in this Time Matrix, unable to 
- 
- 
- 
 secure ample Phantom Matrix reinforcements due to the Wormhole Cap, will likely   
- 
- 
- 
 continue their Templar Conquest efforts via manipulation of Illuminati forces. Tem- 
- 
- 
- 
 porary Level-3 Planetary Maharic Seal will continue to prevent the UIR 2003 “First  
- 
- 
- 
 Contact” invasion drama. UIR will likely revert to their original 2005 First Contact  
- 
- 
- 
 invasion schedule, or motivate their Illuminati forces to create a hoax “Fake Land- 
- 
- 
- 
 ing”, if they deem such an event useful to their continuing invasion strategy. After  
- 
- 
- 
 2003, UIR efforts will focus upon eroding Earth’s Temporary Level-3/Level-6 Plane- 
- 
- 
- 
 tary Maharic Seal and un-Capping the Wormholes to initiate their “First Contact”   
- 
- 
- 
 drama by 2005, for orchestrated pole shift and final invasion between 2008-2011. 
- 
- 
- 
- 
 UIR is also expected to intensify their efforts of waging a vicious “ideological war”  
- 
- 
- 
 against Emerald Covenant nations via further manipulation of Illuminati and of peo- 
- 
- 
- 
 ples within the UFO and New Age Movements and traditional religious dogmas. 
         If UIR compromises the Temporary Level-3/ Level-6 Planetary Maharic Seal 
 any time between 2003-2006, GA will be forced to allow Earth’s core time rhythm
@@ -6383,738 +4244,236 @@ Meajhé Zone Time Cycle. The neighboring Time Matrix of the Trans-harmonic
 Meajhé Zone Time Cycle will serve as a frequency buffer and “electromagnetic 
 anchoring field” through which Safe Zone areas of the planet can be “hosted” into the 
 Inner Earth Bridge Zone Time Continuum by 2012.     
-545                                              
- 
 
-                       
                   Crisis Intervention Expedited Amenti Opening Schedule
           This is not the most desired scenario, but rather the final "Emergency Contin-
  gency Plan" that will be employed if events in this SAC proceed in a manner any 
  worse than they already have. If unfolding events dictate the necessity of invoking
  the Emergency Contingency Plan, GA will mobilize their earthly Indigo Children 
  Planetary Security Teams to offer regional Meajhé Zone Evacuation options, to get as  
- 
- 
  many people as possible into Quatra Phase Merkaba/Meajhé "Safe Zones." If the 
 Three-Day Particle Conversion Period is triggered into activation before 2006, the  
- 
- 
 Temporary Cap on the Falcon-Phoenix Wormholes will be partially compromised;  
 areas with insufficient Trion/Meajhé Field Buffer Blanket protection will be left to  
- 
- 
 progressive UIR infiltration and transfer into the Phantom Matrix Sub-Time Distor-
 tion Cycle. If a sufficient number of GA RRTs are conducted to maintain Trion/
 Meajhé Field Buffer Blanket integrity, UIR forces will be unable to un-Cap the 
 Wormholes, bring in “Mother Ships” for the “First Contact” drama or compromise the 
- 
- 
 Temporary Level-3/Level-6 Planetary Maharic Seal in Merkaba “Safe Zone” areas. 
  32.   2003 Dec-2006 June: GA continues to strengthen Trion/Meajhe Field Buffer Blan-  
- 
- 
         ket. Between Dec 2003-June 2006, Earth enters Level-6 Temporary Planetary Maha- 
- 
- 
         ric Seal (dimensions 1-2-3-4-5-6 of Earth Sealed to D-12 sub-frequency bands)  
- 
- 
- 
      sustained by 12-Code activation of Inner Earth Crystal Pylon Temples/Earth Cue 
- 
- 
      Sites #1, #2, #3, #4, #5 and #6. Earth’s SGs and Ley Lines #1, #2, #3, #4, #5 and  
- 
- 
         #6 will be protected under D-12 Maharic Seal. Temporary Level-6 Planetary Maharic 
- 
- 
      Seal will progressively move Earth and Tara into temporary hyper-dimensional sus- 
- 
- 
         pension of D-6 Planetary Hallah Phase Merkaba Vehicle, creating a temporary  
- 
- 
         Level-6 D-12 Cap on the Falcon-Phoenix Wormhole. In June 2006, GA will acceler- 
- 
- 
      ate Level-6 Temporary Planetary Maharic Seal/D-6 Planetary Hallah Phase Merkaba 
- 
- 
      to Level-9 Temporary Planetary Maharic Seal/D-9 Planetary Quatra Phase Merkaba. 
- 
- 
      Regions of Earth capable of progressing into 2006 Quatra Phase Merkaba will be 
- 
- 
      fully protected from the physics realities of the 2006 Three-Day Particle Conver- 
- 
- 
      sion Period. If Three-Day Particle Conversion Period occurs before 2006, or if regions  
- 
- 
      cannot hold a Level-9 Temporary Planetary Maharic Seal by 2006, only areas with   
- 
- 
         critical mass Trion/Meajhé Field Buffer Blanket will retain Hallah Phase Merkaba/  
- 
- 
         Level-6 Maharic Seal sufficient to accelerate to Level-9 Temporary Planetary Maharic  
- 
- 
      Seal/ D-9 Planetary Quatra Phase Merkaba. Areas holding D-9 Planetary Quatra  
- 
- 
- 
         Phase Merkaba will fully enter Trion/ Meajhé Field Buffer Blanket protection for   
- 
- 
         Three-Day Particle Conversion Period.
  33.  2006 June: Expedited Three-Day Particle Conversion Period and the 4.25 Trion  
- 
- 
      Buffer Bubble. Sometime between June and Dec 2006, Earth will encounter the  
- 
- 
- 
         Three-Day Particle Conversion Period (See page 223); fulfillment of the "Night of 
- 
- 
         the Two Moons" prophecy. Earth will come into full alignment with the Holographic 
- 
- 
      Beam/Photon Belt (originally due 2017, May 5-June 30), while protected within   
- 
- 
         the Trion/Meajhé Field Buffer Blanket. If the Three-Day Particle Conversion Period 
- 
- 
         is successfully postponed until 2006, GA will continue strengthening the Trion/ 
- 
- 
- 
         Meajhé Field Buffer Blanket in attempt to pull all of Earth into D-9 Planetary Qua- 
- 
- 
      tra Phase/Merkaba Vehicle hyper-dimensional suspension. In June 2006, Earth enters  
- 
- 
       Level-9 Temporary Planetary Maharic Seal (dimensions 1-9 of Earth Sealed to D-12  
- 
- 
      sub-frequency bands) sustained by 12-Code activation of Inner Earth Crystal Pylon  
- 
- 
         Temples/Earth Cue Sites #1 through #9. Earth’s SGs and Ley Lines #1 through #9  
- 
- 
      will be protected under D-12 Maharic Seal, creating a temporary Level-9 D-12 Cap 
- 
- 
      on the Falcon-Phoenix Wormhole.  The Trion/Meajhé Field Buffer Blanket will  
- 
- 
- 
      absorb and collect the frequencies that will release through the final three Stellar   
- 
- 
         Activations/Stellar Wave Infusions, holding these frequencies in suspension until   
- 
- 
         2012, when they will be released into Earth’s Planetary Shields in completion of the 
- 
- 
         Arcturian, Orion and Andromeda Activations. As the Three-Day Particle Conver- 
- 
- 
- 
         sion Period approaches, the GA will create a temporary 4.25-dimensional magnetic 
- 
- 
         field within the Trion/Meajhe Field Buffer Blanket. The natural Planetary Shields of  
- 
- 
         Earth’s counterpart planet in the neighboring Trans-harmonic Meajhé Time Matrix 
-546
-                    
 
-                                       
                            Expedited Amenti Opening Crisis Intervention Program Begins
 (not the planetary counterparts in THIS or the Inner Earth Time Matrix) will be used   
- 
- 
- 
 to accrete and sustain this 4.25-dimensional magnetic field in the Trion/Meahjé Field   
- 
- 
- 
 Buffer Blanket. 
         For the Three-Day Particle Conversion Period, during which time Earth’s natu- 
- 
- 
- 
- 
  ral magnetic fields normally collapse, the portions of Earth’s Planetary Shields and  
- 
- 
- 
- 
 corresponding geographical regions in Safe Zones will be drawn into full vibrational   
- 
- 
- 
 co-resonance with the 4.25-dimensional magnetic fields sustained in the Buffer Blan-  
- 
- 
- 
  ket. This will allow regions of Earth, and populations, that are able to achieve tempo-  
- 
- 
- 
  rary Quatra Phase Merkaba, to enter the Safe Zone of the 4.25 magnetic field region  
- 
- 
- 
 of the Buffer Blanket. The 4.25 magnetic field will create a stable D-4.25 “Energy 
- 
- 
- 
- 
 Bubble” within which the 3-dimensional particle base of Earth and its inhabitants  
- 
- 
- 
- 
  will be protected from the Three-Day Particle Conversion Period frequencies that set   
- 
- 
- 
 atomic transmutation in motion. Though the Three-Day Particle Conversion Period  
- 
- 
- 
- 
 will commence in 2006, its manifest effects will be temporarily delayed until 2012 due   
- 
- 
- 
 to the “4.25 Trion Buffer Bubble”. In the original Amenti Ascension schedule, the 
- 
- 
- 
- 
 Three-Day Particle Conversion Period was due to take place in 2017, at which time  
- 
- 
- 
- 
 regions of Earth that could sustain 4.5 accretion level would fully transfer into the  
- 
- 
- 
- 
  Inner Earth Bridge Zone Time Continuum. Areas and populations that could not sus-  
- 
- 
- 
  tain 4.5 accretion (all of 4th DNA Strand and one-half of 5th Strand activation)  
- 
- 
- 
- 
 would separate and be drawn into the Phantom Earth/Phantom Matrix Sub-time Dis-  
- 
- 
- 
 tortion Cycle. Elements of the “manifest hologram” that “fell to Phantom Earth”  
- 
- 
- 
- 
 would literally appear to have “disappeared” from the face of the Earth, to the per-  
- 
- 
- 
 ceptions of populations successfully achieving the Bridge Zone Time Cycle Shift. Pres- 
- 
- 
- 
  ently, though posing more inherent risk of failure, the Emergency Crisis  
- 
- 
- 
- 
- 
  Intervention program of the Trion/Meajhé Field Buffer Blanket provides for greater  
- 
- 
- 
 opportunities of population protection not originally possible within the dynamics of  
- 
- 
- 
 physics of the Bridge Zone Project. 
          The “4.25 Trion Buffer Bubble” and the Trion/Meajhé Field Buffer Blanket sur-  
- 
- 
- 
 rounding it, will allow Earth to pass through the Three-Day Particle Conversion  
- 
- 
- 
- 
 Period, through which progressive bi-polarization and separation of the global particle   
- 
- 
- 
 field and populations into the Bridge Zone and Phantom Matrix Time Continua will  
- 
- 
- 
  occur.  By the end of 2006 this separation of Time Lines within Earth’s Planetary  
- 
- 
- 
- 
 Shields will be permanent. However, the Trion/Meajhé Field Buffer Blanket will oper-  
- 
- 
- 
 ate as a "carrier wave field" that will temporarily hold the bi-polarized particle base of   
- 
- 
- 
 Earth’s Planetary Shields, time lines and populations together, in a state of slow-mov-  
- 
- 
- 
 ing particle suspension during and for a time after, the Three-Day Particle Conver-  
- 
- 
- 
 sion Period. This process of SAC physics is distinctly different from the complete,  
- 
- 
- 
- 
  rapid separation of particle base, time lines and populations that would have  
- 
- 
- 
- 
 occurred during the later 2017 Three-Day Particle Conversion Period. All of Earth’s   
- 
- 
- 
 particle base and populations can be protected from falling into Phantom Matrix  
- 
- 
- 
- 
 merger, if full Planetary Quatra Phase Merkaba can be achieved in 2006.  Popula-  
- 
- 
- 
 tions would no longer separate into the Phantom Earth and Bridge Zone Time Con- 
- 
- 
- 
- 
 tinua as originally anticipated; all would "make it to the Bridge Zone" continuum   
- 
- 
- 
 out of harms way. This ideal scenario is not likely to occur due to the continuing  
- 
- 
- 
- 
 counter-activities of the UIR; GA will none-the-less strive to achieve this ideal. If   
- 
- 
- 
 full Planetary Quatra Phase Merkaba can be achieved in 2006, the UIR invasion plans  
- 
- 
- 
 would be brought to a screeching halt as they would have insufficient time, before  
- 
- 
- 
- 
  2011, to compromise a 12-Code seal on nine dimensional levels of Earth-Tara-Gaia   
- 
- 
- 
 and their corresponding Time Continua.
        Unfortunately, the GA have insufficient time before 2006, to strengthen the 
- 
- 
- 
-  
 Planetary Trion/Meajhé Field Buffer Blanket on a global level and to completely clear  
- 
- 
- 
 distortions in Earth’s grids to the degree required, to initiate full D-9 Planetary Quatra  
- 
- 
- 
 Phase Merkaba in 2006. Forcing a D-9 Quatra Merkaba on the entire planet in 2006,  
- 
- 
- 
 before Planetary Shields distortions were fully aligned with the D-12 Planetary Divine  
- 
- 
- 
 Blueprint, would cause pole shift and cataclysm for all.  GA will attempt to prepare   
- 
- 
- 
 the entire planet for 2006 D-9 Quatra Merkaba Conversion, but full success in 
- 
- 
- 
- 
 this objective is not likely to occur. Areas of Earth that do not have sufficient critical
-547 
- 
-                                                                                                                                       
 
                    Crisis Intervention Expedited Amenti Opening Schedule
 mass of Trion/Meajhe Field frequency will be unable to hold a Level-9 Temporary  
- 
- 
 Planetary Maharic Seal/ D-9 Quatra Merkaba. Such areas will endure progressive   
- 
- 
 escalation of UIR/Illuminati OWO advancement, storms, famine, loss of life, quake  
- 
- 
 and volcanic activity and political warring, and progressive deterioration of the Level- 
- 
- 
 6 Temporary Planetary Maharic Seal. 
        “Safe Zone” areas under sufficient Trion/Meajhé Field Buffer Blanket and Tem- 
- 
- 
 porary Level-9 Temporary Planetary Maharic Seal protection will remain more stable,  
- 
- 
 environmentally, politically and economically. Conditions in unsafe zones will pro- 
- 
- 
 gressively deteriorate as the UIR attempts to un-Cap the Falcon-Phoenix Wormholes,  
- 
- 
 while advancing their invasion agenda in unprotected regions toward the 2011 Final 
- 
- 
 Conﬂict. The 2006 Three-Day Particle Conversion Period will be the determining 
- 
- 
 factor in what portions of Earth’s geography will undergo final cataclysmic shift  
- 
- 
 into the Phantom Matrix in 2012. Regions co-resonant with the Phantom Matrix   
- 
- 
 time line will undergo some degree of geophysical changes, such as severe quaking or  
- 
- 
 submergence beneath the waters, between 2006-2017. But the populations in these  
- 
- 
 regions will still have some time left to develop biological co-resonance with Safe   
- 
- 
 Zones, after Particle Conversion occurs. The 4.25 Trion Buffer Bubble will create sta- 
- 
- 
 ble areas of land mass and culture that are held secure within D-9 Quatra Phase Merk- 
- 
- 
 aba Field protection, and which will sustain a constant D-4.25 magnetic field. The D- 
- 
- 
 4.25 magnetic field will allow any life forms with 4.25 DNA Strand Template activa- 
- 
- 
 tion²  to move into Safe Zone territories for final 2012 transition into the Inner Earth 
- 
- 
 Bridge Zone Time Continuum.  Originally a 4.5 DNA Strand Template activation   
- 
- 
 level was needed for passage into the Bridge Zone continuum. 
         Now, populations with a lower 4.25-DNA Strand Template activation will   
- 
- 
 have greater opportunity to “make it to the Bridge Zone” in 2012. The general Trion/ 
- 
- 
 Meajhe Field Buffer Blanket in Earth’s magnetosphere will provide non-Safe Zone   
- 
- 
 regions with some degree of protection during the 3-Day Particle Conversion 
- 
- 
- 
 period, preventing full planetary magnetic field collapse. These areas will be less stable  
- 
- 
 and more prone to anomalous geological, climatic, atmospheric and electromagnetic  
- 
- 
 phenomena than Safe Zone areas under the 4.25 Trion Buffer Bubble protection. Fol- 
- 
- 
 lowing the 2006 Three-Day Particle Conversion Period, and until 2012, regions and  
- 
- 
 populations co-resonant with the Phantom Matrix time line will have greater protec- 
- 
- 
 tion from succumbing to immediate Phantom Matrix descent. These regions of Earth  
- 
- 
 will experience a "slow fall" to the Phantom Matrix, with less severe Earth Changes,  
- 
- 
 spread out over a longer period of time, than would have occurred with the “fast fall”  
- 
- 
 2017 Particle Conversion Period. The ''slow fall" allows for the potential of retrieving  
- 
- 
 greater population numbers from Phantom Matrix demise. The 4.25 Trion Buffer Bub- 
- 
- 
 ble plan was not originally considered viable, as it required that Earth’s grid speed be  
- 
- 
 rapidly accelerated by 2006 to a minimum of D-9 oscillation/ Planetary Quatra Phase  
- 
- 
 Merkaba/ Level-9 Temporary Planetary Maharic Seal. This rapid grid speed accelera- 
- 
- 
 tion increases the potentialities of greater Earth Changes and possibilities of pole  
- 
- 
 shift before 2012 arrives, which is a risk to all populations that Emerald Covenant   
- 
- 
 nations were not originally willing to take.    
       As circumstances have evolved, the Anunnaki races defecting from the 2000   
- 
- 
 Treaty of Altair and 1992 Pleiadian-Sirian Agreements have made the decision for  
- 
- 
 everyone. Due to their support of the UIR OWO dominion campaign, pole shift  
- 
- 
- 
 and destruction of the Human race by 2008 would be a certainty, if the Trion/Meajhé  
- 
- 
 Field Buffer Blanket and 4.25 Trion Buffer Bubble option was not immediately called  
- 
- 
 into play. The Trion/Meajhé Field Buffer Blanket/4.25 Buffer Bubble plan will create a  
- 
- 
 condition of progressively extreme bi-polarity among global Human nations and Illu- 
- 
- 
 minati collectives. “Very Safe” GA Safe Zone areas will be interspersed among “very  
- 
- 
 unsafe” UIR dominated areas. Extreme differences in polarity between DNA Tem-  
- 
- 
 plate activation levels, and thus maturity and stability of consciousness and fortitude  
- 
- 
 of biological constitution among world populations, along with resultant confronta-
-                          _____________________________
                             2.  All of Strand-4 and one-quarter of Strand-5
-                            548       
- 
 
-                                
                                    Expedited Amenti Opening Crisis Intervention Program Begins
                             tions and conﬂict between these polarity extremes, will progressively escalate while  
- 
- 
                         Earth is sustained within the Trion/Meajhé Field Buffer Blanket between 2006-2012.   
- 
- 
                         It will seem as if the world has “divided itself into “good vs. evil”, with little space  
- 
- 
                         between the two opposing consciousness factions; sadly, each “side” of the polarity  
- 
- 
                         drama will perceive themselves as the “victims” and “good guys”, viewing the “other  
- 
- 
                         side” as the “evil, victimizing enemy”. During these coming difficult times, GA will  
- 
- 
                         promote the necessity of Healing through recognition of our Common Divine Source. 
- 
- 
                         They will also teach of the Law of One Christos realities of the D-12 Pre-matter  
- 
- 
- 
                         Divine Blueprint, through which all polarities and separations can be mended, and by  
- 
- 
                         which beings of every species, race and creed can tangibly integrate the One-Spirit   
- 
- 
                         through which all life is created and sustained. People are free to choose whatever per- 
- 
- 
                         spectives they desire; our choices and beliefs will create the experiential reality we will  
- 
- 
-              
    perceive within this mass drama. 
-____________________________________________________________________________
 If we choose to believe the drama is not real, it will simply engulf and consume  
- 
- 
 us; if we acknowledge the challenges presented and believe only in their effec-  
- 
- 
      tive, loving resolution, we will know the mastery of co-creative victory. 
-____________________________________________________________________
- 
     34.  2006-2012: Meajhé and Trion Zones- Polarized Earth in Trion/Meajhé Field Sus- 
- 
- 
  pension to 2012. Following the 2006 Three-Day Particle Conversion Period, por- 
- 
- 
- 
  tions of Earth and its populations co-resonant to the Inner Earth Bridge Zone Time   
- 
- 
  Continuum will remain in the stable areas of the 4.25 Trion Buffer Bubble Safe Zone,  
- 
- 
  which is referred to as the Meajhé Field, until 2012. Until 2012, the Meajhé Field   
- 
- 
  will be sustained by Level-9 Temporary Planetary Maharic Seal/D-9 Quatra Phase  
- 
- 
  Merkaba Vehicle, when final transition into the Bridge Zone time continuum will   
- 
- 
  take place.  Meajhé Field Safe Zones, or “Meajhé Zones” will provide a natural fre- 
- 
- 
  quency buffer to the Three-Day Particle Conversion Period frequency infusions and   
- 
- 
  will be the most environmentally and culturally stable areas of the globe during the   
- 
- 
  remainder of the SAC. Meajhé Zones will also provide environmental support to the  
- 
- 
  progressive 12-Code DNA Template activation of Human and Indigo populations.   
- 
- 
  Portions of Earth and its populations co-resonant to the Phantom Matrix Sub-time   
- 
- 
  Distortion Cycle will remain temporarily protected within the less stable Trion Field  
- 
- 
  of the Trion/Meajhé Field Buffer Blanket, the portion of the Buffer Blanket that sur- 
- 
- 
  rounds the more stable 4.25 Trion Buffer Bubble Meajhé Zone. 
           The Planetary Trion Field will provide temporary protection from the 2006  
- 
- 
- 
        Three-Day Particle Conversion Period, and will to some degree buffer the transmuta- 
- 
- 
- 
    tive frequencies characteristic to this event; it will protect these areas from Phantom  
- 
- 
        Matrix descent until 2012. Ideally, the Planetary Trion Field will be sustained by  
- 
- 
- 
        Level-6 Temporary Planetary Maharic Seal/D-6 Hallah Phase Merkaba Vehicle  
- 
- 
        until 2012, when final transition into the Phantom Matrix time continuum will take   
- 
- 
        place via apparent regional Earth Changes.  Areas of Earth under Trion Field Hallah  
- 
- 
        Phase Merkaba protect are called “Trion Zones”. Earth’s SGs and portals in Trion   
- 
- 
        Zones, protected by the Trion Field Hallah Phase Merkaba, will have only a 6-dimen- 
- 
- 
        sional protective seal. Despite GA efforts to retain this protection, UIR forces may   
- 
- 
        compromise this Level-6 Temporary Planetary Maharic Seal to partially un-Cap the   
- 
- 
        Wormholes as early as 2005, which will intensify Earth Changes potentials in these   
- 
- 
        regions in 2005 and during the 2006 Three-Day Particle Conversion Period. Follow-  
- 
- 
        ing Earth’s 2006 passage through the Three-Day Particle Conversion Period, areas   
- 
- 
         under Quatra Phase Merkaba/Meajhé Zone protection cannot be intrinsically com-  
- 
- 
        promised by UIR activities. Meajhe Zones may suffer a small degree of temporary   
- 
- 
        instability if UIR infiltration of Trion Zones is extensive, but Meajhé Zones will re-  
- 
- 
        stabilize to complete the Bridge Zone time continuum shift in 2012.
            If UIR is successful in eroding the Level-6 Temporary Planetary Maharic Seal in  
- 
- 
     Trion Field areas, they will move forth with their intended Illuminati OWO agenda,  
- 
- 
     Frequency Fence and "First Contact" drama. In this case, populations within Meajhé  
- 
- 
     Zones will be most protected from the effects of OWO progression. Beginning in 
- 
- 
- 
     2002-2003, GA will provide the Indigo Planetary Security Team with information for
-         
-         549                                                                                                                    
-                                                                                                                                                                                                                
- 
 
          Crisis Intervention Expedited Amenti Opening Schedule
 public release, and eventually Safe Zone Progression Maps, pertaining to the geo-
@@ -7123,8 +4482,6 @@ Merkaba Vehicles surrounding "Meajhé Safe Zones" will operate like ''invisible 
 ronmental force-fields." Populations can come and go through these areas unabated. 
 With a bit of a practice, individuals with DNA Strand Template-4 12-Code activation 
 or higher will be able to sense the electro-static boundaries of Meajhé Zones. Those 
- 
- 
 with lesser strand level, or less than 12-Code3), DNA Template activation will be 
 unable to detect Meajhé Zone perimeters. Under most conditions, conventional sci-
 entific instruments are not sensitive enough to multi-spectrum electromagnetic sub-
@@ -7138,14 +4495,9 @@ have a faster particle pulsation rhythm, which will make these areas seem "almos
 invisible" to Illuminati and UIR attentions. People with 12-Code activating DNA4 
 will be instinctually drawn to Meajhé Zone areas via vibrational co-resonance of the
 biological/mental/emotional/spiritual bodies. Individuals carrying excessive DNA  
- 
- 
 Template and consciousness distortions, such as Illuminati and Fallen Angelic races, 
 or people carrying Fallen Angelic astral Tagging or possession, will experience varying 
 degrees of biological disharmony and mental/emotional fatigue or agitation in 
- 
- 
- 
 response to Meajhé Zone frequencies.5
        Meajhé Zone and Trion Zone regions and the populations within them will 
 exist “side by side”, each experiencing a different set of events and frequencies,
@@ -7172,22 +4524,14 @@ Between 2008-2012 Planet Nibiru, presently in Phantom Matrix Sirius A orbit on
 the "other end" of Wormwood’s reverse, "tilted" elliptical orbit plane, will undergo
 pole shift and realignment of its natural orbit, returning to its organic position beyond
 Pluto’s orbit in our galactic system. Return of Nibiru to its natural orbit will take place 
-                          _____________________________________________
 3.   12th of 12 sub-frequency bands in each Strand Template activated.
 4.   Christos Divine Blueprint activation, with the full spectrum of 12 sub-frequency bands in 
       each DNA Strand Template activating.
 5    Resetting and progressive activation of the natural personal D-12 Divine Blueprint in the                                                        
       DNA Template, via consistently applied Bio-Regenesis technologies and Temporary Per- 
- 
- 
- 
       sonal Maharic Seal can allow anyone opportunity to partake of the benefits of Meajhé
       Zone areas and the Bridge Zone time continuum shift.
-550 
- 
-                 
 
-     
                                  Expedited Amenti Opening Crisis Intervention Program Begins
   after Earth’s successful passage into, and stabilization within, the Bridge Zone time 
    cycle. On Earth, the UIR is likely to succeed in at least partially fulfilling its 2005 
@@ -7205,14 +4549,12 @@ Pluto’s orbit in our galactic system. Return of Nibiru to its natural orbit wi
   hold the core of Earth’s Planetary Shields stable throughout the SAC until 2011, 
   when the only remaining “window of opportunity” to create planetary pole shift            
          arises.   
-    
     Whether the UIR has succeeded or not in progressing to on-planet physical pre-
 sence, they will launch their last invasion attempt in 2011. This will be their last chance
 to prevent the Emerald Covenant nations from permanently severing the links between 
 our living Time Matrix and the Phantom Matrix via fulfillment of the Emerald Cove-
 nant Founders’ Christos Realignment Mission.  It will be the UIR’s last opportunity ever
 to gain access to the Halls of Amenti Star Gates and Inner Earth Time Cycle territories.  
- 
   If the GA is successful in 2012, the scalar-field templates of our Universal Time 
 Matrix and those of the Phantom Matrix will be permanently severed, effectively closing
 all Wormhole links to the Phantom Matrix in our 15-Dimensional Time Matrix. Our 
@@ -7233,7 +4575,6 @@ ies of this Time Matrix that have not yet been placed under full Level-12 Mahari
 the Planetary Christos Realignment Mission, which was originally scheduled for comple-
 tion during the 22,326 BC SAC, is not completed during this SAC, the Halls of Amenti 
 will progressively fall to Phantom Matrix particle fusion. 
- 
              The Phantom Matrix is an unnatural Black Hole system that continually accretes 
  energy and consciousness from the living “host” Time Matrix to which it is attached.  In         
            22,326BC, the Founders recognized that the Phantom Matrix, created during the Lyran-    
@@ -7242,139 +4583,43 @@ The Black Hole system had pulled into itself nearly as much energy mass and cons
 ness than that organically held within our natural living Time Matrix. If the Phantom 
 Matrix reaches critical mass accretion, its draw upon the living Time Matrix will progres-
                              sively accelerate and our living Time Matrix will be permanently “pulled off  the grids” of                                 
- 
                  the Density-5 Primal Light Fields and into the chaotically organized, finite Phantom 
                               Matrix. If the Christos Realignment Mission  is not successful during the current SAC, 
- 
- 
-                 
     this entire Time Matrix, not only the Earth, will be pulled into the Phantom Matrix  
                              Black Hole via the Halls of Amenti Star Gates. Many innocent inter-galactic civilizations   
-                           
-                             ________________
                             6.    Earth time translation    
-                               
-    
-                            551                                                                                                         
-                                                                                                                                                        
-                                                                                                                                        
-                                                                                                                               
 
                       Crisis Intervention Expedited Amenti Opening Schedule
 would be trapped in Phantom Time, denied their birth right of organic Ascension, Mas- 
- 
- 
- 
 tery and Eternal life. The Emerald Covenant Founders have allowed the Phantom Matrix  
- 
- 
- 
 to remain attached to our Time Matrix for over 250 billion years, in hope of lovingly re- 
- 
- 
- 
 evolving the Fallen Angelic races residing there within. The Founders and the Fallen 
- 
- 
- 
 Angelics knew in 22,326BC that the “time was up” for giving the Fallen Angelic races 
- 
- 
- 
 further evolutionary opportunity; the "host" Time Matrix was due to collapse due to the  
- 
- 
- 
 continuing competitive choices of exploitation repeatedly made by the Fallen Angelic 
- 
- 
- 
 races. No one is treating the Fallen Angelic races unfairly; since 22,326 BC they have 
- 
- 
- 
 been faced with the product of their own unloving, exploitative choices.           
- 
- 
- 
        Since the issue of severing the ties between the Living and Phantom Matrices came  
- 
- 
-  
  to a head in 22,326 BC, the Fallen Angelics have planned to achieve forced dominion of  
- 
- 
- 
 this Time Matrix, with intention of drawing it into Phantom Matrix as an energetic “food  
- 
- 
- 
 supply”. They continue to make this unfortunate choice, rather than accepting the  
- 
- 
- 
 Founders continually loving invitation into peaceful Emerald Covenant Co-evolution  
- 
- 
- 
 Freedom Treaties. Through cooperation with the Founders races, the Fallen Angelic races  
- 
- 
- 
 could progressively heal to re-enter At-One-ment with the Cosmic design, through  
- 
- 
-  
 which the Phantom Matrix could be healed.  If the Anunnaki had been true to the 1992 
- 
- 
- 
 Pleiadian-Sirian Agreements, the time of Fallen Angelic accountability would have  
- 
- 
- 
 been postponed until the 4230 time continuum end. Due to the Anunnaki, Drakonian  
- 
- 
- 
 and Necromiton-Andromie races continual and contemporary choices of War over peace, 
- 
- 
- 
 hatred over love and dominion over freedom, they have brought their own “Day of Judg- 
- 
- 
- 
 ement” down upon themselves. The Emerald Covenant nations wish the Fallen Angelics’  
- 
- 
- 
 no harm, and are not judging them as “unworthy”, but neither can they further permit the 
- 
- 
- 
 self-serving Fallen Angelic nations to bring death, sorrow, pain and destruction to the  
- 
- 
- 
 peace-loving races of this Time Matrix. The Planetary Christos Realignment Mission will 
- 
- 
- 
 be fulfilled in 2012, as part of the Universal Christos Realignment Mission now taking  
- 
- 
-  
 place in this Time Matrix. It is the time for the Fallen Angelics themselves to judge 
- 
- 
- 
 “which side of  the fence” they will end up on as the Christos Realignment Mission is fulfilled. 
                  2011 MEAJHÉ FIELD WEAKNESS, UIR JEHOVIAN SEALS  
                                                            AND TRUMPET PULSE 
- 
- 
-        
      In 2011 the UIR will attempt to take advantage of a temporary weakness in the 
 Planetary Meajhé Zone Field. This Meajhé Zone weakness will naturally occur as Earth’s 
 Planetary Shields transition from D-9 Quatra Phase Merkaba into D-12 Mahunta Phase
@@ -7397,21 +4642,10 @@ through the temporary Cap on the Wormholes before the Cap becomes permanent in
                  reverse-rotation characteristic to Phantom Matrix. The Trion/Meajhé Field Buffer Blan-
                  ket would prevent Meajhé areas of Earth from being pulled into Phantom Matrix, but 
                  would not sustain grid speed acceleration sufficient to make the Bridge Zone link. Cata-      
-        
                  clysmic Earth changes would begin followed by pole shift by 2012. If this diabolical UIR 
                  strategy   were    to     succeed,  little  of      Earth’s     populations would   survive. GA    Maharajhi      fleets  
                   from Sirius B would descend through the Halls of Amorea passage in attempt to launch
-                  
-               
-                  552 
- 
- 
- 
-                           
-                         
-                       
 
-                                       
                              UIR, “Wingmakers”, the Labyrinth Weapon and 2011
 evacuations and to protect the 12 Primary Cue Site entrances to the Inner Earth Halls of 
 Amenti control temples. Intensive “Star Wars” would break out in Earth’s skies and
@@ -7427,9 +4661,7 @@ ness in Earth’s Meajhé Zones is anticipated to begin between April-July 2011,
 last for a 3 to 4 month period, into August or latest Nov of  2011. UIR has their  final con-
 quest invasion strategy underway, but so too do Emerald Covenant nations have their
 counter-strategy in place. 
-                  
                                         UIR, “WINGMAKERS” THE LABYRINTH WEAPON AND 2011
-                   
                                          A collective of renegade Necromiton-Andromie/Jehovian Anunnaki hybrid
  Nephilim races, now members of the UIR, have been initiating progressive covert con-
 tact with a group of Humans known as the Labyrinth Group”. The Labyrinth Group is a 
@@ -7467,15 +4699,7 @@ tom Earth Atlantis. When the 2011 "window of opportunity" opens, the UIR intends
 use the contemporary "BeaST" to direct the amplified photo-sonic charge simultaneously 
 into the Seven Jehovian Seal sites of Earth’s Planetary Shields, in the contemporary time,
 past Atlantian and future Phantom Earth periods. 
- 
-  
-       
-         ____________________________ 
           7.   9th dimension sealed to the 12th sub-frequency band. 
-          553 
-                                                                                                                            
-                                                                                                                     
-                                                                                                                             
 
          Crisis Intervention Expedited Amenti Opening Schedule 
        Release of the “BeaST Pulse” is intended to accomplish several invasion objec-
@@ -7529,14 +4753,10 @@ in 2011 and that the Corteum “BST weapon” is the only way to prevent this in
  peaceful methods. The Corteum and UIR are very interested in the Ancient Arrow site, as 
  hidden within this area is the very tool by which Emerald Covenant nations can prevent
  the 2011 UIR/Corteum Invasion.  
-          
-            _________________________________  
   8.     scalar-wave sequences. 
   9.     AKA the UIR’s rebel Omicron-Drakonian adversaries. 
   10.   The labyrinth Group refer to these races, whose identity is actually unknown to them, as 
           the “Wingmakers” or “Central Race”. 
-  554 
-          
 
 UIR, “Wingmakers,” the Labyrinth Weapon and 2011
 An ancient device called a “Signet Shield” is buried in the area of the Wingmakers 
@@ -7555,12 +4775,10 @@ Halls of Amoera Passage, in conjunction with three other Signet Shields/SGs/Cue 
 Masters Planetary Templar Mechanics, will be used in 2011 to protect Earth and the Bridge 
 Zone Project from UIR invasion during the Meajhe Zone weak period. GA anticipates a 
 successful passage through the potential UIR invasion of 2011.
-________________________________________________________________________
 _
 If we make it this far in Plan A and "fix the problem," the forces of peace , love
 and genuine Christos enlightenment are likely to achieve final 2012 victory on
 Earth and in this Time Matrix.
-________________________________________________________________________
     The Wingmakers “Music discs,” CD translations of which are presently promoted 
 via mainstream distribution networks, were not originally part of the GA/Emerald Cov- 
 enant Founders “time capsule.” These musical subliminal-command encryption pro- 
@@ -7594,20 +4812,7 @@ will carry a set of three subtle UHF “inner sound tones” that are “frequen
 Wingmaker images were designed to frequency-trigger progressive activation of Human 
 and Indigo DNA Strand Templates 4-5-6, to accelerate Pineal Gland and DNA Tem- 
 plate 12-Code activation.
-_____________________________ 
- 
- 
- 
- 
- 
- 
 11.CDT-Plates are all under GA protection as of 1999. 
- 
- 
- 
- 
- 
-555
 
   Crisis Intervention Expedited Amenti Opening Schedule
     36.  2012 Dec: Meajhe-Trion Separation, Christos Realignment and Emerald Covenant
@@ -7653,16 +4858,9 @@ potentialities of peace held within the 1992 Pleiadian-Sirian Agreements.
          Seal. Throughout our recorded history this date was known by various ancient cul-
          tures as the time of the “Great Cleansing” or “The End of Time”, as illustrated for us 
            today in the ancient Mayan Calendar. 
-           ________________________________________________________________________      
-         
-           
                         On Dec 21, 2012, the GA will finally be able to fulfill their originally
                                     intended mission of setting Earth, and this Time Matrix, 
                                                         free from Fallen Angelic terrorism. 
-          _________________________________________________________________
-    
-  
-     
      On this date, the Emerald Covenant Founders races will release the Universal SC 
 Seals on Universal SG-12 in our Time Matrix, the Inner Earth Time Matrix and the 
 Trans-Harmonic Meajhé Time Matrix, fully linking the three Time Matrixes, the "Divine 
@@ -7673,17 +4871,12 @@ Liquid Light Infusion and D-10 Lyra-Vega Activation, the D11/D12 Pale Silver Mah
 arata “Christos” Liquid Light Infusion and D-11 Lyra-Aveyon Activation, and the long-
 awaited D-12/Primal Light Field “Rainbow Ray” Infusion and D-12 Lyra- Aramatena 
 Activation. D-12 Lyra-Aramatena, home of Universal SG-12 in our Time Matrix, is the
-556 
-                                                                  
 
-                                 
-                                     
                                         UIR, “Wingmakers”, the Labyrinth Weapon and 2011
           Density-4, D-12 Pre-matter Hydroplasmic Liquid Light "Christos Divine Blueprint" of 
            the Earth-Tara-Gaia System. The "Shield of Aramatena," as this scalar template is called,
           is also the D-12 Pre-matter Universal Divine Blueprint, or “Universal Christos”, for all
          intergalactic systems in the 12 dimensions of Densities-1 through 4 in our Time Matrix. 
-    
                      Earth    will enter  the "Christed" state of   D-12 Mahunta Merkaba on Dec 21, 2012;
           the Halls of Amenti   Star Gates and 12 Star Gates of Earth’s Templar will remain per-
          petually open after this point, and Emerald Covenant races will begin preparation for a 
@@ -7692,16 +4885,9 @@ Activation. D-12 Lyra-Aramatena, home of Universal SG-12 in our Time Matrix, is 
             Permanent Level-12 D-12 Planetary Maharic Seal activates in the Planetary Shields of 
         Earth-Tara-Gaia, the scalar-wave templates of our Time Matrix and those of Phantom 
            Matrix will naturally and permanently separate. 
-          ________________________________________________________________       
-    
                     The Universes in our Time Matrix will begin the victory celebration they have  
                     awaited 250 billion years, since formation of the Phantom Matrix during  the  
- 
                                                        Founders Lyran-Elohim WarS. 
-  
- 
-          _______________________________________________________________ 
-         
                                      Earth races will soon afterward be prepared for a visit from the Inner Earth Eieyani, 
          Sirius B Maharaji, Azurite, Aethien and Serres Emerald Covenant races, who will
            make contact on behalf of the Founders, to invite Earth’s peoples into the Emerald Cove-
@@ -7715,38 +4901,17 @@ Activation. D-12 Lyra-Aramatena, home of Universal SG-12 in our Time Matrix, is 
           Matrix. Remaining Human and Indigo populations will progress in DNA reverse-muta-
          tion and 12-Code activation while under the protective Planetary Buffer Blanket of the
            Trion/Meajhé Field. 
-                              _________________________________________________________________                                 
                                  A new age of enlightenment will most definitely begin if we successfully make it to 
                                                              this December 21, 2012 Universal Day of Renewal.  
-                         ____________________________________________________________
-                                                                                                                                     
-                         557 
- 
- 
- 
- 
- 
- 
- 
-                                                 
 
 
-                                                                    
-                                  
                                    *This is the book as in publication. 
- 
- 
- 
- 
- 
            ARhAyas Productions has found page number discrepancies
          between the earlier and later editions.
                           We have included both.
-         558
 
 Numerics
 1,000 000 years ago (YA), from 2000 AD 6,
-                  123
 1,275,000YA 29 
 1,353 BC 330
 1,458 BC 330 
@@ -7764,7 +4929,6 @@ Numerics
 11,000 YA 61 
 11,048 YA 74 11.500YA 69
 11,540YA 75, 76, 80, 90, 134, 142, 187, 
-                  203
 11,558YA 72, 73, 74, 134 
      -10,000 YA 71
 11:11/12:12 133-136, 143, 187-190,328 
@@ -7802,7 +4966,6 @@ Numerics
 1500 AD 330
 151,000 BC 329
 152,000 BC 329 
-559
 155,000 BC 329, 356, 390 
 1550 BC 322
 15-Dimensional Physics 241
@@ -7828,13 +4991,11 @@ Numerics
 1930s 126, 246, 257, 317, 361, 378
 1939 361
 1940s 126, 134, 317 
-1941
     December 7 362
 1943 130, 139, 142, 143, 144, 172, 188, 210,
                      350, 353, 361, 378, 387, 399
      -1951  366
      August 12 359, 362 
-1945
      August 12 362, 363        
      August 9 363
 1949-1972 131
@@ -7866,7 +5027,6 @@ Numerics
          -1998 187-193 
                                          Index, Volume ll  
 
-                  
 401, 415, 417, 420, 426, 427, 465 
      One World Order dominion campaign 245 
      Stellar Activations Cycle 242, 243, 245,339
@@ -7908,7 +5068,6 @@ Numerics
                 212, 330, 340, 384 
    Frequency Fence 344 
    September 9, birth of Avatar 4 209, 212
-2005
      -2017 196, 213
    January 1, Stellar activations 213
 2006  138, 173, 214
@@ -7933,9 +5092,7 @@ Numerics
    January 1, Earth’s 7th Vortex opens 216
    May 5, birth of Avatar 6 218
    May 5, opening of the Halls of Amenti  135,
-                                                                    
            Index, Volume II
-1987
       August 16, Harmonic Convergence 187 
 1988   142, 185, 186, 192
 1989   188
@@ -7954,8 +5111,6 @@ Numerics
  1995  191
  1996  143
        June 24, birth of Avatar 2 191,193
-     
-1997 
 176,383
 October 25, Ashayana Deanes’ 
          encounter 234
@@ -7983,21 +5138,17 @@ October 25, Ashayana Deanes’
  2,668 BC 322, 330 
  20,000 BC 311,320,330
  2000  140, 142, 143, 185, 186, 318, 347, 360    
-         
       -2017 199
       August 247, 318
       January 245, 253, 318, 327, 330
       January 1 326, 346, 369
                Day of Transcendence 186
       January 1, Earth’s 4th vortex opens 201, 203      
-          
       July 247
       July 5 246, 327, 330, 385 
       July 5th 318
       May 5 Earth frequency raised 181 
       October 338
-  
- 
       September 241,247,250
                        Anunnaki Sabotage 247 
       September 12 247, 249, 250, 257, 318, 
@@ -8007,11 +5158,8 @@ October 25, Ashayana Deanes’
                  303, 305, 311,314, 318, 323, 324,
                  326, 328, 354, 355, 360, 371, 372, 
                  379,383, 388, 393, 394, 397, 398,
-560                                  
 
-                 
 Index, Volume II              
-                             
           194 , 208
  2012 YA  98, 136
  2017 65, 66, 67, 85, 96, 97, 104, 122, 125,
@@ -8078,7 +5226,6 @@ Index, Volume II
 3,470 BC 322, 330
 3,500 YA 32
 3,650 BC 312, 322, 330
-561
 3,700,000YA 29, 328
     -l,000,000 YA 44
     -2000 240, 462
@@ -8157,8 +5304,6 @@ Index, Volume II
 560,000,000 YA 1, 268
     -550,000,000YA 10
     -550,750,00YA 240, 462       
-              
-    
     -550,750,000 YA 2
 568,000,000 YA 243, 266
 570,000,000 YA 265
@@ -8214,13 +5359,6 @@ Index, Volume II
 950,000 YA 45,46
 9,540 BC 86
 9558 BC 244, 271, 312, 313, 318, 349, 355
-562 
-           
- 
- 
- 
- 
- 
  389,393, 394,396,398,403,422,
              426,
 9558 YA 74 
@@ -8285,7 +5423,6 @@ Alcyone 35, 65, 69, 71, 72, 83, 88, 98, 99,
               100, 115, 127, 128, 142, 143, 187,
               203, 206, 233, 244
      as the primary sun of our solar system 115
-                                         
 Index, Volume II
 
 Index, Volume ll  
@@ -8299,7 +5436,6 @@ Alpha-Centauri Marduke-Necromiton-
 Alpha-Omega
     Centauri 242
      Templar Melchizedek Anunnaki 256, 258,
-         260
 Alpha-Omega-Centauri 327
 Altair 266, 371
 Ameka Crusade 325, 330
@@ -8331,7 +5467,6 @@ Amorea, Hall of 28
 Andes Mountains 56, 217, 228
 Andromeda 36, 50, 51, 53, 61, 72, 74, 222,
                   223, 242, 244, 250, 317, 360, 379,
-                  471
       Association of Planets in 51
       Council 191
       Federation of Planets 97, 141
@@ -8355,7 +5490,6 @@ Angular-Rotation-of-Particle-Spin, see ARPS
 Ankhesenamon 95
 Ankhesenpaaton 95
 Ankhi 91, 93, 94
-563
     assassination of 94
 ankhs 62, 64, 72, 73, 74
 Annu, see also hybrids, human-Anunnaki
@@ -8488,7 +5622,6 @@ auric field 24
 Australia 366, 368
 authority 67
 avatar 88, 88-109
-564
                         Index, Volume ll  
 birth of #1 189, 193 
 birth of #2 191, 193 
@@ -8513,15 +5646,12 @@ Ayrians, see Root Races
 Azar-Azara 7, 233
 Azurite 264
    48-Strand DNA Template Angelic   
- 
             Hominid 262
  -Amenti Galactic-Planetary Templar  Security     
             Team 276
     Council 98, 99, 104, 122, 233 
    see Ra
    Universal Templar Security Team 256, 275,  
- 
-302
 B
 Babble-On Massacre 312.322,330 
 Babylon 312 
@@ -8556,7 +5686,6 @@ Blue Flame 13, 14, 15,17, 20, 30, 31, 33, 34,
                     194, 200, 238
      Melchizedeks 98
      Speakers of the 32, 33
-                                          
 
 Index Volume II
 Blue Oxen 371, 414
@@ -8581,7 +5710,6 @@ Breanoua 271, 272
 Breatherian 266
 Brenaui 422
 Breneau 19, 34, 48, 50, 233, 262, 265, 275,
-               303
     Rishi 7
 Bridge Zone Project 142-179 187 199 225
                   234 239, 240, 305, 339, 379, 388,
@@ -8595,7 +5723,6 @@ Bruah 311, 319, 320
 Bruah-Atlantis 317
     Annu-Melchizedeks 321
 Buddha 251
-C
 cancer 252
 Carpathian Mountains 56
 Caspian Sea 366
@@ -8618,14 +5745,11 @@ Centaurian-Necromiton Intrusion 326, 330
 Centaurians 371
 Central America 366
 Central Creative Source 12,42, 69, 80, 107
-                      451
 Ceres 3, 6
 Cerez 264
 Cerez-Seraphei-Seraphim 368
 Cetaceans 264 
 chakra 21, 458, 476
-565
- 
      base (1st) 19, 35
      Earth’s, see vortices
      heart (4th) 21, 35
@@ -8657,7 +5781,6 @@ Chile 430
 China 103, 251, 346, 377
 Choosing Your Future 450
 Chosen Ones; 97, 98, 252, 314, 317, 318, 322
-                   326
 Christ Consciousness 187, 188, 259, 304
 Christiac Freedom Agenda 371
 Christianity 31
@@ -8693,8 +5816,6 @@ United States 103
                                            Hebrews 102
               ascension of 104
 
-                                                                                                             
- 
 in India 100-101
 in Persia and Egypt 101
 sacred procreative rites of 103
@@ -8726,7 +5847,6 @@ Cloistered Races 9-19, 50, 69, 75
                        evolutionary advantage of 76
       Melchizedeks 10, 17, 29, 30-34, 47-48,
               52, 56, 57, 62, 63, 64, 82-108, 195,
-              266
                   25 families 31, 97
                   birthing wave 88
                   Essenes 31, 96-105
@@ -8761,17 +5881,7 @@ Creation Physics 351
 Crisis Intervention 255
 Crisis Intervention Program 256, 335, 346
 Cro-Magnon
-                                                                                                                  
- 
- 
- 
- 
-    
-566 
-    
-      
                    Index, Volume II
-  
     -l  390
      -2 390
      -3 390
@@ -8797,9 +5907,7 @@ Cuba 390, 431
 Cue Sites
     12 Templar 251, 269
 Cycle of the Rounds 281-284, 290, 291, 292,
-                  296
     3 key elements 303
-D
 Dagos, see hybrids
 Data
      Summaries 446-450
@@ -8835,10 +5943,6 @@ discrimination
        groundless 84, 85
 disinformation 357
 distortions 69, 83
-        
-                                  
-                                                
-           
 
 Index, Volume II
 Divine Blueprint 369, 372
@@ -8892,7 +5996,6 @@ Dragon-Moth 244, 317
 dragons 255
 Drakon 6, 44, 47, 58, 71
 Drakonian 250, 252, 317, 321, 322, 325, 327,
-                 383
     -Reptilian
                -Insectoid races 243
 Dralov 234
@@ -8906,21 +6009,7 @@ Drueidec 315, 320, 321
 Druids 320
 dualistic
    perception 79 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
 duality 25 
-567
-             
 dweller on the threshold 35
 E
 Eagle 367-385, 432
@@ -8966,7 +6055,6 @@ education 37
 ego 79-81
    origins of 81
 Egypt 36, 56, 60, 62, 71, 88, 103, 313, 320,
-                   322
      as resettlement for Atlantis survivors 63
 Egyptian 28, 46, 74, 239, 461
      Invasion 330
@@ -8987,9 +6075,6 @@ Elohei-Elohim 242, 369
 57, 59, 62, 66, 69, 75, 76, 83, 87,
 91-104, 122, 193,194
 
-                                                                            
- 
-    
          Eye of 34
 EM pulse technology 211
 Emerald Covenant 244, 245, 246, 247, 250,
@@ -9044,7 +6129,6 @@ etheric
 Ethics 351
 Ethnic Virus 374
 Euiago 146, 148, 155, 161, 199, 461, 465,
-                467
 Euphrates River 86, 89
 Euries 29
 Europe 56, 103, 359, 377
@@ -9056,7 +6140,6 @@ multidimensional 106
 program of human 96
 Evolutionary Rounds 291, 295
 Excalibur 315
-568
                             Index, Volume II 
 exercises 493-504
     Release Crystallized Thought Patterns 493
@@ -9124,7 +6207,6 @@ France 103, 325
 Free Masons 325, 370
 Freedom Teachings 424
 
-               
 Index Volume II
 frequency 342
    bands 8, 22, 41
@@ -9159,7 +6241,6 @@ Garden of Eden 42
 gates of ivory, see pearly gates
 genetic 44
      ascendancy of angelic human lineage 262-
-            263
      distortions 83
      time codes 11
 Genocide Crusades 316
@@ -9190,7 +6271,6 @@ Great Pyramid 320
 Greece 101
 Grid Spiking Campaign 330
 Grim Reaper 422
-569
 grounding codes 30
 Gru-AL 378,429
 Gru-AL Point 294, 303, 317, 325
@@ -9325,7 +6405,6 @@ Marduke-Dramin-Anunnaki-Omicron 245
 Melchizedek-Hibiru (Hebrew) 31, 55, 82,
          83, 85, 96-105
 Men in Black 245
-  570                                                                                                       
 Nephilim, see human-Atlanian-Anunnaki
 Serres-Egyptians 47, 55, 64
 Sirian-Anunnaki-Nephilim 47
@@ -9343,7 +6422,6 @@ Kings 314, 322
 Hyperborneans, see Gaia
  Hyperdimensional Cones, see HD-Cs
  hyper-space 111
-I
 IAFW 51, 60, 69, 104, 233, 256, 264
 Ice Age 22, 45
 Ihopetohetep 95
@@ -9457,7 +6535,6 @@ Kauai, Hawaii 372
 Keepers
 of Records for Earth 26
 of the Blue Flame 91-95, 195, 217, 237
-571
 of the Flame 54, 89, 91, 92
 of the Keys 304
 of the Orange-Gold Flame 195
@@ -9489,7 +6566,6 @@ Knights Templar 317, 370
 Kundalini 306
      -Maharata Life Force Currents 351
 Kuntureaz 27
-L
 Lake Titicaca, Peru 392, 409
 Lamanians, see Second Seeding
 Lamb 367-369, 416
@@ -9540,7 +6616,6 @@ Anunnaki 313
 Centaur-Omega Centauri 317
 Conquest 311, 320, 330, 391, 417
 Covenant 245, 312, 313, 318, 320, 321,
-         325
 Hyksos Kings 323
 Knights Templar 316
 -Pleiadian 322
@@ -9556,7 +6631,6 @@ High Council 250
 -Sirian Anuhazi 318
 -Sirian Elohie-Elohim 303
 -Sirius A Anuhazi 266
-M
 Machu Picchu 212
    see also vortices
 magnetic
@@ -9590,8 +6664,6 @@ Marduke-Luciferian Anunnaki 370
 Marduke-Luciferian-Anunnaki 370
 Mars 64, 123
 Martial Law 411
-572                                                                                                          
-                      
 Mary 251
 Mary Magdalene 101
 Mary, mother of Jesus 99-100
@@ -9650,7 +6722,6 @@ reversed spin ratios 258
 tailbone mark of reversal 260
 Vehicles 418
 Merkaba Fields 126-141, 188, 259, 456, 458, 
- 
                   464, 466, 482
 Harmonic Universe 127
 Mechanics 126
@@ -9659,8 +6730,6 @@ Of Earth 127, 136, 140, 142, 144, 472
 of Tara’ s gold core crystal 165
 of Tara-Earth 136
 of the Sun 133, 136, 143, 171
-                                                       
-             
 
  Index Volume II
      three levels of 150
@@ -9729,7 +6798,6 @@ Mu’a 272, 274, 276, 278
 Muarivhi, see Lemuria
 Muarivhia, see Mu’a
 multidimensional
- 573
     physics 130 
     reality, lost memory of 53
 multidimensional space-time
@@ -9794,7 +6862,6 @@ North America 56
 Nubia 86, 102
 numbness 249
 
- 
 O
 observational outpost 60
 Odedicron 313, 317
@@ -9842,12 +6909,10 @@ Pacific Ocean 56
 Painted Desert 188
 Pakistan 378
 Palaidia 263, 269, 270, 275, 276, 278, 280,
-                    284
    Urtite-Cloister 282, 293, 295, 308, 310
 Palaidor 7
    Council of 33
    Covenant of 7, 8, 18, 33, 36, 69, 97, 107,
-           121
 Resistance Entity Wars of 18
 Seal of 22-26, 28, 33, 43, 50-52, 105,
           134, 205
@@ -9859,11 +6924,7 @@ finalization of 196
 Incubation Rite 197
 protection of couples 197
     collective
-574 
-                                                                                                                                                                 
-    
                       Index Volume II
-            
            see Cloistered Races, five 17
   see Cloistered Races
 Palestine 409
@@ -9923,7 +6984,6 @@ Rameses I  95
 Tutankhamon 90, 95-96
 Tutankhaton 95
 Tuthmosis III 321, 322                                  
-                                             
 Phi-Ex Wormhole 354-363
 Philadelphia Experiment 130-131, 133. 137,
 139,143,172. 188. 210, 350. 359
@@ -9931,7 +6991,6 @@ Philadelphia Experiment 130-131, 133. 137,
 Philadelphia, PA 359, 408, 409
 Phoenix 386-??, 388, 389, 391, 392, 393,
 
-          
 Index Volume II
               396.?? 399, 408, 417
 Spiking Matrix 398
@@ -9957,7 +7016,6 @@ Templar Complex 245
 Time Continuum 287
 Time Cycles 296
 Planetary Shields 294, 314, 343, 348, 368,
-                    427
       Clinics 335, 346
       Reversal 401
 Planetary Shields Clinics
@@ -9991,7 +7049,6 @@ Pleiadian 6, 28, 29, 34, 35, 36, 51, 55, 57, 65
              325. 326
 -Nibiruian Council 256
 -Nibiruian Luciferian Anunnaki 317, 319,
-       320
 -Nibiruian Samjase-Luciferian-
                  Anunnaki 320
 -Nibiruian-Luciferian-Anunnaki 320
@@ -9999,7 +7056,6 @@ Pleiadian 6, 28, 29, 34, 35, 36, 51, 55, 57, 65
 Samjase-Luciferian-Anunnaki 374
 Serres 266
 -Sirian Agreements 354
-575
     Star League 97.133. 141, 191. 233
 Pleiadian-Sirian Agreements 241.242 243
 246, 253, 256, 258, 318, 326, 330
@@ -10061,9 +7117,6 @@ pyramid 60. 61
 Q
 quarantine 70, 187
 Quebec, Canada 430  
- 
- 
- 
 Queen Tiy 88-89
 
 R
@@ -10122,7 +7175,6 @@ responsibility
 resurrection
      see Christs, Three
 Revelations 239, 407, 416, 421, 426, 431,
-                 461
      Decoding 414
 Rigelian Zeta 252, 253
 Rigelian-Zeta 383
@@ -10133,9 +7185,6 @@ and staff, see Blue Flame
 Holder 55
 Rod and Staff 312, 314, 320, 322
 Roman
-576 
-                                                                                                                   
- 
                    Index, Volume II
      Empire 324
      lnvasion 323, 330
@@ -10202,16 +7251,13 @@ Sedona, AZ 188, 346
 see also Interdimensional Association of Free
                 Worlds
 Seed Codes 477
-                                                             
 
 Index, Volume II
 Seed Implants 394
 Seedings 328
       First 17, 78, 244, 251
      Second 21, 25, 26, 27-31, 43-51, 55, 63,
-          271
                Atlanians 21, 22, 28-29, 45, 46,
-                               123
                Lamanians 21 , 22, 28-30, 44, 45,
                                 46, 55-56
      Third 21, 26, 28, 32, 36, 47, 51, 52, 55-
@@ -10270,7 +7316,6 @@ Sirian 2, 6, 65, 223
     -Arcturian Coalition for Interplanetary
              Defense 50, 51, 60, 71, 133, 141,
              233, 234
-577
 Council 2, 3, 4, 7, 27, 28, 34, 36, 50, 60-
             69, 71-75, 83, 88, 93, 96, 97, 122,
             133, 137, 141, 177, 187, 188, 191,
@@ -10284,7 +7329,6 @@ root races
         as Gods of humans 46
         Rebellion 58
         Resistance 142, 50-69, 71, 72
-                           176
         see also 666
         see also Akhenaton
          blues 4, 47, 57, 73
@@ -10352,7 +7396,6 @@ Staff 74, 92, 120
 standing wave pattern 14
 star
      gate 245, 272, 276-285, 288, 299, 319,
-            321
                 -10 378
                 -3 391
                 -4 391, 396
@@ -10382,7 +7425,6 @@ Solar 200
 Transmutative 471
              mechanics of 199
              six 199-200, 466, 471-472
-                                  476
 Bridge 470-473
 Spiral Alignments 475
 Spirals 127, 142, 186, 471
@@ -10398,13 +7440,10 @@ mechanics of 199
          symptoms of 469
          Violet 200, 466
 Stellar Activations Cycle 281, 286, 288, 313,  
-578
 Index, Volume II
-                   354
 Stellar Activations Cycles 413
 Stellar Wave Infusions 339, 404
 Stonehenge 247, 251, 312, 316, 319, 321,
-                    340
 stress 469
 suicide 42
 Sumer 321
@@ -10464,12 +7503,7 @@ use of torture 65
     terrorists 347
     Teura 474
     The Four Horsemen Of The Apocalypse 420 
- 
- 
     Thebes 86, 88, 89, 95                        
-  
-                        
-                                                        
 
         Index, Volume II
 Third Eye of Horus 24
@@ -10537,7 +7571,6 @@ Tribal Shield 297, 299, 302, 303
 Tribulation 252
 Trigger Events 336, 337, 377
 Trion Field 372
-579
 Trion Pillars 343
 Tri-Veca Time Continuum 372
 Trumpets 406-419
@@ -10548,7 +7581,6 @@ Turaneusiam 1, 2, 4, 7, 8, 9, 10, 12, 18, 27,
                   30, 43, 46, 83, 84, 262. 265, 268
     see also Templar Solar Initiates
     sub-races
- 
 Adami-Kudmon 2
 Addami 2
 Alania 5
@@ -10601,9 +7633,6 @@ Unholy Alliance 359
 Unified Field Physics 281
 unified fields 16, 24, 40, 112, 128, 147, 149,
 
-           
-              
-              
                       156, 454
       15-dimensional 464
       of Energy and Consciousness 459
@@ -10639,7 +7668,6 @@ Urtite-Bi-Cloister Maji 276-277
 Urtite-Tri-Cloister Maji 271, 272
 USA 251, 377, 431
     Constitution 361
-V
 Vale of Pewsey 314, 315, 324
 Veca-Code Mechanics 339
 Vector Codes 307
@@ -10669,7 +7697,6 @@ seven primary 227
             closing of 229
 Voyagers 43, 169-172
        companion 171
- 580
 Index, Volume II
 W
 Waco, TX, 413
@@ -10697,7 +7724,6 @@ see World War
 Thousand Years’ 43-49, 50, 60, 271
 World War 125, 362
 World War II 125, 326. 354, 357, 361, 381
-         432
 World War III 345. 432
           and bin Laden 377
 Washington, DC 359
@@ -10736,18 +7762,9 @@ World Trade Center Disaster, see 2001-
 World Trade Towers, see WTC
 World War III 347
 worm holes 7 
- 
- 
- 
- 
- 
-    
 wormholes 375, 393, 398, 417            
-                                                   
-                                     
 
 Index, Volume II  
-                                                                     
 A7/L3 Falcon 362
 Falcon 375, 409, 427
 Falcon partial cap 382
@@ -10772,7 +7789,6 @@ Yunasai 453
 Yunaseti 272 
       see Cloistered Races
       see Root Races, seventh
-   
 Z
 Zephelium 83, 123, 317
 Zephelium-Zeta 313, 317
@@ -10798,7 +7814,6 @@ Zeta/Illuminati
     sonic scalar pulse testing locations 366
 Zeta-Rigelian-Drakonian 366
 Zhar Confederacy 7, 233
-_____________________________________
 Ordering information
 Voyagers I, second edition, ISBN 1-893183-24-6, 272 PP
 Voyagers II, second edition (paperback) ISBN- 1-893183-25-4, 592 PP
@@ -10812,4 +7827,3 @@ Email: office@arhayas.com
 Phone: 941-924-8109
 Or visit our website
 www.arhayas.com
-                   581

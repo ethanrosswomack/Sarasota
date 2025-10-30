@@ -1,7 +1,5 @@
 # Chapter 8
 
-                                                                                             
-                                                                                                   Merkaba Fields
 their D-1 Merkaba Fields, which exist within the core of each planet and col-
 lectively manifest as your Sun. When viewed from the vibration level of the
 third dimension, which is where your consciousness and instruments are pres-
@@ -44,10 +42,7 @@ set of three dimensions represents a Harmonic Universe. Thus there are five
 Harmonic Universes within one 15-dimensional Universe. The degree of angu-
 lar rotation of particle spin shifts 90° from one dimension to the next within
 one Harmonic Universe. In each Harmonic Universe containing three dimen-
-129 
-                                                                                                                                                                                                                 
 
-     
      Countdown to Amenti 
 sions, there are two 90° shifts of the angular rotation of spin between the parti-
 cles. Between one Harmonic Universe and the next there is a 45° reverse
@@ -61,9 +56,7 @@ reality, matter, time, space, movement and individuation of form are perpetu-
 ally created and sustained. This will conclude our brief introductory lesson in
 multidimensional physics; we hope we have provided some interesting ideas for
 your more courageous scientists to explore. 
-                
  THE PHILADELPHIA EXPERIMENT AND SOLAR CRISIS 
-                                   
                                  The Philadelphia Experiment 1943 
      We will now resume our discussion of the Zetas plan to stop the merger of
 Earth and Tara’s grid and what they did to the Sun in 1943 that almost caused
@@ -92,12 +85,8 @@ offered the Allied Governments technological information that helped them
 win World War II, the Zetas had ulterior motives. In 1943 the Zetas offered
 the U.S. Navy a rudimentary technology that would allow them to make
 objects appear invisible. On August 12th, 1943 the experiment was con-
-130 
 
-                                                     
-                                                   
                                       The Philadelphia Experiment and Solar Crisis
- 
 ducted in Philadelphia, PA, using a battle ship, the U.S.S. Eldridge. The
 event became known as the Philadelphia Experiment. We will not detail the
 experiment here, as there are several published accounts of this event, but we
@@ -140,7 +129,6 @@ activity which had some of Earth’s scientific community very concerned
 about the probability of a major pole shift occurring sometime during the
 1970s or 1980s. The Merkaba Fields of the Earth, the Sun and Tara are inti-
 mately intertwined with each other and with the Pleiadian star system and
-131 
 
       Countdown to Amenti 
 others, so following 1943 the Zetas plan brought many different Guardian
@@ -186,9 +174,7 @@ Earth upon its axis, creating a pole shift of the planet. Although most of this
 information was blacked out of the media and kept from the public, some of
 these studies were published in scientific journals and news papers, especially
 after 1968, when the scientists calculated that if events continued as they
-132 
 
-                                                                         
                                                                             Solar Crisis and 11:11/12:12
     were, by 1972 there would be a huge explosion on the Sun that would cause
 pole reversal and wipe out humanity by about 1984. On August 7, 1972 the
@@ -202,16 +188,8 @@ August 10th I972, then strangely the winds began a rapid decrease in speed
 and the solar storms appeared to die down in the month that followed. This
 was a perplexing observation to Earth scientists; they had no idea that the Sirian
 Council had intervened. 
-                                
                                  SOLAR CRISIS AND 11:11/12:12 
-                                  
- 
- 
- 
- 
- 
                                              Wave-of-Flame and Red Pulse 
-        
       In January of 1972 members of the Sirian Council, Sirian-Arcturian
 Coalition for Interplanetary Defense, the Pleiadian Star League and several
 other Guardian groups entered the UHF bands of Earth’s atmosphere, aware
@@ -239,8 +217,6 @@ before the genetic code could expand enough to process those frequencies.
     In order to avert the pending termination of Earth life, the Guardian
 races, under the direction of the Sirian Council, altered several layers of the
 morphogenetic fields of Earth and the local planets. As the Red Pulse Wave
-133 
-                                                                                                                                                              
 
       Countdown to Amenti 
 of Flame would be coming in on the electrical overtone D-1 frequency bands,
@@ -286,7 +262,6 @@ rebalance the Merkaba Fields of Earth and the Sun. Balancing the Merkaba
 Fields was the most important project in the Guardian agenda. Since 9558 BC,
 when the islands of Atlantis sank and the Earth tilted on her axis, the Guard-
 ians knew they would have to assist in realigning the Merkaba Fields of Earth
-134 
 
                                                                               Solar Crisis and 11:11/12:12
 before the 2012-2017 ascension cycle. Following the events of 1943-1972,
@@ -332,8 +307,6 @@ consciousness to continue its expansion into D-4 perception and allowed the
 Earth’s infusion of D-4 energy accelerations to continue. This artificial D-4
 grid which the Guardians began constructing in 1748, has frequently been
 referred to in New Age terminology as the “artificial Christ Consciousness     
-135                                                                                                                
-                                                                                                                   
 
         Countdown to Amenti 
 Grid”. This term was chosen because the upper frequency bands of D-4 rep-
@@ -371,19 +344,13 @@ so the Guardian re-balancing efforts would remain undetected and excessive
 instability within the human populations could be avoided. Earth existed
 under these Guardian-created Holographic Inserts from 1973 to 1/11/1992, when
 the 11:11/12:12 Frequency Fence began lifting. 
-                                      
                                       THE MONTAUK PROJECT 
-          
           Zetas and Rigelians, the Montauk Project 1983 and 2976 AD
- 
     Between 1973 and 1980 Earth remained under the Guardians’ Holo-
 graphic Inserts and the illusion of electromagnetic stability they created,
 while the Guardians worked to complete realignment of the Sun’s Merkaba
 Fields. By 1982 the Zetas became tremendously frustrated as they observed
-136 
-                        
 
-                                                                            
                                                                                  The Montauk Project
 the continuing breakdown of their Collective Mind Complex in the D-4
 time cycle, and began to realize that the Guardians would correct the mis-
@@ -428,7 +395,6 @@ the human populations in D-4.
      The Dracos-Zeta Resistance set their new plan in motion in 1983, when
 they covertly motivated humans to create another experiment, similar to the 
 Philadelphia Experiment of 1943. They desired to create another rip in space-
-137 
 
 Countdown to Amenti 
 time, through which large numbers of their ships could be secretly sent from
@@ -473,9 +439,7 @@ Magnetic Peaks. Each Harmonic Universe has three dimensions, each of the
 three dimensions representing a base tone, overtone or resonant tone, within
 the 15-dimensional scale. D-1, D-4, D-7, D-10, and D-13 are base tone
 dimensions. D-2, D-5, D-8, D-11 and D-13 are overtone dimensions. D-3, D-
-138 
 
-  
                                                                                     The Montauk Project
 6, D-9, D-12 and D-15 are resonant tone dimensions. Harmonic Magnetic
 Peaks occur when base tone—base tone, overtone—overtone, or resonant
@@ -520,8 +484,6 @@ the guise of human form. Infiltrates are children conceived of natural
 human conception, whose mothers were abducted during pregnancy so Zeta-
 Dracos genetic materials could be infused into the fetus. These children are
 born (usually within the seventh month of gestation) and raised by their
-139 
-                                                                                                                                                              
 
 Countdown to Amenti 
 human parents, and appear to be fully human. They are consciously unaware
@@ -530,7 +492,6 @@ Resistance via the DNA and neurological structure. When Guardian groups
 locate such infiltrate individuals, they orchestrate abductions, and dismantle
 the Zeta-Dracos gene codes, thereby freeing these mostly human subjects
 from their covert controllers. 
-                            
                          2976 AD and the Dracos-Zeta Resistance 
     The Guardians became aware of the Dracos-Zeta Resistance problem in
 1984, and were able to trace probable events in the future that would result
@@ -566,9 +527,7 @@ nections to the Sphere of Amenti race morphogenetic field and their personal
 soul matrices are severed. 
     If this future event occurred in present-Earth's line of development, not
 only would the Earth and the major part of the human race be lost, but the evo-
-140 
 
-                                                                                
                                                                                      The Montauk Project
 lution of Tara in HU-2 would be set back by eons, as Tara would remain
 trapped in her HU-2 time cycles until Earth’s imprint could be reconstructed
@@ -598,25 +557,11 @@ Guardians believe humanity can indeed pull together and make the Bridge
 Zone project a success. For this reason we of the Guardian Alliance bring to
 you this hidden knowledge, so that you may be prepared to make a stand on
 behalf of your own evolution and freedom. 
-141 
 
-                                                                                                            
-                                    8 
-                   
-                         
-                                                                                      
-                        
-                       
- 
-                     
                          Current Events 
-                      
                                              THE BRIDGE ZONE PROJECT 
-                           
                                         The Bridge Zone Time Continuum Shift 
                     12/1984 - present
- 
-        
     Before the Dracos-Zeta legions had altered the EM fields of the Sun in
 1943 the Guardians’ preparation plans were relatively simple. Using their
 artificial “Christ Consciousness” D-4 grid from 1748, they progressively sent
@@ -643,9 +588,7 @@ gressively  open  as   the    dimensional  Merkaba  Fields   and   Stellar  Spir
 and blending into each other, while the Guardians assisted the Earth grid to remain
 balanced through these transitions. The Guardians planned to offer dispensa-
 tions of teachings to humans while the veils between the ego, higher self and
-142 
 
-                                                                              
                                                                                The Bridge Zone Project
 soul identity began to lift, as the DNA progressively assembled. The Guard-
 ians’ primary concern at this time was to realign Earth’s Merkaba Fields and
@@ -690,11 +633,7 @@ and if the circumstances were not handled properly, the human populations
 would be decimated by severe Earth changes between 2012-2017. The
 option of stopping the Sphere of Amenti from descending through the Arc of
 the Covenant, and thus allowing Earth and humanity to remain trapped
-143 
-                                                                                                                     
-                                                                                                                 
 
-  
    Current Events 
 within HU-1 time cycles for another 26,556 years, was no longer open. The
 Earth changes of 2012-2017 could be primarily avoided in this case, but
@@ -739,10 +678,7 @@ frequency  raised sufficiently, the Dracos-Zetas would lose control of  their  F
 quency Fence and their human captives in the D-4 cycle. For humanity to shift
 into the Bridge Zone with Earth, the populations would have to fully assemble
 their DNA to the 4.5 -strand level, and a minimum of  8% would have to assemble
-144 
 
-                                                                                   
-                                                                              
                                                                   The Bridge Zone Mechanics
 the ﬁfth DNA strand. Along with this, 144,000 individuals would need to fully
 assemble the sixth strand, embody their entire soul matrix and begin to assemble the
@@ -768,9 +704,7 @@ time continuum. If the Guardians were going to force an early Doreadeshi, by
 moving both the overtone/electrical fields and the base tone/magnetic fields
 of Earth into the Bridge Zone time continuum cycle during the 2017 half-
 cycle point, the move would have to be permanent. 
- 
                                     BRIDGE ZONE MECHANICS
- 
     The idea of shifting a planetary body from one time continuum to
 another may seem quite outrageous to a civilization that does not yet have a
 working comprehension of multidimensional physics. We assure you that
@@ -785,23 +719,9 @@ trouble that has far-reaching consequences for numerous planetary systems,
 and in these cases intervention in the course of evolution is permitted. Earth
 is presently in such a state of potential crisis, unbeknownst to most of its pop-
 ulations. 
-145 
-                                                                                                                     
-  
- 
- 
- 
- 
- 
- 
- 
- 
- 
 
- 
             Current Events 
                            TIME-CYCLE MECHANICS AND EVOLUTION 
-                                       
                                                     Time-Cycle Mechanics 
     In order to understand the dynamics involved in such a time continuum
 shift, it is helpful to realize that the structure and illusion of linear time is cre-
@@ -843,4 +763,3 @@ shift of 90° (+90°, -90°, +90° = +90° shift), so in one Harmonic Universe t
 angular rotation of particle spin undergoes one-quarter of a full 360° rotation.
     When passing from one Euiago cycle (Harmonic Universe) to the next,
 the angular rotation of particle spin shifts 45°. Between HU-1 and HU-2, the
-146 

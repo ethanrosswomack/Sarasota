@@ -1,6 +1,5 @@
 # Chapter 18
 
-                                                   
                                                      Sleepers, Terrorists, Remote Viewing, RITs and the NET
 strategic location from which full physical invasion of the Inner Earth Time
 Cycle and Halls of Amenti control sites was intended to be launched.
@@ -34,29 +33,13 @@ Atlantian Conspiracy can be most easily understood. The recent historical
 context from which our present drama has emerged begins with the 1930s’
 Zeta Treaties and ends with the 1992 Pleiadian-Sirian Agreements and
 their final September 12, 2000, dissolution into the UIR Edict of War.
-              
-                
-             
-                          ________________________
                              12.   The long and war-torn real history of this ongoing Amenti conquest is detailed in Forbid-
                                         den Testaments of Revelation, forthcoming.
-                                
-                         353 
-                                            
 
-                                    
-                                        17               
-                            
-                                                                           
-                      
-                     
-                   
-                        
                  The Phi-Ex Wormhole and
                               Illuminati OWO
                                            THE BERMUDA TRIANGLE, PHI-EX WORMHOLE,
                                                  FALCON MATRIX AND WORLD WAR II
-          
     Prior to the Anunnaki’s September 12, 2000, defection from the Treaty
 of Altair Emerald Covenant peace treaty, GA Races were hopeful that
 cooperation between Guardian races and the previously ill-intended
@@ -72,11 +55,6 @@ also knew, since the last failed SAC of 22,326 BC had ended in a
 Anunnaki and Emerald Covenant races, that the 2000-2017 SAC would
 represent the climax of a long-term battle between the forces of freedom and
 those of dominion. 
-            
- 
- 
- 
- 
       The 1992 Pleiadian-Sirian Agreements arose out of necessity, if peace
 were to be maintained and cataclysm averted during the 2000-2017 SAC.
 The opportunity for these well-intended but ill-fated peace agreements arose
@@ -90,13 +68,8 @@ Atlantis, had been “nurturing” their Illuminati hybrid “Sleeper” races o
  Earth for their intended 2000-2017 takeover, suddenly found that their long-
 anticipated position of covert power had been compromised. Since formation 
 of the Anunnaki Luciferian Covenant of 9560 BC, Anunnaki legions had
-________________________ 
                                 1.     insectoid/reptile
-                            354
-               
-                         
 
-                                                              
                                                                                The Bermuda Triangle, Phi-Ex Wormhole... 
 orchestrated a progressive infiltration of Human 12-Tribe culture and
 systematic destruction and distortion of the Human historical records via
@@ -144,11 +117,8 @@ economic infrastructure. Like Earth’s Human races, Illuminati Sleeper races
 have been subjected to literally thousands of years of false cultural and
 religious programming via implanted Anunnaki and Drakonian/Reptilian
 indoctrination. Most Sleeper races do not consciously know of the reality of
-                          ______________________________________
                            2.     See Forbidden Testaments of Revelation, forthcoming.  
-                                355      
 
-                                                          
         The Phi-Ex Wormhole and Illuminati OWO 
 Fallen Angelics/ETs—only the few elite, key controllers among each
 Sleeper faction are permitted conscious knowledge of covert Fallen Angelic/
@@ -199,9 +169,7 @@ The Anunnaki Illuminati hybrid Sleeper Race family lines of the Knights
 Templar, Free Masons, Hyksos and related factions immersed within certain
 contrived “religious” persuasions were in positions of global power, each
 serving in administration over large, unsuspecting, amnesiac, (via DNA   
-356  
 
-                                                               
                                                                         The Bermuda Triangle, Phi-Ex Wormhole...
 mutation) indoctrinated collectives of Angelic Human populations. The
 majority of Human populations existed in an easy-to-direct amnesiac state
@@ -252,11 +220,7 @@ progressed following the dominant Drakonian/Reptilian Zeta Agenda, the
 Anunnaki began an aggressive covert counter-campaign using Psychotronic
 scalar pulse technologies and the NET to “awaken” their civilian Anunnaki
 Illuminati hybrid Sleeper Races. The Anunnaki “trump card” of the NET/    
-357     
- 
 
-                                     
-                      
                          The Phi-Ex Wormhole and Illuminati OWO
 NDC Grid3  was used to initiate Psychotronic transmission of ''channeling''
 contact with Illuminati Sleepers and Humans within the private sector.
@@ -294,16 +258,11 @@ within the covert Interior Government and World Management Team
 repeatedly refused Guardian offers of assistance in favor of the One World
 Order dominion agendas and promises of power-hoarding offered by
 competing Anunnaki and Drakonian/Reptilian forces.                     
-                         
-                        
-                           ________________________________
                               3.     See Masters Templar Coursebook, now available.
-                                358
 
                                                           The Phi-Ex Wormhole, and the Phantom Matrix ''Pit''—1943
                                                              THE PHI-EX WORMHOLE,
                                                     AND THE PHANTOM MATRIX “PIT”—1943
-                  
       In 1943 the Zeta/Drakonian agenda gained further strength through
 initiation of the Philadelphia Experiment, in which another ''time-rip Worm
 hole'' or Port Interface Network (PIN), was made in Philadelphia, PA, via
@@ -345,16 +304,11 @@ Illuminati creation of this Wormhole network had unanticipated
 consequences for the Drakonian agenda races—the ''Phi-Ex (Phi-ladelphia
 Ex-periment) Wormhole” allowed for yet another Fallen   Angelic “player”
 to directly enter the contemporary Earth game. 
-                    
          NECROMITON-ANDROMIES AND THE “UNHOLY ALLIANCE”
- 
         A Fallen Angelic race, which had long intended dominion over the
    Zeta/Drakonian legions of the adjacent Phantom Time Matrix and which
    had gained partial access to the Atlantian Wormhole the Zetas opened in the
-     359 
 
-                                                                                                                                                                                                                                               
-                        
                           The Phi-Ex Wormhole and Illuminati OWO
 early 1900s, was also able to gain easy open access to Earth territories via the
 Phi-Ex Wormhole. The most diabolical player in the Earth drama is the
@@ -401,14 +355,9 @@ not interested in dominion of surface Earth, because their primary genetic
 strains cannot live long under surface-Earth conditions. Their interest in
 Earth is strategic only; Earth is the primary point in our Time Matrix from
 which the Halls of Amenti Star Gates can be potentially invaded. When the
-                         
-                          ______________________________
-                             
                                 4.     Red-haired Human-looking Omicron Drakonian-human hybrids
                                  5.     Dragon-Moth       
-                           360                      
 
-                                                  
                                                 '' Big Brother Drac,'' the Andromies, Hiroshima and Hitler
 Zeta-Rigelians advanced their OWO agenda by creating the Phi-Ex
 wormhole, the Necromiton set up underground bases in certain strategic
@@ -430,10 +379,8 @@ organization of the covert World Management Team on behalf of the
 Drakonian agenda, through which global economic and political powers
 were centralized under the covert governance of a hidden Zeta-Rigelian
 Drakonian totalitarian “Big Brother.” 
-                    
                           “BIG BROTHER DRAC,” THE ANDROMIES, 
                                       HIROSHIMA AND HITLER
- 
    Compromise of the American Constitution had been orchestrated by
 Anunnaki Illuminati via manipulation of American banking laws, in their
 quest for covert economic control during the late 1800s and early l900s.
@@ -453,18 +400,12 @@ dominion.
   World War II began in 1939 as the Zeta-Rigelian Drakonian-agenda
 force launched a covert territorial conquest and race supremacy/genocide
 campaign through their Illuminati hybrid “fall guy” Adolf Hitler. The
-                            
-                             _______________________
                      6.   Sadly, it is primarily Humans who end up “playing the soldiers” that lose their lives
                         unknowingly on behalf of the covert Illuminati-ET alliance and their ''Illuminati arm-
                                         chair warriors.''
                 7.   The external aspects of these covert Illuminati infiltration of U.S. and world political and
                                         economic systems are well chronicled by various “conspiracy theorists” of our time.
-                               361
-                                                                                                                                                 
-                                                                                                                               
 
-                                                                                                                                                                                   
 The Phi-Ex Wormhole and Illuminati OWO 
 political quest was covertly motivated by Star Gate territory control, the
 “Holy Grail Quest” for Earth’s Templar, as it had been in WW1 and all
@@ -515,7 +456,6 @@ Port Interface Network during the August 12, 1945, yearly planetary
 Magnetic Peak. The Necromiton-Andromies were using a Cloaking
 Protection Field around their progressing underground base at the Nagasaki
 Port Interface Site, which would prevent the Zeta-Rigelians from opening 
-362      
 
                                                  '' Big Brother Drac,'' the Andromies, Hiroshima and Hitler
 and claiming the site under their control in August 1945. As the Zeta-
@@ -562,21 +502,11 @@ primarily Angelic Human ''pure-strain'' ethnic groups. The Zeta-Rigelians
 instructed their Illuminati operatives in the U.S.A. and several European
 countries to financially fund the Nazi movement “without leaving a paper
 trail.” While keeping an external posture of Allied loyalty to maintain their
-                        _________________________________
-                          
                               8.    This is the real reason why Japan didn’t immediately surrender after the first,
                                          Hiroshima, strike. Their Zeta-Rigelian Drakonian-agenda Illuminati “elite” were
                                          instructed to wait until Nagasaki, the Port Interface Site, had been “taken care of                                    
- 
- 
- 
- 
             before agreeing to surrender.  
-                           
-                            363       
-                           
 
-                   
                         The Phi-Ex Wormhole and Illuminati OWO
 hidden positions within Human governments, the Illuminati operatives in
 several Allied countries covertly funded Nazi objectives. The Necromiton-
@@ -627,7 +557,6 @@ covert Big Brother Zeta-Rigelian Drakonian World Management Team.
                     What even most conspiracy theorists do not yet realize is that ''at the top'' of
                           this corruption there exists Fallen Angelic/lntruder ET masterminds who 
                        have had the Illuminati races terrified to rebel since the Zeta Treaties of the 
-                         364 
 
                                                “Big Brother Drac, ” the Andromies, Hiroshima and Hitler
 1930s. As painful as it might be for Americans to confront, (and it is
@@ -643,12 +572,9 @@ OWO Progression Schedule, our collective ''wake-up call'' will soon pass
 the ''sell-by'' date. If they did not need human populations to assist them in
 running the Star Gate Security Access Codes during the SAC, they would
 have “gotten rid of us” long ago. 
-___________________________________________________________
 That Humans have managed to hold their own this far, despite what has been
        done covertly to intentionally enslave the Human race since Atlantis,
                      is a testimony to the true strength of the Human spirit.
-___________________________________________________________
-      
          The  SAC  dominion  strategies  of   all  Fallen   Angelic/ET    Illuminati  OWO
 agendas became highly organized, formalized and slowly implemented by
 1972, with ﬂuctuations of power between various competing Anunnaki and
@@ -666,18 +592,9 @@ and Illuminati hybrids “fight the battle” against each other, while the
 covert instigating force of the victorious Fallen Angelic collective would
 later come to “claim battlefield Earth for re-settlement.” At this point, the
 “dominion victor” would then have to face the Necromiton force. 
-365 
 
-                                                   18       
-                                   
-                                      
-                           
-               
-                  
-                   
                     The Hidden Game-board
                           Final Conflict Drama
-                              
                                            APIN SYSTEMS; THE FALCON, THE ANDROMIES
                                                            AND THE DOVE 1943-1951
     From 1943, the Zeta-Rigelian-Drakonian force continued to “spread its
@@ -711,7 +628,6 @@ collectively known as the ''Dove.''
     The ''Dove'' symbology refers to the physical shape, when viewed from
 the air with photo-radionic scanning equipment, of their global Atlantian
 Pylon Implant Network (PIN) Control Grid that was last implanted into
-366 
 
                                                                            The Lion, the “Lamb,” the Sphinx and the Eagle
 Earth’s Planetary Shields during the 25,500 BC Lucifer Rebellion. The
@@ -762,9 +678,7 @@ at Star Gate-1l, Southern England. Its “head” looked out to the west,
 cresting the north polar regions, spanning central and northern Europe,
 across Atlantis and into northeastern North America. The ''body of the
 Lion'' lay at rest across the expanse of the Asian continent, while the Lion’s   
-367 
 
-                                                                   
                         The Hidden Game-board Final Conﬂict Drama
 ''great front paws'' stretched out across North America and northern South
 America, its rear left paw shrouding the continent of Africa. The “tail” of the
@@ -815,9 +729,7 @@ system. The Great White Lion is the “Guardian of the North and South”
 and the Golden Eagle is the ''Guardian of the East and West.'' The “Great
 White Lion,” has its heart at Star Gate-12, through which the silver-white,
  D-12 “Christos” frequency of the planetary Pre-matter Template, or
-   368 
 
-                       
                                                                 The Lion, the “Lamb,” the Sphinx and the Eagle
 ''Divine Blueprint'' opens into Earth’s Planetary Shields. The Great White
 Lion became the symbol of the eternal Christos Founders Elohei-Elohim
@@ -865,9 +777,7 @@ and the other Fallen Angelic collectives did not anticipate was that the
 January 1, 2000, commencement of the present SAC. This is precisely
 what has occurred due to continuing Elohei-Elohim and Seraphei-
 Seraphim  crisis-intervention  efforts   in  the  contemporary  drama. Now all of
-___________________________ 
                               1.    See Masters Templar Coursebook. 
-                             369 
 
 The Hidden Game-board Final Conﬂict Drama 
 the Fallen Angelic collectives are in a ''race for time'' to fulfill their intended
@@ -895,9 +805,7 @@ and 10. The horizontal L4/L10 ''double Ley Line'' emerging from Star
 Gate-10 Abadan, Iran, and Star Gate-4 Giza, Egypt, is the L4/L10 ''Giza
 Ley Line,'' the East-West center-line axis upon which the Golden Eagle
 APIN system is structured. (See APIN diagrams pp. 527-530.) 
-      
                              THE WHITE EAGLE AND THE MELCHIZEDEK DECEPTION
-          
     Since 25,500 BC, the Golden Eagle APIN system has been “held
 hostage” and used to “do the bidding” of the Necromiton-Andromie-
 Anunnaki, Nephilim and Marduke-Luciferian Anunnaki of Alpha and
@@ -918,11 +826,7 @@ Contracts,” through which their races could be assisted in gaining freedom
 from the Phantom Matrix via restoration of a D-12 Pre-matter “Christiac”
                     Divine Blueprint Template. Repeatedly they  have used  such opportunities  
               to exploit other races and compromise Emerald Covenant freedom
-                         
-                            370 
-             
 
-                             
                           The Sacred Cow, Faces of Man, Easter Island Heads and the Trion Field
 agendas, just as their Anunnaki groups have done in their September 12,
 2000, defection from the Emerald Covenant Treaty of Altair. 
@@ -969,13 +873,8 @@ further the OWO dominion agendas of the ''Centaurians'' and their frequent
 allies, the Necromiton-Andromie-Anunnaki of Alpha and Omega
 Centauri. Through the Final Conflict drama of the 2000-2017 SAC, the
 Blue Oxen will also be reclaimed by the Maharaji, to once again become the
-                             _____________________________
                               2.    Oxen-shaped biology, Etheric-matter density. 
-                                371 
-                        
 
-                       
-                       
                        The Hidden Game-board Final Conﬂict Drama
 “Sacred Cow” it was designed to be. The reason why Emerald Covenant races
 can succeed in protecting humanity during the Final Conﬂict drama of the
@@ -1022,9 +921,6 @@ races would need to wait until the next SAC, the 2000-2017 SAC, to
 complete activation of the Faces of Man LPIN system. The “Faces of Man”
 LPIN system was designed in the image of the Angelic Human race and the
 Azurite-Eieyani Maji Indigo Children races of Inner Earth. The “four Faces
-                        ________________________
-                            
                              3  Other as-yet-undiscovered “Head” sculptures exist in other areas of the globe as well, cre-    
                                      ated at various times to mark planetary grid positions significant to activation of the Faces
-                                     of Man LPIN.   
-                               372 
+                                     of Man LPIN.

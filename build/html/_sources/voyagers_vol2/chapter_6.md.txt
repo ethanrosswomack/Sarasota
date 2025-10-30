@@ -1,8 +1,5 @@
 # Chapter 6
 
-                                                                                                             
-                                                                                                           Pharaoh Akhenaton
-          
     Prior to this event, the Elohim and Priests of Ur had intended to orches-
 trate the ascension of Akhenaton, his first wife Nefertiti and their daughters.
 This was scheduled to occur after the seat of power had been transferred from
@@ -46,8 +43,6 @@ who were being unfairly denied by the other side.
 phogenetic fields of individuals involved with ascension after the Halls of
 Amenti were closed were removed from the Sphere of Amenti morphoge-
 netic field and placed within the Third Eye of Horus portal passage in the
-93 
-                                                                                                               
 
 Return to Amenti 
 core of Sirius B, under the Templar-Axion Seal. This group included over
@@ -92,10 +87,7 @@ succession of Smenkhkaré (husband of one of Akhenaton’s daughters, who
 secretly held a pro-Amonist outlook) to the throne. Haremhab, Sabatoth and
 the Keepers of the Blue Flame hoped to see Smenkhkaré replaced by Sabatoth,
 but after the fall of Akhenaton’s reign in 1353 BC, Sabatoth was imprisoned as 
-94 
-      
 
-                                                                                      
                                                                                                              Pharaoh Akhenaton
 a traitor in 1348 BC by the corrupt Serres-Egyptian Priesthood at Thebes (with
 whom he had been raised in childhood), tortured for his knowledge of the
@@ -140,8 +132,6 @@ BC, appointing Rameses I as his successor. Following the death of Aya in
 tered throughout Egypt, being considered criminals of the state for their prior
 affiliation with Akhenaton. Some found refuge within the secret ranks of the
 Serres priests at Giza, who still worked under the directive of the Priests of
-95 
-                                                                                                                            
 
 Return to Amenti 
 Ur. By 1309 BC the Elohim plans for opening the Halls of Amenti and pre-
@@ -163,7 +153,6 @@ under the protection of the Hibiru Cloister races, under the supervision of the
 Blue Flame Melchizedeks. The Rod and Staff were de-activated, and thus
 entry into the portals of the Inner Earth was stripped away from all races within
 the surface cultures.¹ 
-                                      
                                        THE THREE CHRISTS 
    Elohim and Sirian Council Favoritism toward Sirian Genetic Strains
   and Promotion of Patriarchal Templar Creed Distortion. Pleiadian,
@@ -171,7 +160,6 @@ the surface cultures.¹
 Confederacy as Co-guardians of Palaidorian Covenant. Division within
                 the Cloister Melchizedeks and Essene Brotherhood. 
                                                1240 BC -12 BC 
-      
     The chaos which resulted from the misfortunes of Akhenaton’s reign also
 created a major division within the ranks of the Elohim of HU-3, the Sirian
 Council of HU-2 and the Ra Confederacy from the Meta-galactic Core. Dis-
@@ -181,15 +169,12 @@ general, and saved their attentions for Annu-Melchizedeks and Hebrew peo-
 ples to whom they had closer genetic ties. In the years following Akhenaton’s
 demise, the Elohim and Sirian Council began showing their favoritism of
 these groups by purposely influencing the developing cultures to adopt the
-        ________________________ 
 1.   Some historical reference sources suggest that Akhenaton reigned from 1353-1335 BC
     and place Tutankhamon’s reign from 1333-1323 BC. Speakers from the Sirian Council
                                 provided the dates 1370—1353 BC for Akhenaton’s reign and 1340-1331 BC for Tut-
                             ankhamon; they request that I leave the dates as they have given. I cannot personally                                                                
                                         attest to the accuracy of either set of dates.
-               96 
 
-                                                                                      
                                               The Three Christs
 distorted Templar Creed. They believed that by promoting male dominance
 within the races (which was already a rampant distortion promoted by the
@@ -234,8 +219,6 @@ ites equal directive control over human evolution and appointed them pri-
 mary guardians of the Covenant of Palaidor. The Azurites began their work
 on Earth through the Essenes of the Priests of Ur. In 196 BC the Azurites and
 the Sirian Council attempted to mend the growing rift within the
-97 
-                                                                                                                             
 
 Return to Amenti 
 Melchizedek families by combining the previous teachings of the
@@ -278,17 +261,12 @@ cepts of unity consciousness and the Sacred Law of One. The two groups co-
 existed with each other within the Essene brotherhood until 12 BC, when the
 Azurite Council orchestrated the next major event in preparing the races for
 ascension. 
-98  
 
-                                                                                           
                                                                                               The Three Christs
-    
                       Reintegration of the Races into and Restoration of 
                               the Sphere of Amenti, the Three Christs, 
                            The Zionites and Preparation for 2017 AD. 
-                      
                                                      12 BC-22 AD 
-      
      The Azurite Council knew that in order for the races to be prepared for the
 mass ascension wave of 2017 AD, the integrity of the Sphere of Amenti must be
 restored by realigning the portions of the Sphere trapped within the D-2 Earth
@@ -326,11 +304,8 @@ Mary and Joseph were not the parents of this avatar child, they were the par-
 ents of a ninth-level avatar soon to follow. Jesheua-12 was born to descendants
 of the house of Solomon, and taken in infancy into the custody of the Priests of
 Ur.  
-99                                                                                                                      
-                                                                                                                                      
 
    Return to Amenti 
-      
   In 7 BC the Elohim orchestrated the birth of a ninth-level avatar, who
 would serve to re-integrate the Templar-Axion Sealed souls of Sirius B, back
 into the Sphere of Amenti and restructure the patriarchal Templar creed to
@@ -373,10 +348,8 @@ of Tara’s morphogenetic field and into Tara.)
     Through Jesheua-l2, the Hebrew Essene races that followed the Blue
 Flame Cloister Melchizedek Essenes were appointed by the Azurites of Ra, to
 share guardianship of the Arc of the Covenant with the Melchizedek and
-100 
 
                                                                                                                  The Three Christs
- 
 Hibiru Cloisters. The descendants of these groups presently carry the full 12-
 strand DNA package within their gene codes, as this group was one of those
 chosen in 1972 AD to receive full-genetic realignment through interaction
@@ -414,17 +387,11 @@ gressively more persecution from Roman inﬂuence and also within some fac-
 tions of the Hebrew and Templar-Melchizedek race lines who did not accept
 deviations from the original patriarchal Templar creed as set within the Jew-
  ish religion by King Melchizedek. 
- 
          When Jeshewua-9 was 32 years old (25 AD), with the assistance of sup-
 portive Templar Melchizedek Essenes, the Elohim exiled Jeshewua-9, his wife
 (the woman who came to be known as Mary Magdalene in Biblical reference),
 and their three children to the territories of France, to avoid political persecu-
 tion. Another man, by the name of Arihabi, who was a Jerusalem-born
-101 
-                                                                                                                  
- 
-    
-                                                                                                                    
 
 Return to Amenti 
 Hebrew-Annu-Melchizedek, was led by the Elohim, through a series of visions,
@@ -468,7 +435,6 @@ imprint, and six women of various Melchizedek Cloister sub-races were chosen
 to bring forth the children of Jesheua-12, the First Christ. Couples were cho-
 sen to serve as guardians of these children. Each of the six females to receive
 the seed of Jesheua-12 was matched to a male Blue Flame Melchizedek who
-102 
 
                                                                                         The Three Christs
 would serve as adoptive father to the child of Jesheua-12. Jesheua-12 did not
@@ -506,14 +472,12 @@ represented through political and religious structures of various times. The
 teachings of contemporary Christianity, though they provide a basic structure
 upon which social organization and spiritual initiation can be built, reﬂect little of
 the depth, content or meaning of the original teachings of the avatar Christs. 
-  
 Following the establishment of Jesheua-12’s lineage (18 AD-23 AD) the
 avatar had completed his work on Earth. The Blue Flame Melchizedeks carried
 on his teaching legacy and became the primary keepers of the secrets of the Arc
 of the Covenant and the Sphere of Amenti. Various groups were assigned vari-
 ous portions of the whole story, with no one group having the entire chronol-
 ogy of the teachings of Jesheua- 12. Jesheua-12 left Earth through the Arc of the
-103 
 
 Return to Amenti 
 Covenant at 39 years of age in 27 AD. He did not die, but rather bodily
@@ -558,9 +522,7 @@ morphogenetic imprint for all of the races was returned to the Sphere of
 Amenti, and the Sphere of Amenti was once again made whole. These accom-
 plishments set the stage for mass ascension, but the races still had a long way to
 go in healing and evolving their consciousness and genetic codes. The Fre-
-104 
 
-                                                                                      
                                                                                                                 The Three Christs
 quency Fence quarantine (UHF D-3 seal) still blocked Earth from open rela-
 tions with the inter-stellar communities. The Arc of the Covenant D-5
@@ -590,27 +552,13 @@ tion of the Covenant of Palaidor, which holds the evolutionary promise and pro-
 gression for all races of the human lineage. It is the promise of humanity
 returning to the integrity of the Immortal God-being that is the original morpho-
 genetic imprint of the human race. 
-        
       The promise of ascension is the hidden heritage and legacy of the human
 condition, the fulfillment of humanity’s evolutionary blueprint. 
-105  
 
-                                                                          6                                                                                    
-                                                 
-                                                              
-                        
- 
-                                                    
-                                  
                      Ascension Mechanics 
-                          
-                                    
-                                                   
                                                 HUMANITY’S EVOLUTION            
                  The Science of Ascension, Time Cycles, Morphogenetic Waves 
-                                     
                                               and the Sphere of Amenti
- 
       As we have mentioned before, ascension is not some lofty spiritual con-
 cept designed by the minds of man, it is the literal, tangible scientific process
 of the evolution of consciousness and biology within the laws of energy
@@ -637,9 +585,7 @@ ity of experience, or lack thereof, that will be personally encountered in feel-
 ing and event. 
     In preceding chapters  we have detailed for you the great challenges and
   struggles your species endured as it has blindly followed the hidden evolu-
-   106 
 
-                                                                                
                                                                                     Humanity’s Evolution
 tionary blueprint that calls it forth to evolve through time. That blueprint is
 the Covenant of Palaidor and the morphogenetic field of the Sphere of
@@ -670,7 +616,6 @@ health and freedom. If you are unaware of these greater reality structures you
 will be unable to use them wisely, and it will seem as if the greater reality is,
 instead, using you. You will feel powerless, and while you feel powerless and
              victimized by circumstance you cannot know freedom. 
- 
              In view of the history we have provided, you may be able to see that
 the Sphere of Amenti holds great importance to the evolution of your race,
 for it holds the morphogenetic (form-holding) blueprint through which your
@@ -685,11 +630,7 @@ netic fields of the race and the species. The species morphogenetic field is the
 Sphere of Amenti. The Sphere of Amenti connects the human species to
 the greater morphogenetic field of the Earth, which, in turn, is connected to
 the morphogenetic field of planet Tara in HU-2. In order for Earth, and
-107 
-                                                                                                                                
 
-    
-    
     Ascension Mechanics 
 humanity, to evolve out of HU-1 and into the higher dimensional fields of
 HU-2, the frequency patterns of dimensions four, five and six from HU-2
@@ -733,4 +674,3 @@ identity. As we have illustrated throughout our historical account, the ability
 to ascend is also directly inﬂuenced by the conditions of the race morphoge-
 netic field, and by the Root or Cloister Race into which one is born. The
 Sixth Cloister Melchizedek race holds the full imprint for the fifth DNA
-108 

@@ -1,6 +1,5 @@
 # Chapter 13
 
-     Things to Come 
     Phantom Earth. Ascensions to Tara, through the Halls of Amenti, con-
      tinue for populations stationed within the Bridge Zone and the Halls of
     Amenti close to populations stationed on Phantom Earth in the D-3 time
@@ -39,17 +38,12 @@
       several incarnations. The Hall of Records remains open in the Bridge
         Zone, as long as Earth’s grid stays aligned with the Alcyone spiral, but it
                will transmit data at a much slower rate. 
- 
        The grids of Earth and Tara complete their separation and the ascension
            cycle comes to a close, as humanity faces its new reality within three dif-
           ferent tracks of time. One part of humanity will experience the future in
           the D-3 Phantom Earth time cycle, another part will move into the age of
        enlightenment within the Bridge Zone-Inner Earth time cycle, 2213 years
-    228 
-    
 
-                                                            
-                                                            
                                                       The Amenti Ascension Program Schedule
 in the future and a relative few will voyage into the lands of Tara, within 
 the D-5 time cycles, a position in space-time 5532.5 years in the future of 
@@ -85,11 +79,9 @@ Beginning with the closing of Earth’s seventh vortex in 1/2022, vortices 6
 through 1 begin their respective closing cycles, ending with the sealing of 
 the first vortex in 6/2047. We will provide a list of vortex opening and 
 closing dates in the final pages of this book. 
-229 
 
   Things to Come 
       FINAL 1998  COMMENTS FROM THE GUARDIAN ALLIANCE
-           
     Throughout the course of this book we have led you on an odyssey into
 worlds of perception far beyond the focus of your three-dimensional view. We
 have recounted pieces of your past as a race, in order to show you the lengthy
@@ -126,9 +118,7 @@ Earth 550,000,000 years ago. They are no strangers to the human lineage. It
 is you who have forgotten. The quality of your future experience will depend
 upon your remembering and your awakening to the multidimensional iden-
 tity that is your heritage and birthright. 
-230 
 
-                                  
                                                         Final 1998 Comments from the Guardian Alliance
     The most important thing you can do after reading this material, is to
    make a firm personal commitment to reclaiming your private spiritual
@@ -173,16 +163,12 @@ covert manipulation during this practice, for these skills will become tremen-
 dously valuable over the next 20 years. There are many books and teachings
 available through which you may develop interdimensional communication
 skills. Learn from the Light Workers among you, who have already developed
-231   
- 
-                                                                                                                  
 
   Things to Come 
 proficiency in these areas, for they can teach you much. Those of you who mas-
 ter the skills of higher-dimensional internal guidance will not become lost within the
 maze of external circumstance and you will be able to retain your personal power in
 the face of traumatic events. 
-       
       If you do not find starships displaying themselves in your skies, consider
 yourselves fortunate, for this indicates that your progression through the
 ascension cycle will be far less treacherous than it might otherwise have
@@ -221,16 +207,6 @@ sion opportunity and begin to take action now, to ensure your placement
 within your desired future destination. For your convenience we shall now
 offer you a brief summary of the ascension schedule and related subjects cov-
 ered in these writings. 
-232 
- 
- 
- 
- 
- 
- 
- 
- 
- 
 
                                        Final 1998 Comments from the Guardian Alliance 
 Communicators responsible for Keylontic Transmission
@@ -251,49 +227,8 @@ Contributing Speakers and Technical Specialization
          Metaterrestrials: Lyran Gestalt D-12, Breneau Collective D-15
          Ultra-Terrestrials: Azar-Azara and Melchazedakz Gestalts Meta-
          Galactic Core.
-                     
-                                                                                                  
-           233
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
-             
-                                                                                                                                      
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
 
-                                                                                                                                                                            
-                                                                          12
-                                  
-                                                 
-    
-           
-      
                   Author’s Closing Statement,1998 
-    
     In early June 1998 I began the final proof work on my book Voyagers: the
 Sleeping Abductees in preparation for its intended fall 1998 release date. Fol-
 lowing a joint physical encounter event that took place on October 25,
@@ -315,15 +250,6 @@ then five-year-old daughter and a visiting UFO investigator who had come to
 explore other odd phenomena that I had recently reported. We were taken  
  via “blue beam” into a craft that hovered over my home. We were then   trans-          
   ported to a massive Arcturian mother-craft named Ashalum.  
- 
- 
-                          
- 
- 
- 
- 
- 
- 
            The investigator and I were separately given a pri- 
 vate tour of the craft then brought to a large auditorium  
 where other humans waited for a lecture to be held on  
@@ -333,15 +259,7 @@ the“State of Current Earth Affairs.” In the lecture, the
 upcoming Bridge Zone Project, the approaching tim- 
 continuum shift, IntruderET agendas (Dracos-Zeta Resistance) and the
 necessity for humans to take action now. We were asked to share what we had
-234 
 
- 
- 
- 
- 
- 
- 
- 
              Author’s Closing Statement, 1998
 learned and to begin assisting others to protect themselves from Intruder
 manipulation and in preparing for the time continuum shift. (A full account
@@ -384,11 +302,7 @@ name before.
   Charleamea proceeded to tell me that something terribly important
 had just occurred on this 26th day of June, an event the Guardians had hoped
 and prayed for but did not expect to take place. Excitedly she repeated sev-
-_______________________ 
 1. For a copy please contact ARhAyas Productions, Sarasota, Fl. 
-235 
-                                                                                                                                                     
-                                                                                                                  
 
      Author's Closing Statement, 1998  
 eral times “The Arc is Sparked!” as I looked at her numbly, lacking compre-
@@ -434,9 +348,6 @@ stopped racing through my mind and my sense of expanded consciousness
 “pulled in” a little. I felt a huge quantity of electrical data being pulled into
 my auric field and knew the Keylontic transmission was ready for translation.
 As the experience ended I was awestruck with what had just passed through
-236 
-    
-     
 
      Authors Closing Statement, 1998 
 me. It had moved so quickly that I could hardly “catch” any of it to translate
@@ -482,9 +393,6 @@ to feeling at-one-ment with my soul and with the universe; or when Blue
 Wave Infusions begin during the dream state and astral projection then pro-
 pel me back into my body with such force that the physical body grows hot
 with vibrating blue energy running through its cells. The concept of wave
-237 
-                                                                                                                          
-                                                                                                                   
 
 Author’s Closing Statement, 1998 
 infusions is also quite convincing when observing large sheets of violet light
@@ -528,10 +436,7 @@ for me.
        God Bless, and may your Voyage to awakening be sweet and rapture 
 filled. 
         —Ashayana Deane 9/14/ 1998  
-238 
 
-                                                                                                                   
-                                                                                              
                                                                                                                      The “I Am" Prayer
                                             THE I AM PRAYER
                                        I AM a Child of the Original ONE,
@@ -555,17 +460,11 @@ filled.
                                                I AM One With God,
                                                  I AM THIS I AM...
                                    And, as I Decree It, So It Is.
-239 
 
 
                      2001 Update Section
-                                       
-                                       
-                
                  13:  Emergency Release GA
-          
                                   A NEW LEVEL OF (CONTINUOUS) REVELATION
-         
      The information contained in Chapters 1 through 12 of this book rep-
 resents a complete reprinting of the original text contained within the first 
 printed edition of Voyagers Volume 2 The Secrets of Amenti. However, 
@@ -595,7 +494,6 @@ mary ''ET" visitor races, both of whom have shared a long and difficult rela-
 tionship with Human civilizations of Earth. These negotiations began in       
 November 1992, when a series of Emerald Covenant treaties called the Ple-  
 iadian-Sirian Agreements were formed between Guardian Emerald Cove-
-241 
 
        2001 Update Section 
 nant races and a large group of extraterrestrial or “Angelic” (AKA multiple
@@ -639,15 +537,10 @@ its past.  Such confrontation with the truth of human heritage is ultimately
 inevitable for final healing to occur, but the “blow would be softened” if 
 compassion, spiritual strength, forgiveness and understanding could first be 
 fostered within the human collective prior to facing the enormity of what 
-242 
 
                                      The Anunnaki, the 1992 Pleiadian-Sirian Agreements... 
 has transpired on Earth to bring human civilization to its present state  
 of painful limitation and relative amnesia.  
- 
- 
- 
- 
     When the first printing of the Voyagers Series books occurred in May 
 1999, historical references pertaining to the Annu-Elohim and Anunnaki 
 involvement with Earth were presented in a neutral  context, providing the 
@@ -662,7 +555,6 @@ Anunnaki were created with the intention of their race serving as the vessel
 through which the Christiac Human race would be destroyed to provide the 
 Annu-Elohim Fallen Angeli totalitarian collective with exploitative domin-
 ion over 11 dimensions of our Time Matrix. 
- 
     For many millions of years, Emerald Covenant races have attempted to
 cultivate peaceful co-evolution between the Human and Anunnaki races in 
 order to assist both species in fulfilling  their original potential of becoming     
@@ -680,7 +572,6 @@ Fallen Annu-Elohim have consistently put forth great efforts of overt and
 covert manipulation to prevent the Anunnaki from defecting from the anti-
 Christiac agenda in favor of the Founders’ Emerald Covenant freedom
   agenda. 
- 
      In November 1992, the Pleiadian-Sirian Agreements emerged 
     through a confrontation between Anunnaki  races of the Fallen Annu-Elo-
 him, competing Fallen Anu-Seraphim Anunnaki and Drakonian-Reptilian-
@@ -691,10 +582,8 @@ long-anticipated 2000-2017AD Stellar Activations Cycle; only humanity has
 been “left in the dark” regarding knowledge of these events, precisely due 
 to the interstellar political realities that have existed on Earth since 22,326
 BC. The 1992 agreements marked the entry of several previously Fallen
-243 
 
                 2001 Update Section
-  
 Anunnaki collectives into the Emerald Covenant following their many
 thousands of years of covert manipulation of Earth Human and Anunnaki-
 Human-hybrid races. The Fallen Angelic Anunnaki groups who entered the 
@@ -705,30 +594,18 @@ Emerald Covenant in 1992, after a long history of running manipulative
  •  The “Archangel Michael” Nephite-Nephilim-Necromiton Anun-  
       naki-hybrid collective of Orion, Alpha-Centauri, Sirius A and  
      Andromeda.²  
- 
- 
- 
-                              
- 
-      
  •  The Anu-Seraphim Alpha-Omega-Order Templar Melchizedeksᵌ.  
-      
  •  The Thoth-Enki-Zephelium-(Zeta) Anunnaki collective of Nibiru  
- 
      and Sirius A.4 
-                  
  •  The Enoch Jehovian-Anunnaki collective of Arcturus and Orion.5  
- 
     •  The Anu-Seraphim Pleiadian Samjase-Anunnaki of Alcyone and 
      their Enlil-Odedicron and Marduke-Necromition Nibiruian 
      allies.6 
- 
    In 1992 all of the above Anunnaki groups officially entered the Emerald
 Covenant in an effort to gain support from Emerald Covenant races in their
 intended stand against the competing Reptile-Insectoid Rigelian-Zeta-
 Zephelium, Omicron-Drakonian (Dragon-Moth) and Odedicron-Avian-
 Reptilian Fallen Seraphim races of Orion, the Necromiton-Andromie “Bee-
-_________________________________________ 
 1.     Last defected from the Emerald Covenant in 10AD, after several brief periods of entry 
        and  defection before and after the 9558 BC Atlantian ﬂood.  
 2.    Defected from the Emerald Covenant in 148,000 BC to run Jehovian-Annu-Elohim
@@ -751,14 +628,7 @@ _________________________________________
         Seeding-3 through forced occupation of Earth between 147,900 BC-75,877 BC, initiated
          the formalized Luciferian Covenant of 10,500BC and directly orchestrated the 9558 BC
        Atlantian ﬂood and subsequent “House Cleaning” of Earth’s historical records.  
-244 
- 
-                                                                                                                 
 
- 
- 
- 
- 
        Solar Star Gate-4 and Anunnaki defection…
 tle-People” and their “Men In Black” hybrids, and the Centaur and Mar-
 duke-Dramin-Anunnaki-Omicron hybrids of Alpha and Omega Centauri.  
@@ -802,19 +672,6 @@ of the Halls of Amenti star gates. The Nibiruian Anunnaki had seized con-
 trol of Solar Star-Gate-4 from Emerald Covenant Guardian race protection 
 during the Lucifer Rebellion of 25,500 BC, at which time they used Battle 
 Star Nibiru to force Earth’s Templar into an artificial alignment with the
-245 
-                                                                                                                 
- 
- 
- 
- 
- 
- 
- 
- 
- 
-                  
-                                                                                                    
 
    2001 Update Section 
 planet Nibiru. If Earth’s electromagnetic fields were not properly realigned
@@ -844,7 +701,6 @@ Forbidden History of Earth as faithfully recorded on the Emerald Covenant
 CDT-Plate holographic discs, clearly demonstrated that such an act  of per-
 mitted Anunnaki supremacy on Earth would guarantee the rapid termination 
 of the Human species. 
- 
      When the Christos Founders Emerald Covenant races refused to submit 
 to the Anunnaki’s self-serving demand of dominion over of humanity’s right to 
 freedom and equality, the Anunnaki legions of the 1992 Pleiadian-Sirian 
@@ -860,15 +716,9 @@ ald Covenant upon the Emerald Covenant races’ promise to assist them in the
 presently unfolding Orion Wars of Density-3, in which Fallen Annu-Elohim 
 Anunnaki holdings in Orion were under aggressive militant attack by the
 Omicron-Drakonian and Odedicron-Reptilian legions of Orion.  
-246 
 
-        
- 
- 
- 
                                                                                     The    July 5, 2000, Treaty of  Altair...    
                     THE JULY 5, 2000 TREATY OF ALTAIR AND       
-                                                                                                
 ANUNNAKI SABOTAGE OF THE 9/2000 UK EXPEDITION  
         Through the Treaty of Altair, the Anunnaki races of Orion were 
 granted the Founders protection from the Drakonian invasion, if the Anun- 
@@ -911,5 +761,3 @@ GA security reasons I had been told nothing of this treaty or the volatility of
 the interstellar political atmosphere prior to our journey to England. Prior to 
 September 2000 I simply knew that our site work, called Planetary Shields
 Clinics, in Peru and England was intended to assist the Emerald Covenant
-247 
-                                                                                                               

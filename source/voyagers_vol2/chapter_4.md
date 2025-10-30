@@ -1,15 +1,8 @@
 # Chapter 4
 
- The Third Seeding 
-                                       
-                                                      
-                                             
-                   
-                                             LEMURIA DESTROYED 
         Anunnaki Resistance,  Annu and the Dracos, Destruction of Lemurian
                      Muarivhi, & Relocating the Arc of the Covenant 
                                                55,000 - 51,750 YA 
-     
    As Atlantean and Lemurian cultures thrived, other stellar cultures
 watched and waited. Members of the Anunnaki Resistance and their Drakon
 and Dracos allies had long planned to overtake Earth territories, waiting until
@@ -48,10 +41,7 @@ and though the Atlantean continent did not suffer massive destruction, it took
 generations for them to rebuild, and for the Earth to rebalance her grid. A small
 period of ice followed these events, during which most of the races retreated
 underground, some permanently entering the Inner Earth. After the surface
-58 
- 
 
-                                                                                              
                                                                        Giza to Atlantis
 environment stabilized most of the remaining races returned to the surface to
 rebuild. Atlantis again became a cultural center, but never again reached its
@@ -70,15 +60,12 @@ Egyptian races would now share guardianship and control of the Arc of the
 Covenant with the Annu-Melchizedeks and Hebrew peoples who migrated
 there following the explosions. The cultural hub of Earth was relocated from
 Atlantis to Egypt about 51,750 years ago, and Egypt began to thrive. 
-                                      
                                         GIZA TO ATLANTIS 
-     
       Anunnaki of the Sirian Council and Earth Protection, the First 
        Building of the Great Pyramid of Giza and the Sphinx, Ankhs, 
            Outpost on Mars, First Birth Wave of Melchizedek Cloister 
                          and Re-establishment of the Law of One. 
                                           48,500 - 35,000 YA 
-         
     Following the relocation of the Arc of the Covenant 51,750 years ago,
 Egyptian culture prospered, and Egypt became a center for the Annu-
 Melchizedek, Hebrew and Serres-Egyptian guardians of the Arc of the Cove-
@@ -96,7 +83,6 @@ resistance to this influence, and many of them relocated to Atlantis where
 the Templar-Annu had a stronger hold over the cultural environment. The
 Templar-Annu of Atlantis began using their influence to corrupt the
 Atlantean priest cast and eventually the social and moral climate in Atlantis
-59 
 
 The Third Seeding 
 declined under their influence. Motivated by the Anunnaki Resistance, the
@@ -142,26 +128,7 @@ Anunnaki heritage, having the head of an Anunnaki warrior placed upon the
 body of a lion-like sculpture. The lion's body of the Sphinx was a symbolic
 tribute to a race of beings from HU-2 known as the Leonines, who were
 instrumental in laying the early foundations of Anunnaki culture. The Leo-
-60 
- 
- 
 
-                                                                                                                       
-                                                                                                                        
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
- 
                        Giza to Atlantis
 nine beings of HU-2, who were large, upright, fur-covered felines of advanced
 intelligence, were revered as Godlike by the early Anunnaki civilizations,
@@ -204,8 +171,6 @@ ture was reconstructed and repaired on numerous occasions. It was designed
 and erected by the Anunnaki of the Sirian Council, the Annu-Melchizedeks,
 Hebrew, and Serres-Egyptian peoples from that time period. The pyramid was
 not constructed to serve as a burial tomb, though much later it was used as
-61 
-                                                                                                                         
 
 The Third Seeding
 such. The  primary purpose of the Great Pyramid of Giza was to fortify the portal of
@@ -250,9 +215,7 @@ Sphinx. The pyramid was always kept under tight security by the resident
 Anunnaki of the Sirian Council, and the Templar-Annu were banned from
 entering the premises. This created much hostility between the Templar-
 Annu and the Egyptian cultures operating under the protection of the Sirian
-62 
 
-                                                                                              
                                                          Giza to Atlantis
 Council Anunnaki. The Anunnaki of the Sirian Council developed a strong
 hold in Egypt for a time, creating a system of pyramids and other structures
@@ -273,7 +236,6 @@ purpose and process of the human evolutionary imprint was held within the secret
 of Amenti. 
                 Guardian Alliance & Galactic Federation Intervention 
                                             28,000 BC-10,000 BC 
-        
     The Templar-Annu grew progressively more hostile within the territories
 under Sirian Council protection, and many relocated to Atlantis, which was
 becoming the Templar-Annu strong hold. Angered that they were not per-
@@ -297,8 +259,6 @@ that would result from the explosions.
     During the explosions in Atlantis, the Earth was tilted slightly on its axis,
 throwing the Earth's grid out of balance, breaking the energetic link between
 the pyramid of Giza and Sirius B. The Great Pyramid could no longer function as
-63 
-                                                                                                               
 
        The Third Seeding 
 an interstellar teleport station. The Arc of the Covenant remained stable but
@@ -344,12 +304,7 @@ primary structures of their civilization. The ankhs, which had been hidden in
 the Inner Earth during the raid, were again brought to the surface, and the
 Great Pyramid of Giza, the Sphinx, and several new structures were rebuilt.
 The Sphinx and Great Pyramid were placed in their previous locations mark-
-64 
-                                                                                                            
- 
-  
 
-                                                                              
                                                                                                         2017 AD Appointment
 ing the fortification of the Arc of the Covenant and Inner Earth portals. The
 Great Pyramid was slightly realigned in order to create a Harmonic Reso-
@@ -362,12 +317,10 @@ portal bridge to Sirius B did remain operational for smaller-scale visitations.
 The Earth was now more closely in alignment with the interstellar energy
 spirals that ran through the Pleiadian system, and so the new pyramid was
 oriented to an energetic alignment with Alcyone. 
- 
                                 2017 AD APPOINTMENT    
  Earth enters a new 26,556-Year Time Cycle, Ascension Cycles 
                               and the 2017 AD Appointment 
                                 22,326 BC - 2017 AD - 4230 AD 
-       
     The civilizations of Earth continued to prosper and once again enjoyed
 interstellar visitation from their Sirian and Pleiadian allies. Atlantis contin-
 ued to digress under the inﬂuence of a resurgence of the Templar-Annu. The
@@ -394,10 +347,7 @@ netic wave was released from Earth in 20,113 BC, the second wave in 17,900
 BC, but the populations were unable to ascend as the Halls of Amenti were
 not yet opened. Within the 26,556-year natural time cycle of Earth, morpho-
 genetic waves are released only during four periods, the first two waves within
-65 
-                                                                                                         
 
-                       
                        The Third Seeding
 the first 4,426 years of the cycle, and the last two waves during the final 4,426
 years of the cycle. These two 4,426-year periods, which occur at the opening
@@ -429,8 +379,6 @@ explain the highly scientific process of dimensional ascension that your races
 would be faced with when the Halls of Amenti were opened. 
 The Teachings of the Divine Science, the Original Templar, Anunnaki 
        Resistance and Templar-Annu Distortions of the Templar Teachings 
-  
- 
             and the Guardians’ Awakening Agenda 
                                                    28,000 BC-present 
     Originally the teachings of ascension were quite scientific in nature, deal-
@@ -442,11 +390,7 @@ Atlantean cultures had full access to this information, and until the Templar-
 Annu distorted the teachings in order to control the populations, the science
 of ascension and multidimensional mechanics was publicly taught as a primary
 belief model around which societies were structured. The teachings were given
-66 
-                   
-                       
 
-                                                                                 
                                                                                                        2017 AD Appointment
 to all of the races throughout the globe, not just those of Egypt and Atlantis.
 Over time, and through the oppression of the Templar-Annu and later control-
@@ -455,7 +399,6 @@ gave the common person power over their personal destiny. People who are
 empowered cannot be controlled or manipulated by outside authorities, and so
 the tool of empowerment, knowledge, was taken away from the masses so the
 few elite could hold them under their power. 
-            
          What remains today of the ascension teachings is hardly an introduction to
 the true science as it was once applied on Earth. Portions of the teachings survived
 through the mystical schools of  the ages, kept under strict secrecy, as the politically
@@ -491,8 +434,6 @@ the Templar in order to serve as guardians of the Taran planetary grid. They
 had the awesome responsibility of ensuring that Tara's energetic systems
 remained balanced, and that Tara, and the Turaneusiam races, stayed upon
 their course of evolution into the HU-3 planetary grid of Gaia. Due to the
-67 
-                                                                                                                   
 
 The Third Seeding 
 corruption of the Taran Templar Solar Initiates, orchestrated by the Anun-
@@ -538,15 +479,7 @@ humanity to lose comprehension of its divine source and the true potentials
 of its evolutionary heritage. This creed has been a poison to human society,
 and the pain, disease, war, competition, hatred and violence that have col-
 ored the human condition throughout history and into the present, are clear 
-68 
- 
- 
- 
-                                                                                                                        
-  
 
-                                                                                                            
-                                                                                                          
                                                                                                           2017 AD Appointment
 illustrations of just how powerfully these distortions of truth have affected
 you. It would help all of you to realize that these creeds were given to you and
@@ -586,23 +519,11 @@ divine creative Source. After defeating the Anunnaki Resistance attack of
 ian Council and guardian allies of humanity continued to visit and assist the
 evolving cultures, serving as a counterbalance to the Anunnaki Resistance
 and Templar-Annu forces that continued to assert their inﬂuence on Earth. 
-             
- 
- 
- 
- 
- 
- 
- 
- 
- 
     The new teleport station of the rebuilt pyramid of Giza, now aligned with
 the energetic systems of Alcyone and the Pleiades, offered swift guardian inter-
 vention and protection of Earth and easy access to Earth visitation. Until about
 11,500 years ago (9,500 BC), humanity enjoyed the benefits of open relation-
 ship with advanced ET cultures. This open relationship ended in 9,500 BC, 
-69 
-                                                                                                                 
 
    The Third Seeding 
 through an event created at the hands of the Atlantean Templar-Annu. Follow-
@@ -619,32 +540,15 @@ placed self-promotion above universal balance, was played out through the evo-
 lution of humanity on Earth. Through the evolution of freedom, co-creative
 endeavor and unity consciousness that power struggle will one day come to an
 end, and peace will be restored to the races of the Third Seeding. 
-                  
-                        
-                       
-                         
-                             70                                                                                   
- 
-             
 
-                                            
-                                                                               4
-                                                           
-                                                               
-                                                                    
-                                    
-       
                   A Journey Toward Awakening
-                 
                                           SINKING ATLANTIS AND EARTH QUARANTINE
-         
                            The Sinking of Atlantis, the Ending of Open ET Relations and the
                        Withdrawal of ET Technologies, Premature Opening of the Arc of the
                                           Covenant and Descent of the Sphere of Amenti,
                                                     Earth's Quarantine, DNA Mutation
                                           and the Creation of the Ego and the Higher Self.
                                                                      9,558 BC-8000 BC
-       
    Following the 28,000 BC explosion in Atlantis, which reduced the conti-
 nent of Atlantis to a small land mass of three islands (in the area of what is
 now called the Bermuda Islands), the guardian races continued open visita-
@@ -666,13 +570,6 @@ one spiral for Earth visitation. Unauthorized groups could, however, “take the
 long way in,” using other inter-galactic portals which connected to Earth's
 portal system. Though these alternative routes of visitation demanded much
 more time and resources, they were still frequently used by other stellar cul-
-71 
-  
-                                                                                                                               
- 
- 
- 
- 
 
                   A Journey Toward Awakening
 tures, who also influenced the development of the races. The Anunnaki
@@ -683,8 +580,6 @@ ist society run by the Templar-Annu operatives of the Anunnaki Resistance,
 and due to their actions 11,558 years ago, Earth civilizations would be
 changed forever. The first major stumbling block to the guardian races awak-
 ening plan took place in 9,558 BC. 
- 
- 
          The Templar-Annu, motivated by the Anunnaki Resistance, devised a
 plan to take control of the Great Pyramid teleport station so the Resistance
 could have free access to the Alcyone spiral. Their plan also included the
@@ -720,13 +615,7 @@ Arc of the Covenant, disseminated through the Earth grid, then refocused on
 their point of origin, the Main Crystal Generator beneath the largest Island
 of Atlantis. This process occurred almost instantaneously, causing a chain
 reaction explosion within most of the operational Crystal Generators. The
-72 
- 
-                                                                                                                 
-  
 
-                                                       
-                                                                                
                                                                               Sinking Atlantis and Earth Quarantine
 Sirian Council discovered the plan too late, and were unable to prevent the
 catastrophe. But they were able to rescue several groups of Sirian Council
@@ -771,6 +660,3 @@ use of power. But this was only the beginning of the problems humanity
 would face as a result of the sinking of Atlantis. 
        Following the deluge, the Sirian Council placed further security seals on
 the Arc of the Covenant, which no longer permitted energy to be drawn
-73 
-                                                                        
-           

@@ -1,8 +1,6 @@
 # Chapter 17
 
-                                                        
                                                        Star Gate-6 and the Selenite Crystal Temple Network
-    
     Note: A few of the many “Supplicant Sites,” or smaller Selenite and
 Quartz Crystal Matrices that are connected to the main Nibiruian Crystal
 Temple Network sites as transmission tributaries, were discovered recently
@@ -52,11 +50,7 @@ activated, which leaves the usually invisible/cloaked installations vulnerable t
     containing Selenite, Quartz, Amethyst, Diamond and various types of Beryl
      deposits, will be “found” within the next 3-9 years; two are due for activation
        and ''discovery'' around the end of 2002 (locations not yet revealed to me by GA   
-        341 
-          
 
-                   
-                   
                     The 9/11 WTC/ Pentagon Attack and the Illuminati One World Order
 for security reasons). More information on the Nibiruian Crystal Temple Network
 and related subjects can be found in our Masters Templar Coursebook (now
@@ -90,7 +84,6 @@ which had been used for UIR global scalar pulse transmission. By September
 2001 the UIR had activated, and interconnected for purposes of frequency
 amplification, a series of   smaller global   Ley   Line tributaries   running   through
 the Montauk facility. 
-            
    TRION-MEAJHÉ FIELDS AND EXPEDITED AMENTI OPENING
      Due to the UIR’s August 12-30, 2001, full activation of the Montauk
 facility, combined with the May 2001 early activation of Sirius B Star Gate-
@@ -107,9 +100,7 @@ directly linked into Planetary Shields of the Inner Earth time continuum.
 Earth’s Templar will be simultaneously linked into the Planetary Shields of a
 free counter-part of “Future Earth” that exists in a Trans-Harmonic
 Accelerated Time Cycle called the Meajhé Zone.8 The Planetary Shields  
-342      
 
-                                                      
                                                          Trion-Meajhe’ Fields and Expedited Amenti Opening
 from the two other Time Matrices will serve as massive Photo-sonic
 Anchoring Rods (huge standing-columnar-waves of 15-dimensional,
@@ -157,11 +148,8 @@ GA/Eieyani’s technical physics answer to the question of “What will Earth
 life experience during this accelerated phase before the Three-Day Particle
 Conversion Period?” This information is too lengthy for inclusion in this
 book; I will simply say that if the Meajhé Field is not created “you wouldn’t
-_____________________________ 
 8.      See: Forbidden Testaments of Revelation, forthcoming.  
-343 
 
-                       
                         The 9/11 WTC/ Pentagon Attack and the Illuminati One World Order
 want to be here.” One summary clue is the scientific term called Hydrogen
 Burning. All Emerald Covenant Crisis Intervention efforts are now
@@ -194,7 +182,6 @@ the Illuminati OWO agenda. My first chilling glimpse at this reality came in
 October 1999, about one year before the inter-stellar political drama
 escalated to its present state of chaos through the consolidation of Fallen
 Angelic invasion forces in the September 7-12, 2000, formation of the UIR.
-                     
                 THE OCTOBER 1999 CLASSIFIED DOCUMENT, 
                   PSYCHOTRONICS, MONTAUK AND OWO 
     In the only ''Classifie'' dispensation of data the GA had ever given, a
@@ -211,8 +198,6 @@ Covenant Crisis Prevention Initiative failed. The Emerald Covenant
 Founders’ races had deemed the October 1999 Classified information
 unsuitable for public release at that time. They knew the information would
 generate unnecessary fear over events we might likely avert via GA Peace 
-344 
-                 
 
                                            The October I999 Classiﬁed Document, Psychotronics, Montauk and
  Efforts. These revelations of Illuminati activities would also serve to initiate
@@ -264,9 +249,7 @@ progression of ''Trigger Events'' through which this “Human War” would be
     and collectives, were intended to begin in 2002. The October 1999 classified
      document further explained that a smaller, less developed version of this            
 technology had been tested by the Rigelian Zeta-Dracos Alliance in the area  
-             345  
 
-     
        The 9/11 WTC/Pentagon Attack and the Illuminati One World Order
 of Bosnia, and that it was “working successfully” to instigate Human
 political unrest. The document further revealed that between June-July
@@ -313,16 +296,9 @@ Bridge” on a “12-Code Pulse” during the “Transcendence Day Stand” of
 January 1, 2000. With this accomplishment, Emerald Covenant nations
 were finally “in the game” and had a decent chance of protecting Earth and
 humanity from the advancing Illuminati OWO agenda and Nibiruian
-                        __________________________
-                 
                      9.     GA began immediate intervention measures, but due to Nibiruian Anunnaki hold over
                              the Crystal Temple Network, could not fully prevent the Phantom Pulse transmissions
-                   
-                  346
-                 
-               
 
-                                    
                                                      Sleepers, Terrorists, Remote Viewing, RITs and the NET
 Council mandate of Human Genocide. The “Frequency War” was on
 between the Guardian and Fallen Angelic nations; the victor would control
@@ -370,10 +346,7 @@ global war, as covert militia operatives. The GA intended to warn the
 public of any known Sleeper activity if that ''time ever came.'' Our
 attentions were focused upon securing Earth’s Templar from further Fallen
 Angelic/Intruder ET infiltration and upon peacefully preventing further
-347 
-                                                                                                                                      
 
-                      
                        The 9/11 WTC/ Pentagon Attack and the Illuminati One World Order
 advancement of the Zeta-Dracos-Anunnaki Illuminati OWO Master Plan
 through Masters Planetary Templar Mechanics, in order to prevent WW3.
@@ -421,14 +394,7 @@ integration, which presents the opportunity for the personal Soul, Over-Soul
         collectives, whose higher station of consciousness are also corrupted into
            exploitative,power-conquest agendas. Non-terrestrial Master RITs often       
        target Human and Illuminati individuals for intended ''bio-energetic field/
-         
-          
-           348 
- 
- 
-   
 
-                            
                                                    Sleepers, Terrorists, Remote Viewing, RITs and the NET
 Astral Attachment,” or in some cases for partial or full-body possession via
 DNA Template bonding.The lower echelons of Illuminati RITs are often sent to deliver
@@ -478,12 +444,7 @@ NDC-Grid and Nibiruian Crystal Temple Network. In 9558 BC the
 Anunnaki fortified the NET, as they have at various times since then,
 progressively intercepting all natural electrical transmission lines to and from
             Earth. Since 9558 BC the Anunnaki have been preparing the NET to be
-                           
-                            349 
-                        
 
-                    
-                       
                          The 9/11 WTC Pentagon Attack and the Illuminati One World Order
 “lowered” into D-3 frequency bands as a Frequency Fence, through which
 they intended to gain easy control over Earth populations during their
@@ -531,13 +492,8 @@ technologies that would be needed to “lower the Frequency Fence” into the
 D-3 frequency bands. The “man-made” electrical grid networks of Earth, and
 literally all core radio, television, fiber optics, digital, EM pulse, sonic pulse
 and microchip technologies have emerged in human civilization through the
-                           _______________________                                                                             
-                  
                       10. “Galactic Federation” has been the primary “NET Maintenance Crew.”
-                       350 
 
- 
-                             
                                                      Sleepers, Terrorists, Remote Viewing, RITs and the NET
 “genius” of people selected for covert “Fallen Angelic/Intruder ET
 inspiration.” If Emerald Covenant races had been able to provide humanity’s
@@ -588,13 +544,7 @@ Life Force Currents through the body, which are needed to run RRTs into
   (Atlantis revisited! ). 
             But now that these technologies are here, they can be used to promote  
                  well being rather than damage. (We are not an “anti-technology” religious-  
- 
-              351 
-                       
-                                                                                                                              
 
-                             
-               
                         The 9/11 WTC/ Pentagon Attack and the Illuminati One World Order
 dogma group!) At the expense of sounding redundant, I will point out that
 the D-12 frequencies generated in the personal biology via consistent use of
@@ -642,7 +592,4 @@ forces that have been collectively orchestrating the Atlantian Conspiracy,
                   the roots of which go back over 200,000 years. All of these competing
                     OWO Fallen Angelic/Intruder ET dominion agendas have always shared one
                            core ''Prime Initiative''—full physical conquest of surface Earth as the 
-             
-                           _______________________
-                             11.       See Crystal Pylon Temples, in Forbidden Testaments of Revelation, forthcoming  
-                              352
+                             11.       See Crystal Pylon Temples, in Forbidden Testaments of Revelation, forthcoming

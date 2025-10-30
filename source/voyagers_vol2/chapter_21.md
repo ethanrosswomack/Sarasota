@@ -1,7 +1,5 @@
 # Chapter 21
 
-                                                                        
-                                                                                          UIR OWO Master Plan Agenda
 and Islam together under the common banner of anti-terrorism, while
 Islamic extremists use their religion as an excuse for destruction of others
 different than themselves. Although there are definite advantages to such
@@ -50,17 +48,11 @@ physically pole shift if they cannot hold the progressive infusion of frequencie
 that naturally emerge through the Planetary Templar during SACs. Masters
 Planetary Templar Mechanics are the only tools through which such core
 challenges of planetary physics can be overcome. We need to start paying 
-413  
 
-                        
-                       
                         HAARPs, Trumpets, Horsemen, and Heaven
-          
                         active attention to this greater reality if we hope to pass through the 2000
                           2017 SAC with any degree of safety. 
-        
                        DECODING “REVELATIONS”—THE OWO  SCHEDULE
- 
     Since the Jehovian Annunaki Fallen Angelics’ edited, and partially re-
 wrote, the original Essene Emerald Covenant CDT-Plate translations that
 were supposed to be the foundations for the Holy Bible, we have been
@@ -106,9 +98,7 @@ the Jehovian Anunnaki’s intended invasion schedule. The reason that it is
 pertinent to briefly explore the ''Revelations Schedule'' has to do directly
 with the ''Four Horsemen of the Apocalypse'' element, the Horsemen that
          are released upon the Earth to begin delivery of the “wrath of God  
-                           414 
 
-                                                              
                                                                      Decoding ''Revelations''—the OWO Schedule
 (Jehovah),” with ''opening'' of the first four of ''Seven Seals." We need to
 understand the truths that Revelations has been hiding from us, because
@@ -149,7 +139,6 @@ competing OWO dominion campaign against the competing Nibiruian
 Annunaki group during the 2000-2017 SAC. 
       It is time to pay attention, folks! lt is no coincidence that four months
 after release of the Second Seal and Red ''Horsemen'' (the one “given the
-                             ____________________________________
 8.    Refers to Sagittarius constellation, Lagoon-''Hourglass Nebula''
 9.    Refers to Nebula double halo.
 10.  Biblical “swords” refer to specific photo-radionic light frequencies.
@@ -160,10 +149,7 @@ after release of the Second Seal and Red ''Horsemen'' (the one “given the
 14.  Both refer directly to a visual anomaly that naturally occurs when Earth passes into the
        Three-Day Particle Conversion Period of a SAC. See page 223.
 15.  Refers to the D-3 reality plane, where we all presently live.   
-415                               
-  
 
-                        
                          HAARPs, Trumpets, Horsemen, and Heaven
 power to take peace from the Earth and make men slay each other”) that we
 suddenly find our nations immersed within the “New War on Terrorism.”
@@ -177,9 +163,7 @@ collective planetary well-being that we finally comprehend the real meaning
 of the ''Four Horsemen of the Apocalypse,'' the ''Seven Seals'' and the
 ''Seven Angels with Seven Trumpets.'' Here follows the truth of what we
 will all move through during the next seven years of the SAC. 
-                            
                    REVELATIONS AND “SAINT JOHN THE DIVINE” 
-              
            In the Jehovian Annunaki falsification of original Essene scripture,
 there were numerous historical references to the “Trumpets of God” and
 their powers to render the “Wrath of God” on behalf of the “righteous.”16 As
@@ -211,13 +195,9 @@ Atlantian Emerald Covenant Revelation story.
  Melchizedek mother and Jehovian Annu-Melchizedek father. The Jehovian
  Annunaki used this individual, through astral Tagging, via their portion of  
  the NET, to bring “prophecy” that would prepare those who followed to
-                         ________________________
                  16. The true God Spirit is not wrathful, nor vengeful, but immature Fallen Angelic Annunaki
                                          and Anu-Elohim false godlets are.
-                               416
 
-                                  
-                                                        
                                                     The “Seven Churches,” “Seven Angels” and “the Dove"
 fulfill the Jehovian OWO agenda. Emerald Covenant teachings of the D-8
 Gold light fields of Orion Mintaka, Universal Star Gate-8, were distorted
@@ -234,9 +214,7 @@ behavior of Planetary Seals during the anticipated 2000-2017 SAC. The
 Jehovian Revelation story audaciously depicted what the Jehovians intended
 to do to Earth’s Planetary Shields, during the Final Conflict drama that
 was scheduled to unfold between 2000-2017. 
-   
                            THE “SEVEN CHURCHES, ” “SEVEN ANGELS” AND “THE DOVE”
-             
        The ''Angel'' word in the Jehovian Revelations story does not refer to
        singular ''Divine People.'' The symbol code of ''angel'' was used to represent
     an advanced technology called the Jehovian Hyperdimensional Cone,
@@ -269,11 +247,7 @@ of the original 22,326 BC HD-C technology.
 access point like “cracks,” into control areas of Earth’s Planetary Shields. The  
 areas of Earth in which the HD-C implants were placed were linked to the   
 portion of D-7 Universal Star Gate-7 Arcturus that was under Jehovian  
-      417       
-                                                                                                                                                                                  
 
-                       
-                    
                         HAARPs, Trumpets, Horsemen, and Heaven
 Annunaki and Annu-Elohim dominion. Seven massive Crystal Pylon
 Selenite Rods were placed within the Arcturian SG-7 control grid, before
@@ -324,10 +298,7 @@ sonic ULF Scalar Pulse transmitters that are capable of sending Targeted
 Sub-sonic Scalar Pulses through the Dove Matrix network grid lines of
 Earth, to very precise targets. Like the Falcon and the Phoenix, the Dove
             Matrix is a powerful weapons system, especially when combined with the
-                    418 
 
-                              
-                                                 
                                                 The Seven Seals and the Four Horsemen of the Apocalypse
 advanced “Trumpet” technology, as the ancient peoples of Jericho and
 Babylon unfortunately discovered too late, when the “walls came tumbling
@@ -349,10 +320,8 @@ the seven largest HD-Cs are placed—the “Seven Angels of the Seven
 Churches” in the Jehovian “Revelations” story. The “Seven Angels of
 Jehovian  Destruction”17 are anchored into Earth’s Planetary Shields through
 the ''Seven Seals of Jehovah.'' 
-                                              
                                                                THE SEVEN SEALS
                                    AND THE FOUR HORSEMEN OF THE APOCALYPSE
-        
      The seven “anchoring rods,” or ''Seven Jehovian Seals,'' of the Seven
 Prime HD-Cs of the Dove APIN system were placed in Earth’s Planetary
 Shields specifically on one vertical column, horizontally across from certain
@@ -372,16 +341,12 @@ frequency from the Star Gate above and below to blend.18 The Seven
 Jehovian Seals that hold the Seven “Angels”/Prime HD-C implants of the
 Dove APIN system, which link via sub-space sonic frequency bands to the
 Seven Pylon Selenite Rods of Arcturus,19 were placed in correspondence to
-                 
-                       ________________________________________ 
                               17.   Seven Prime HD-C links to the Seven Arcturian Pylon Selenite Rods
                         18.  The Star Crystal and Seed Crystal Seals within the Human DNA Template and personal
                            ''Inner Templar" operate the same way to create DNA Strand Braiding for Atomic
                                          Transmutation and Star Gate passage( ascension).
                                  19.    Seven "Churches/Candlesticks/Spirits of Jehovah God”
-                                419
 
-                
                         HAARPs, Trumpets, Horsemen, and Heaven
 Seven of Earth’s Natural Star Crystal Seals. During a SAC, the ''Seven
 Unholy Jehovian Angels'' were intended to sequentially activate in response
@@ -431,5 +396,4 @@ Sofia, Bulgaria, which carries the D-11/10 “Density-3 blue-black and silver-
 black black light spectra,'' or the ''Black Horse'' carrier wave. 
             Jehovian HD-C Seal-4, the ''Pale Horseman,'' placed on A7 vertical,
                    latitude 24.92° N, east of Nassau, Bahamas, corresponds to Earth Seal-8 SW
-               Las Palmas, Canary Islands, which carries the D-6/7 ''Pale'' Density-2 Semi-  
-                          420   
+               Las Palmas, Canary Islands, which carries the D-6/7 ''Pale'' Density-2 Semi-
