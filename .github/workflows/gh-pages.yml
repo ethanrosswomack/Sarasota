@@ -23,6 +23,7 @@ jobs:
         run: |
           python -m pip install --upgrade pip
           pip install sphinx
+          pip install myst-parser furo
       - name: Build documentation
         run: make html
       - name: Upload artifact
