@@ -27,41 +27,44 @@ voyagers_index = {}
 def load_voyagers_content():
     """Load and index all Voyagers content"""
     global voyagers_index
-    
+
     print("Loading Voyagers content...")
     content_dirs = [
         Path("source/voyagers_vol2"),
         # Path("source/voyagers_1")  # Add Vol 1 later
     ]
-    
+
     for content_dir in content_dirs:
         if not content_dir.exists():
             continue
-            
+
         for md_file in content_dir.glob("*.md"):
             with open(md_file, 'r', encoding='utf-8') as f:
                 content = f.read()
-                
+
             # Extract chapter number and title
             chapter_match = re.search(r'# Chapter (\d+):?\s*(.+)?', content)
             if chapter_match:
                 chapter_num = chapter_match.group(1)
                 chapter_title = chapter_match.group(2) or f"Chapter {chapter_num}"
-                
+
                 # Split into chunks (paragraphs)
                 paragraphs = [p.strip() for p in content.split('\n\n') if p.strip() and not p.startswith('#')]
-                
+
                 volume = "Volume II" if "vol2" in str(content_dir) else "Volume I"
-                
+
                 voyagers_index[f"{volume}_ch{chapter_num}"] = {
                     "volume": volume,
                     "chapter": chapter_num,
                     "title": chapter_title,
                     "content": content,
-                    "paragraphs": paragraphs[:100]  # Limit to first 100 paragraphs
+                    "paragraphs": paragraphs[:100]
                 }
-    
+
     print(f"Loaded {len(voyagers_index)} chapters")
+
+# 🔹 NEW: load index as soon as the module is imported
+load_voyagers_content()
 
 def search_relevant_content(query, top_k=3):
     """Search for relevant paragraphs across all chapters"""
