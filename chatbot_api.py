@@ -201,9 +201,5 @@ def health():
     })
 
 if __name__ == '__main__':
-    # Load content on startup
-    load_voyagers_content()
-    
-    # Run Flask app (debug=False for production security)
     port = int(os.environ.get('PORT', 8080))
     app.run(host='0.0.0.0', port=port, debug=False)
