@@ -67,4 +67,5 @@ html_css_files = [
 html_js_files = [
     'reading-progress.js',
     'chatbot-widget.js',
+    'sphinx_chat.js',
 ]
