@@ -226,4 +226,289 @@
       .message-content {
         padding: 12px 16px;
         border-radius: 12px;
-        line-height
+        line-height: 1.5;
+        font-size: 14px;
+      }
+      
+      .chat-message.user .message-content {
+        background: linear-gradient(135deg, #7cd992, #5bc978);
+        color: #1a0f2e;
+      }
+      
+      .chat-message.assistant .message-content {
+        background: rgba(61, 41, 82, 0.6);
+        color: #e8dff5;
+        border: 1px solid rgba(126, 217, 146, 0.2);
+      }
+      
+      .message-sources {
+        font-size: 11px;
+        color: #9fe6ad;
+        margin-top: 6px;
+        padding-left: 16px;
+      }
+      
+      .chat-input-container {
+        padding: 12px;
+        background: rgba(42, 27, 61, 0.8);
+        border-top: 1px solid rgba(126, 217, 146, 0.2);
+        display: flex;
+        gap: 8px;
+      }
+      
+      .chat-input {
+        flex: 1;
+        background: rgba(26, 15, 46, 0.8);
+        border: 1px solid rgba(126, 217, 146, 0.3);
+        border-radius: 8px;
+        padding: 10px 12px;
+        color: #e8dff5;
+        font-size: 14px;
+        resize: none;
+        font-family: inherit;
+        max-height: 120px;
+      }
+      
+      .chat-input:focus {
+        outline: none;
+        border-color: #7cd992;
+        box-shadow: 0 0 10px rgba(124, 217, 146, 0.2);
+      }
+      
+      .chat-send-btn {
+        background: linear-gradient(135deg, #7cd992, #5bc978);
+        border: none;
+        border-radius: 8px;
+        width: 44px;
+        height: 44px;
+        display: flex;
+        align-items: center;
+        justify-content: center;
+        cursor: pointer;
+        color: #1a0f2e;
+        transition: all 0.2s;
+      }
+      
+      .chat-send-btn:hover {
+        transform: scale(1.05);
+        box-shadow: 0 4px 12px rgba(92, 201, 120, 0.4);
+      }
+      
+      .chat-send-btn:disabled {
+        opacity: 0.5;
+        cursor: not-allowed;
+      }
+      
+      .typing-indicator {
+        display: flex;
+        gap: 4px;
+        padding: 12px 16px;
+      }
+      
+      .typing-dot {
+        width: 8px;
+        height: 8px;
+        border-radius: 50%;
+        background: #7cd992;
+        animation: typing 1.4s infinite;
+      }
+      
+      .typing-dot:nth-child(2) {
+        animation-delay: 0.2s;
+      }
+      
+      .typing-dot:nth-child(3) {
+        animation-delay: 0.4s;
+      }
+      
+      @keyframes typing {
+        0%, 60%, 100% {
+          opacity: 0.3;
+          transform: scale(0.8);
+        }
+        30% {
+          opacity: 1;
+          transform: scale(1);
+        }
+      }
+      
+      @media (max-width: 480px) {
+        .chat-window {
+          width: calc(100vw - 40px);
+          height: calc(100vh - 80px);
+          bottom: 20px;
+          right: 20px;
+        }
+      }
+    `;
+    document.head.appendChild(style);
+  }
+
+  /**
+   * Toggle chat window
+   */
+  function toggleChat() {
+    const container = document.getElementById('voyagers-chatbot');
+    chatOpen = !chatOpen;
+    
+    if (chatOpen) {
+      container.classList.remove('closed');
+      container.classList.add('open');
+      document.getElementById('chat-input').focus();
+    } else {
+      container.classList.remove('open');
+      container.classList.add('closed');
+    }
+  }
+
+  /**
+   * Add message to chat
+   */
+  function addMessage(content, isUser, sources = null) {
+    const messagesContainer = document.getElementById('chat-messages');
+    const messageDiv = document.createElement('div');
+    messageDiv.className = `chat-message ${isUser ? 'user' : 'assistant'}`;
+    
+    const contentDiv = document.createElement('div');
+    contentDiv.className = 'message-content';
+    contentDiv.textContent = content;
+    messageDiv.appendChild(contentDiv);
+    
+    if (sources && sources.length > 0) {
+      const sourcesDiv = document.createElement('div');
+      sourcesDiv.className = 'message-sources';
+      sourcesDiv.textContent = '📚 Sources: ' + sources.map(s => 
+        `${s.volume} Ch${s.chapter}`
+      ).join(', ');
+      messageDiv.appendChild(sourcesDiv);
+    }
+    
+    messagesContainer.appendChild(messageDiv);
+    messagesContainer.scrollTop = messagesContainer.scrollHeight;
+  }
+
+  /**
+   * Show typing indicator
+   */
+  function showTyping() {
+    const messagesContainer = document.getElementById('chat-messages');
+    const typingDiv = document.createElement('div');
+    typingDiv.id = 'typing-indicator';
+    typingDiv.className = 'chat-message assistant';
+    typingDiv.innerHTML = `
+      <div class="message-content typing-indicator">
+        <div class="typing-dot"></div>
+        <div class="typing-dot"></div>
+        <div class="typing-dot"></div>
+      </div>
+    `;
+    messagesContainer.appendChild(typingDiv);
+    messagesContainer.scrollTop = messagesContainer.scrollHeight;
+  }
+
+  /**
+   * Hide typing indicator
+   */
+  function hideTyping() {
+    const typing = document.getElementById('typing-indicator');
+    if (typing) typing.remove();
+  }
+
+  /**
+   * Send message to API (via Worker → Voyagers daemon)
+   */
+  async function sendMessage(message) {
+    const sendBtn = document.getElementById('chat-send-btn');
+    const input = document.getElementById('chat-input');
+    
+    sendBtn.disabled = true;
+    showTyping();
+    
+    try {
+      const response = await fetch(API_URL, {
+        method: 'POST',
+        headers: {
+          'Content-Type': 'application/json',
+        },
+        // Voyagers API expects { question }
+        body: JSON.stringify({ question: message })
+      });
+      
+      if (!response.ok) {
+        throw new Error('Failed to get response');
+      }
+      
+      const data = await response.json();
+      hideTyping();
+
+      // data.answer = answer text
+      // data.chunks = [{ source: 'voyagers_2', page: 25, ... }, ...]
+      const sources =
+        Array.isArray(data.chunks)
+          ? data.chunks.map(c => ({
+              volume: c.source === 'voyagers_1' ? 'V1' : 'V2',
+              chapter: `p.${c.page}`,
+            }))
+          : [];
+
+      addMessage(data.answer || 'No answer returned from Voyagers API.', false, sources);
+      
+    } catch (error) {
+      hideTyping();
+      addMessage('Sorry, I encountered an error. Please try again.', false);
+      console.error('Chat error:', error);
+    } finally {
+      sendBtn.disabled = false;
+      input.value = '';
+      input.style.height = 'auto';
+    }
+  }
+
+  /**
+   * Handle send button click
+   */
+  function handleSend() {
+    const input = document.getElementById('chat-input');
+    const message = input.value.trim();
+    
+    if (!message) return;
+    
+    addMessage(message, true);
+    conversationHistory.push({ role: 'user', content: message });
+    sendMessage(message);
+  }
+
+  /**
+   * Initialize chatbot
+   */
+  function init() {
+    addStyles();
+    createChatWidget();
+    
+    // Event listeners
+    document.getElementById('chat-toggle-btn').addEventListener('click', toggleChat);
+    document.getElementById('chat-close-btn').addEventListener('click', toggleChat);
+    document.getElementById('chat-send-btn').addEventListener('click', handleSend);
+    
+    const input = document.getElementById('chat-input');
+    input.addEventListener('keypress', (e) => {
+      if (e.key === 'Enter' && !e.shiftKey) {
+        e.preventDefault();
+        handleSend();
+      }
+    });
+    
+    // Auto-resize textarea
+    input.addEventListener('input', function() {
+      this.style.height = 'auto';
+      this.style.height = Math.min(this.scrollHeight, 120) + 'px';
+    });
+  }
+
+  // Initialize when DOM is ready
+  if (document.readyState === 'loading') {
+    document.addEventListener('DOMContentLoaded', init);
+  } else {
+    init();
+  }
+})();
