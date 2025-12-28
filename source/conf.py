@@ -16,6 +16,8 @@ release = '2025'
 
 extensions = ['myst_parser', 'sphinx.ext.autodoc']
 
+html_baseurl = "https://sphinxguardian.com/"
+
 myst_enable_extensions = [
     "colon_fence",
     "deflist",
@@ -33,7 +35,13 @@ source_suffix = {
     '.md': 'markdown',
 }
 templates_path = ['_templates']
-exclude_patterns = ['_build', 'Thumbs.db', '.DS_Store', '**/.ipynb_checkpoints/*']
+# Exclude the large collection of individual fragments used during the
+# conversion of Voyagers Volume II.  Without this exclusion Sphinx will
+# treat each fragment as an orphan page, which can slow down the build
+# and clutter the output.  We refer to the volume via a single
+# chaptered document instead.
+exclude_patterns = ['_build', 'Thumbs.db', '.DS_Store', '**/.ipynb_checkpoints/*',
+                    'voyagers_2/*']
 
 
 
@@ -44,8 +52,20 @@ html_theme = 'furo'
 
 html_theme_options = {
     "light_logo": "logo-light.png",
-    "dark_logo": "logo-dark.png"
+    "dark_logo": "logo-dark.png",
+    "dark_css_variables": {
+        "color-brand-primary": "#7cd992",
+        "color-brand-content": "#9fe6ad",
+    },
 }
 
 html_static_path = ['_static']
-exclude_patterns = ['_build', 'Thumbs.db', '.DS_Store', '**/.ipynb_checkpoints/*']
+html_css_files = [
+    'custom.css',
+    'mobile-enhancements.css',
+]
+html_js_files = [
+    'reading-progress.js',
+    'chatbot-widget.js',
+    'sphinx_chat.js',
+]

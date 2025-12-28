@@ -1,0 +1,29 @@
+# Traefik dynamic config: expose voyagers-api via Traefik router -> host port 8000
+# Adjust `servers.url` to the correct address reachable from Traefik (host.docker.internal, LAN IP, or container name)
+http:
+  routers:
+    voyagers-api:
+      rule: Host(`voyagers-api.aetherintelligence.net`)
+      entryPoints:
+        - websecure
+      tls:
+        certResolver: cloudflare
+      service: voyagers-api-svc
+
+  services:
+    voyagers-api-svc:
+      loadBalancer:
+        servers:
+          # If Traefik is running in Docker and can resolve the host by name, use that.
+          # Example: if your host is accessible as "omniversal-core" to Traefik, use:
+          - url: "http://omniversal-core:8000"
+
+          # Common alternatives:
+          # - url: "http://host.docker.internal:8000"
+          # - url: "http://192.168.1.123:8000"  # your host LAN IP
+
+# Notes:
+# - Place this file where your Traefik dynamic configuration is read from.
+# - Restart or reload Traefik after adding the file.
+# - Make sure the DNS for voyagers-api.aetherintelligence.net points to your Traefik entrypoint IP
+#   (and enable Cloudflare proxy if you want additional protection).

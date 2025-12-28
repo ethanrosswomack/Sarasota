@@ -1,0 +1,924 @@
+# Chapter 19
+
+   
+      The Sacred Cow, Faces of Man, Easter Island Heads and the Trion Field
+of Man” LPIN of Earth emerges from a central point in Earth’s geography in
+the Gulf of Guinea, where the ''chins'' of the “four heads” meet at Longitude
+0° and Latitude 0°, where the vertical Greenwich Meridian intersects the
+Equator. From this center point, each “head” extends as a pillar, two running
+horizontally east/west, one above and one below the equator, and two
+running vertically north/south, one on each side of the Greenwich Meridian.
+The “four Pillars of the Faces of Man” intersect again, where the “front tops
+of their heads” connect at Longitude 180° E-W and Latitude 0°, near
+Howland Island in the Equatorial Center Pacific Ocean. (See APIN
+diagrams pp. 527-530.) 
+   Though Fallen Angelics have made numerous attempts at
+compromising the four Faces of Man LPIN system since its installation in
+22,500 BC, none have succeeded in “cracking its coding.” The four Faces of
+Man LPIN runs on what is called the Khundaray/Kee-Ra-ShA Primal Life
+Force Currents from dimensions 13-14-15 and the Trans-Harmonic
+“Trion” Currents from beyond this Time Matrix. These powerful interstellar
+frequencies are far beyond the range and power of those accessible to Fallen
+Angelic races. Once brought into critical mass activation, through Humans
+and Indigos running “Tri-Veca Rainbow Roundtables,” the four Faces of
+Man and Guardians of the 12 Pillars LPIN system will rapidly clear and
+override Planetary Shield distortions caused by the APIN systems of the
+Fallen Angelics. Activation of the four Faces of Man will progressively bring
+the Emerald Covenant ''Great White Lion'' and ''Golden Eagle'' APIN
+systems fully into original working order, allowing Earth’s grids to remain
+balanced as the Phantom Matrix wormholes are sealed during the 2001-
+2004 period of the present SAC. The Great White Lion, Golden Eagle and
+the four Faces of Man are the ancient ''Guardians of the Four Corners of
+the Earth.'' If humanity assists the Emerald Covenant races in “Awakening
+the Ancient Guardians''-the LPIN/APIN systems left behind as our
+Lumerian/Atlantian Legacy—further progression of the UIR OWO
+dominion agenda can be averted. 
+                         ____________________________________________________________      
+                   If we do not assist, the Illuminati agenda will continue,
+         leading humanity into global War, physical “Intruder ET” Invasion,
+                                    and pole shift between 2003-2008.
+                        ____________________________________________________________    
+       
+      If we do not think the potential dangers of the Fallen Angelic/Illuminati
+OWO agenda are real, perhaps  this  point  will  be  ''driven home''  if  we  explore
+a bit more about how the agendas of the Falcon, the Dove, the Serpent, the
+Phoenix and the Dragon have unfolded since 1951. It is the progressive
+advancement  and  final   amalgamation  of     these   fallen   Angelic   agendas  that
+brought us to the ''Trigger Event'' of the September 11, 2001, WTC/Pen-
+tagon Terrorist Attack, and the grim   reality of   progressive international
+war that this Trigger Event was intended to set in motion.  
+373                                    
+                                                                                                                              
+                        
+
+                        
+                        The Hidden Game-board Final Conﬂict Drama
+                                                           THE FALCON, PHOENIX PROJECT
+                                   AND THE ANDROMIE-RIGELIAN COALITION 1951-1983
+                                          
+     In 1951, the Alpha-Omega Necromiton-Andromie-Anunnaki
+accepted “deals” of collaboration offered b the Jehovian Anunnaki “Dove”
+collective, through which they would combine the stolen ''White Eagle'' and
+the specialized Jehovian ''Dove'' APIN systems. (See APIN diagrams pp.
+527-530.) Together, the ''White Eagle'' and the ''Dove'' would attempt to
+open the second ancient Atlantian Wormhole, the ''Phoenix Wormhole,'' in
+order to claim dominion over the Zeta-Rigelian/Drakonian Falcon
+Wormhole and Phi-Ex Port Interface Network. The Eagle-Dove Anunnaki
+collective was unable to successfully open the Phoenix wormhole, at
+Axiatonal Line-7/Ley Line-4, until the opportunity presented itself in 1972
+as other Anunnaki forces who controlled the ancient Phoenix and Serpent
+APIN systems accomplished the feat for them. Presently, due to the 1951
+Alpha-Omega Necromiton and Jehovian Anunnaki alliances, the “Eagle
+flies with the Dove,” and since September 12, 2000, these combined forces
+have made further deals with the ''Falcon,'' ''Phoenix,'' ''Serpent'' and
+“Dragon,” to form the collective anti-Christiac force of the UIR OWO
+dominion campaign. The Jehovian Dove and Necromiton-Andromie “White
+Eagle” progressively launched sonic scalar pulse transmissions throughout
+the 1950s, in hopes of opening the ancient Phoenix wormhole to defeat the
+rising Zeta-Rigelian/Drakonian Falcon. The Sonic Pulse and ''Ethnic Virus''
+testing programs of the covert ''Falcon'' were accelerated in the 1960s, when
+they and the Drakonian Illuminati began using the Falcon Network to create
+targeted climatic and seismic disturbances to further their hidden political-
+positioning agendas in the international arena. The Andromie-Necromiton
+White Eagle and Jehovian Dove forces continued a quiet invasion strategy of
+building subterranean and marine bases in key Star Gate control areas of
+Earth, and began making more direct contact with key controllers in several
+Illuminati factions. The various competing Pleiadian and Nibiruian
+Luciferian Anunnaki forces were “in a tizzy,” as they watched their long-
+cosseted, exquisitely orchestrated, Atlantian take-over agenda become
+progressively “hi-jacked” by the Drakonian force. 
+     In 1972 the Zeta-Drakonian Falcon force began to expand the next
+intended wave of territorial conquest, attempting to use the Phi-Ex
+Network to gain control over the Anunnaki’s “prize possession,” the Great
+Pyramid of Giza, Egypt. Since Atlantis, Planetary Star Gate-4 at Giza has
+assisted the Anunnaki in controlling the D-4 NET, as it is the site where
+Universal Star Gate-4, the D-4 astral Solar Gate, connects to Earth’s
+Planetary Shields. The Luciferian Anunnaki intervened directly in 1972,
+in a partially successful attempt at preventing the Zeta-Drakonian Falcon
+Phi-Ex Network from overtaking Anunnaki holdings at Giza. The Pleiadian
+Samjase-Luciferian-Anunnaki made alliances with the Nibiruian Enlil-
+Odedicron-Reptilian Anunnaki. Together they used the portions of the
+NDC Grid, the NET and Nibiruian Crystal Temple Network that they could
+collectively access, to expedite the agenda they had originally intended for
+the 2000 commencement of the SAC. 
+374    
+                        
+
+     
+                                                                                                 
+                                                                                              The Falcon, Phoenix Project...
+    The ''Phoenix Project,'' which had existed since the beginning as part of
+the 9560 BC Luciferian Covenant, was actively launched in February 1972.
+The Pleiadian/Enlil-Nibiruian Anunnaki force simultaneously transmitted
+sub-space scalar sonic pulses from Density-2 Alcyone and the Nibiruian
+Battlestar “Wormwood” into the D-4 Solar Gate to Giza (Ley Line-4), Iran
+(Star Gate-10) and into Earth’s NDC-Grid at Stonehenge, England
+(Axiatonal Line-l1, or A11). The specialized A11-L4 pulses merged at their
+intersection point in the Atlas Mountains of W. Algeria then traveled west
+beneath the Atlantic Ocean to their intended destination, the second of the
+two “capped” Atlantian Wormholes, referred to since Atlantian days as the
+“Phoenix Matrix.” The Phoenix wormhole, opened by the Pleiadian-
+Nibiruian Anunnaki in 1972, is positioned directly at the interface point of
+Ley Line-4, the ''Giza Horizontal,'' and Axiatonal Line-7 (vertical), which
+intersect off the coast of St. Augustine, FL, in the Atlantic, directly south
+of the Falcon wormhole. The “Frequency War” began in earnest when the
+Necromiton-Andromie White Eagle and Jehovian Anunnaki Dove began
+aggressive territorial conquest campaigns, gaining partial control of the
+Phoenix Wormhole, in an attempt to protect their interests from the
+advancing Pleiadian-Nibiruian Anunnaki competition. 
+     As the Pleiadian-Nibiruian “reptile Anunnaki league” advanced their
+agenda, the Jehovian Dove and Necromiton-Andromie White Eagle began
+more direct contact with their Illuminati Sleeper races. Enoch, then heading
+the Jehovian Dove OWO agenda, produced his “training manual” to lead
+unsuspecting Humans and Illuminati Sleepers to assist in bringing the Dove
+APIN system into activation. Although Enoch and some of his Jehovian
+Anunnaki (Sirius A, Arcturus, Trapezium, Orion) petitioned for Emerald
+Covenant Redemption Contracts in 1983, the “Jehovian OWO Agenda”
+has been continued by the Jehovian Anunnaki majority and their Illuminati
+contacts under the name of Enoch, much to Enoch’s present disapproval. The
+White Eagle Necromiton-Andromie league began upscaling its
+''Harvesting'' agenda, orchestrating numerous contacts with Illuminati and
+Human individuals to “invite” them into their Templar Alpha-Omega Order
+“Melchizedek Priesthood.” Ordinands and followers alike received,
+unknowingly, astral field Tagging linking their DNA Templates to the
+Necromiton-Andromie Matrix, through which they could unknowingly pass
+on the “same privilege” to others in the form of false “Melchizedek
+Ordinations.”4 As the Jehovians, Necromiton-Andromies and Zeta-
+Rigelian/Drakonians progressively advanced their agendas throughout the
+1970s into the early 1980s, giving rise to more international “political
+issues” of territorial conquest, the Pleiadian-Nibiruian Anunnaki continued
+their own conquest efforts. 
+    A series of smaller EM scalar pulses were used by the Pleiadian-
+Nibiruians between 1972 and 1980 to progressively open the ancient
+Phoenix APIN system, which connects to the Phoenix wormhole. The
+Phoenix APIN is a large APIN system running East-West along the L4/L10
+                          ____________________
+                         
+                                4.    Nothing outrages the Founders quite as much as observing the sacred Melchizedek Clois-
+                                           ter Emerald Covenant spiritual-science teachings abused and misused in such a way.    
+                                375  
+                                                         
+
+                                                                                                                                         
+                        
+                        The Hidden Game-board Final Conﬂict Drama
+                  Giza-Iran center line. The ''hear'' of the Phoenix is Star Gate-4 Giza,
+Egypt; the ''eye'' of the Phoenix is Star Gate-10 Abadan-Iran (near Persian
+Gulf); the body of the Phoenix extends across the Atlantic and North
+American continent; and its wings spread eastward to “meet its tail” in the
+Pacific Ocean. (See APIN diagrams pp. 527-530.) 
+     In 1976, another Nibiruian Anunnaki contender, the Thoth-Enki-Zeta
+group, temporarily joined the Pleiadian Samjase-Luciferian and Nibiruian
+Enlil-Odedicron reptilian Anunnaki contingent to activate the ''Serpent''
+APIN system. The ''Thoth group,'' most frequently affiliated with the
+''Galactic Federation'' mixed Anunnaki league and the Necromiton-
+Andromie Anunnaki early alliances following the fall of Atlantis, “turned
+coats” for a brief period, just long enough to receive the assistance of the
+“Phoenix” group in activating the Thothian Serpent APIN system. The
+Serpent APIN system has its “head” in Central America and Mexico. It coils
+southward into northwestern South America, back northward, spanning the
+entire eastern USA, then stretches across the Atlantic Ocean, with its
+“heart” at England Star Gate-11, its body curving down through the Middle
+East and Star Gate-4 Giza, and its “tail” extending north through Eastern
+Asia. (See APIN diagrams pp. 527-530.) By 1983, the Thoth group returned
+to its “White Eagle” affiliations, once again competing with the Pleiadian-
+Nibiruian Anunnaki of the Phoenix Project, while the Galactic Federation
+focused upon supporting whomever appeared to be leading in the Fallen
+Angelic “race” for final OWO dominion. 
+       
+                           ANDROMIE-RIGELIAN COALITION, THE DRAGON, BIN LADEN
+                                          AND THE “WAR ON TERRORISM” 1980-2001
+                 
+   By the early 1980s, Pleiadian-Nibiruian Anunnaki legions had made
+alliances with various factions of the regained strongholds within several key
+positions of the Illuminati World Management Team, threatening previous
+Zeta/Drakonian Illuminati dominion. In hopes of retaining Zeta/Drakonian
+dominance within the covert global Interior Government sector, Zeta
+Rigelian races of Rigel Orion petitioned the assistance and collaboration of
+the Necromiton-Andromie races. The Rigelians negotiated between
+Drakonian-sympathetic factions of the “White Eagle” Necromiton-
+Andromies, and the Omicron-Drakonian and Odedicron-Reptilian legions of
+Orion, forming the Andromie-Rigelian Coalition; a ''friendly enemies'' deal
+aimed at disempowering the advancing ''Phoenix Project'' Anunnaki
+Illuminati influence on Earth. Not all Necromiton ''White Eagle'' factions
+agreed to participate in the pro-Drakonian agenda Andromie-Rigelian
+Coalition, due to favored connections among the ''Dove'' Jehovian
+Anunnaki races. The factions of the White Eagle Necromiton-Andromies
+that favored the Zeta-Rigelian/Drakonian Falcon agenda entered the
+Andromie-Rigelian Coalition, and began using their access to White Eagle
+APIN sites to further the Falcon agenda. The White Eagle Necromiton-
+Andromies opposed to the Falcon agenda offered greater support to Jehovian
+Anunnaki Dove factions, and Ashtar Command’s ''Arcturian'' Anunnaki
+lent their assistance to the White Eagle-Dove cause. Many Drakonian,
+Reptilian and non-Rigelian Zeta forces, opposed to or fearful of the  
+376 
+
+          
+   Andromie-Rigelians, Dragon, bin Laden and the “War On Terrorism”... 
+Necromiton-Andromie force, refused to enter the Andromie-Rigelian
+Coalition deals, and the Drakonian/Reptilian Illuminati races began
+breaking into opposing factions, causing ripples of further instability within
+the external world political drama. 
+    The majority of Omicron-Drakonians5 of Alnitak Orion, and a large
+faction of Odedicron-Avian-Reptiles from Alnilam-Orion, refused the
+Andromie-Rigelian Coalition ''White Eagle-Falcon'' deal, and set their sights
+on activating their ancient ''Dragon'' APIN system, which had been
+implanted in Earth’s grids in 75,500 BC. The Dragon APIN has its “head” in
+what is now far eastern Siberia and northeastem China and Japan. Its long,
+thick “body” extends westward across Asia, the Middle East, Africa, Russia,
+Europe, crosses the Atlantic ocean to the Central USA and south into
+South America. (See APIN diagrams pp. 527-530.) The majority of the
+''Dragon'' agenda races also refused to join the UIR deal of September 7-
+12, 2000, choosing instead to “fight to the end” for the Omicron/Odedicron
+Drakonian OWO agenda. 
+    In our contemporary drama, the Islamic extremist faction called the
+Taliban of Afghanistan, is headed by several, well-placed Illuminati that are
+covertly motivated by the Omicron-Odedicron ''Dragon'' agenda Fallen
+Angelics. The terrorist group of Osama bin Laden, on the other hand, works
+a ''double-agenda'' on behalf of the UIR Zeta-Rigelian “Falcons” and the
+Omicron-Odedicron Dragon force. In the WTC/Pentagon drama of
+September 11, 2001, the bin Laden group was covertly motivated by the
+UIR to assist them in creating the “Trigger Event” that is intended to set the
+''wheels'' of the WW3 drama in motion. The UIR also knew that this event
+of bin Laden terror would ensure that the rebelling Dragon agenda Taliban
+Illuminati would be forced out of power in Afghanistan, making way for
+UIR governance. As the UIR intended, the many Angelic Human and Maji
+populations of Afghanistan would be ''conveniently'' reduced in number
+through orchestration of this international drama. The bin Laden terrorist
+group evolved first under the Falcon agenda in the 1970s, covertly motivated
+by the Zeta-Rigelians with Psychotronic scalar pulses, to ''build the
+movement'' that was intended to become a Falcon ''Sleeper Cell Force,''
+once the Final-Conflict WW3 drama had begun. Due to the UIR’s present
+acceleration of their OWO dominion plan, the bin Laden group was instead
+used to set the UIR WW3 drama in motion. 
+    The Eieyani tell us that there are numerous such ''Illuminati Sleeper
+Cells'' of various ethnic, cultural and religious backgrounds in at least 15
+different countries. Various Fallen Angelics began organizing these
+Illuminati factions in the 1950s-1960s, in order to ''have them in place
+awaiting their awakening,'' when the Final Conﬂict began. The
+contemporary ''War On Terrorism'' goes much deeper and ''higher'' than
+world political leaders suppose; it is a war that cannot be won until the
+causal element of the hidden Fallen Angelic/Intruder ET presence is fully
+identified. The Final Conquest for Star Gate and Templar control site
+dominion is on, and the WW3 drama is the method by which the Fallen
+                             _________________________
+                             5.  Dragon-moths   
+                             
+                           
+                            
+                            377                                                                                                                   
+
+                           The Hidden Game-board Final Conﬂict Drama
+Angelics of the UIR intend to lay claim to desired territories, while
+reducing numbers of Angelic Human and Indigo Children populations.
+     Areas such as Pakistan, Iraq and Iran are territories housing key access
+sites to the coveted Star Gate-10, so these areas, as well as several others,
+will be preliminary “zones of conquest” that the UIR will attempt to secure
+under UIR Illuminati governance. Egypt, home of the OWO key control site
+Star Crate-4, will experience sporadic areas of rebellion as “Dragon” agenda
+Illuminati races are motivated by the Omicron-Drakonian forces to resist the
+national-compliance inherent to UIR objectives. 
+    Tibet, home of Star Gate-9, is also precariously perched to become the
+objective of competing Dragon and UIR-Dove “affections.” Jerusalem,
+Israel, has long been a battleground for control of Primary Planetary
+Vortex-2, a direct link to Star Gate-2, the Gru-AL “Holy Grail Point” of
+Sarasota, Florida, which is the ''control gate'' for Earth’s Planetary Shields.
+And the U.S.A. has been, since formalization of the Luciferian Covenant in
+9560 BC Atlantis, the intended arena within which the Fallen Angelic
+Final-Conﬂict drama ''Battle of Armageddon'' is planned to unfold, making
+way for the ''Rise of the One World Order.'' The Emerald Covenant races
+have repeatedly returned to Earth incarnation in attempts to prevent this
+Fallen-Angelic-devised ''End Times'' scenario from occurring. 
+          
+                   MONTAUK PROJECT, “WAR IN THE HEAVENS, ” 
+            SONIC PULSE AND “UN-NATURAL DISASTERS” 1983 
+    Through the Andromie-Rigelian Coalition deals of the early 1980s,
+Illuminati races originally running the Falcon agenda under command of the
+Rigelians and the Zeta Treaties suddenly found their 1930s Zeta Treaties
+were nullified. The fate of the Drakonian Illuminati was placed forcefully
+and precariously in the hands of the new, fully dictatorial Necromiton-
+controlled Andromie-Rigelian-Coalition. To strengthen the Necromitons’
+covert access to Earth territories, the 1983 Montauk Project was organized
+by the Necromiton-Andromie White Eagle and Zeta Rigelian/Drakonian
+Falcon forces, through cooperating (and now terrified of rebelling) Illuminati
+factions. 
+   Through the Montauk Project, the Phi-Ex Wormhole from 1943 was
+“spliced into,” directing a main channel to Necromiton-Andromie Alpha-
+Omega Centauri territories in the adjacent Phantom Time Matrix. The
+Necromiton races now had extensive access to Earth territories, and they
+began a covert genocide program against Illuminati races that would not join
+the Andromie-Rigelian Coalition. The Illuminati fiasco of the 1930s-1940s
+turned into the Illuminati chaos of 1983. In response to the threat of the
+Andromie-Rigelian Coalition, the Omicron-Drakonian forces of Alnitak
+Orion sent large fleets into the Density-26 and Density-37 territories
+surrounding Earth-Tara-Gala, with the intention of protecting the interests
+of the original Drakonian/Reptilian Dragon OWO agenda. In response to
+this advancing Drakonian/Reptilian presence, various competing Anunnaki
+________________________ 
+                              6.    Dimensions 4-5-6. 
+                                 7.    Dimensions 7-8-9.
+                               378                                                                                                              
+                                                                                                                                             
+
+                                                                                                  
+                                                
+                                         Guardian Intervention and the Bridge Zone Project 1983-1992
+legions of Sirius A, Arcturus, Pleiades-Alcyone, Nibiru, Andromeda,
+Orion, the Galactic Federation and Ashtar Command sent ﬂeets of
+reinforcements into proximity of Earth access points. 
+    Warring in Densities 2 and 38 broke out between competing Anunnaki
+and Drakonian/Reptilian forces, in both our Time Matrix and the Phantom
+Matrix. The ''war above'' became the covert ''War of Frequency'' below, as
+each group intensified its use of sub-space sonic scalar pulse technologies to
+secure their holdings of various APlN sites. The progressive use of covert
+sonic pulse technologies, which was progressively accelerated by the Fallen
+Angelic legions since the 1950s, was directly responsible for a host of
+regionally cataclysmic “natural disasters,” particularly those involving
+Earthquake and Hurricane events. (“Sonic Pulse “Un-Natural Disasters”
+1935-1992 Summary Chart” on page 522.) 
+                            
+                                     GUARDIAN INTERVENTION 
+                AND THE BRIDGE ZONE PROJECT 1983-1992
+ 
+      Throughout this mess of interstellar chaos at our earthly door, Emerald
+Covenant Maharaji fleets from Sirius B, Tara and Gaia and the many
+interstellar Emerald Covenant nations have tried to sustain a frequency
+“buffer zone” around Earth access points. The GA, Eieyani and Founders
+have done their best to prevent this growing intergalactic “Battle of the
+Angelic and Fallen Angelic Kingdoms” from descending into Density-1
+Earth territories. The Emerald Covenant Founders races of Lyra Aramatena9
+intervened directly. They became aware that by 2976 Earth would be
+destroyed, before the intervention opportunity of another SAC could occur,
+if Zeta Rigelian/Drakonian occupation of Earth was successful during the
+2000-2017 period. Between 1983-1984 the Founders, GA, lnterdimensional
+Association of Free Worlds and Emerald Covenant nations created the
+Bridge Zone Project crisis-intervention plan (see page 142). 
+   Through tenets of the Bridge Zone Project initiative, Amnesty
+Contracts were offered to any interstellar races in our Time Matrix willing to
+enter the Emerald Covenant Peace Treaty. Redemption Contracts were
+offered to the Fallen Angelic/ET races from the Phantom Matrix, in which
+they would receive the extensive assistance needed to become free from the
+Phantom Matrix Time Cycles, if they would enter and honor the Emerald
+Covenant. Many non-Rigelian Zeta races accepted Amnesty and
+Redemption Contracts, fearful of the building “Super-Stellar-powers Final
+Conflict” drama. Guardian races were hoping that Anunnaki legions could
+be persuaded to give up their long-held OWO dominion agenda to make a
+United Emerald Covenant Stand against the dominant Drakonian/Reptilian
+Necromiton-Andromie/Zeta-Rigelian “Falcon” force. Smaller factions of
+some Anunnaki collectives, such as the Jehovian Enoch collective of Sirius
+A, Arcturus and Orion, gave up their previous OWO Jehovian Anunnaki
+dominion agenda in 1983 for Emerald Covenant Redemption Contracts.
+___________________________ 
+8.    Dimensions 4-9. 
+9     Lyra Aramatena is Density-4, dimensions 10-11-12 and appears as the star “Double Dou-                                                                  
+       ble” in Lyra from Density-1 Earth view. 
+ 
+379  
+ 
+ 
+ 
+                                                                      
+
+                           
+                          The Hidden Game-board Final Conﬂict Drama
+Other Anunnaki factions, such as Ashtar Command, the Nibiruian-Thoth-
+Enki collective, the Galactic Federation, the Pleiadian-Samjase-Luciferian
+collective, the Marduke-Dramin collective, the Alpha-Omega Nephilim
+Annu-Melchizedeks and Necromiton-Andromies held onto their respective
+OWO agendas until their “ultimate stronghold” was considerably
+compromised in 1992. 
+                     
+                        THE PLEIADIAN-SIRIAN AGREEMENTS 
+                               AND HURRICANE ANDREW 1992
+ 
+    Since implementation of the NDC-Grid Photo-sonic installation and
+the NET of 25,500 BC Atlantis, the Anunnaki races have steadily moved
+their intended Atlantian Conspiracy Luciferian Covenant OWO dominion
+agenda forward through remote Photo-sonic control of Earth’s Planetary
+Templar Complex via the NDC-Grid.10 Throughout the progression of the
+1980s Andromie-Rigelian Coalition agenda, the Anunnaki races remained
+confident of their ultimate victory and OWO dominion within the pending
+2000-20I7 AD SAC Final-Conﬂict drama. The Anunnaki believed that they
+would be able to use the NET to awaken and manipulate enough of their
+civilian Illuminati Sleeper Races, and unsuspecting Human races within the
+''channeling'' movement, to make a stand against the Illuminati factions that
+they had lost to the Necromiton-controlled Andromie-Rigelian Coalition.
+The Anunnaki intended to use ''channelers'' to teach unsuspecting
+Illuminati Sleepers and Human populations how to orchestrate false
+planetary healing operations utilizing distorted Biotronic scalar-pulse and
+Merkaba Mechanics technologies that would be amplified through the
+NDC-Grid. Through these distorted Biotronic/Merkabic technologies, the
+Annunaki believed they would be able to reclaim from competing forces
+Earth’s 12 Primary Star Gate territories and corresponding Ley Line systems,
+as each Star Gate naturally opened during the 2000-2017 SAC. 
+    In 1992 Anunnaki legions were confronted with yet another unpleasant
+surprise as Andromie-Rigelian and collaborating factions of the Omicron-
+Drakonian and Odedicron-Reptilian Falcon force began to utilize the
+Montauk-Phi-Ex Wormhole and Falcon APIN system to gain control over
+the Anunnaki NDC-Grid and the NET via scalar pulse transmissions.
+Suddenly the overly confident Anunnaki forces became willing to enter
+negotiations for Emerald Covenant Redemption Contracts with Emerald
+Covenant nations. 
+    Because the Anunnakis feared complete loss of their NDC-Grid/NET
+stronghold on Earth, some of their leading factions reluctantly entered the
+Emerald Covenant Pleiadian-Sirian Agreements in November 1992. In
+these agreements, the Pleiadian and Nibiruian Anunnaki legions and
+portions of Galactic Federation and Ashtar Command agreed to put the
+NET/NDC-Grid installation and their artificial hold on Solar Star Gate-4
+back under Guardian Azurite Universal Templar Security Team
+protection. The Andromie-Rigelian Coalition had their immediate sights set
+on conquest of Anunnaki-held Nibiru, a planetary environment more
+___________________________ 
+10.   See Masters Templar Coursebook, forthcoming. 
+380 
+
+                                            
+                                          The Pleiadian-Sirian Agreements and Hurricane Andrew 1992
+suitable to Necromiton-Andromie biological requirements and a strategic
+“power spot” in relation to conquest of Earth and dominion over the Halls of
+Amenti. The Pleiadian-Nibiruian Anunnaki of the “Phoenix” and “Serpent”
+APIN systems promised to honor the Emerald Covenant if the Founders
+would assist them in using the NET/NDC-Grid to close by force the
+Necromiton-controlled Montauk-Phi-Ex/Falcon Wormhole. If utilized by
+Guardian races via Sirius B Star Gate-6, the already operational NET/NDC-
+Grid installation could be reprogrammed to carry and amplify D~12 and
+Primal Life Force Trion Currents from beyond this Time Matrix. If returned
+to the protection of the Emerald Covenant nations, the NET/NDC-Grid of
+Earth had the power to temporarily seal or “Cap” the Montauk-Phi-Ex/
+Falcon Wormhole, preventing the Andromie-Rigelian “Falcon-Eagle,”
+Omicron-Odedicron Drakonian “Dragon” and Jehovian Anunnaki “Dove”
+raider races from further advancing their Earth-Nibiru-Amenti dominion
+agendas. Emerald Covenant races had been trying unsuccessfully to cap the
+Montauk-Phi—Ex/Falcon Wormhole since WW2. On August 12, 1992, they
+had almost succeeded when the Zeta Rigelians, with the assistance of the
+Necromiton-Andromie ''Montauk Boys,'' launched a vicious sonic pulse
+transmission from their Star Gate-3 Bermuda base, into the Falcon
+Wormhole, further expanding the Falcon and preventing application of the
+frequency cap. 
+    The unstable expansion of the Falcon Wormhole caused major deep
+marine disturbances throughout the Atlantic Ocean, reports of which the
+Illuminati Withheld from public disclosure. On August 24, 1992, the Falcon
+wormhole amplified the intensity of Hurricane Andrew, creating wind
+speeds in the range of 250-300 m.p.h. Hurricane Andrew changed direction
+suddenly, heading for the Dade County, FL, area. The Falcon agenda
+Illuminati knew of the direction change in time to call for evacuations, but
+their Fallen Angelic Necromiton-Andromie ''commandos'' ordered them to
+''misplace'' this information and give warning only when evacuation time
+was spent. The Zeta-Rigelians and Necromiton-Andromie forces used
+Hurricane Andrew to secure yet another Human and Maji ''Population
+Reduction'' event. The devastation of Hurricane Andrew was one of the
+greatest recorded “natural” disasters in US history. When the Pleiadian-
+Nibiruian Anunnakis finally decided they wanted to “deal,” and offered to
+turn over their NDC-Grid, NET, Phoenix and Serpent APIN systems to
+Emerald Covenant races, the opportunity to safely cap the Falcon Wormhole
+was finally at hand. In November 1992, the Pleiadian-Sirian Agreements of
+the Emerald Covenant Peace Treaty were formalized. 
+381 
+                                                                                                                                             
+
+  
+                        The Hidden Game-board Final Conﬂict Drama
+                                                  TEMPORARY CAP ON THE MONTAUK
+                                                       PHI-EX WORMHOLE 1994-1998
+           
+   When the 1992 Pleiadian-Sirian Agreements were initiated, both
+Emerald Covenant and Pleiadian-Nibiruian Anunnaki races, and the
+Galactic Federation, made subtle and physical contact with selected
+members of the Illuminati and Interior World Government forces, offering
+them opportunity to defect from Andromie-Rigelian and Drakonian/
+Reptilian “Falcon-Eagle” dominion. Through a temporary photo-sonic
+interface system created by the Emerald Covenant Maharaji Blue Human
+races of Density-2 Sirius B, portions of the NET/NDC-Grid were able to
+receive and transmit specific scalar pulses through Earth’s Templar that
+served to ''jam'' the frequencies used to sustain the Montauk-Phi-Ex
+Wormhole. 
+   By 1994, the united Emerald Covenant and Anunnaki legions
+successfully created a temporary ''cap'' on the Montauk-Phi-Ex APIN
+system, and a partial cap on the Falcon wormhole ''hub.'' The Montauk-Phi-
+Ex/Falcon cap prevented the Necromiton-Andromies Zeta Rigelian, and
+Drakonian/Reptilian fleets from furthering their intended covert infiltration
+of Earth’s subterranean bases. The Montauk-Phi-Ex Cap was a temporary
+solution that depended upon the Anunnakis upholding the Pleiadian-
+Sirian Agreements. In these agreements the Anunnaki legions had promised
+to release Earth from Nibiruian subjugation, dismantle the NET and
+return the NDC-Grid and Solar Star Gate-4, which they had “hijacked by
+force” during the 25,500 BC Lucifer Rebellion, back over to the Emerald
+Covenant Founders’ protection by 2000. 
+   Had the Anunnaki races upheld the Pleiadian-Sirian Agreements,
+Emerald Covenant races would have used the NET/NDC-Grid installation
+on Earth to accomplish two vital Bridge Zone Project crisis intervention
+initiatives. The most pressing intervention needed was that of rapidly re-
+balancing Earth’s electromagnetic Merkaba fields to prevent pending pole
+shift from occurring during the 2000-20l7 SAC, due to the original,
+inorganic Photo-sonic program of the NDC-Grid. The second intervention
+was that of using the NET/NDC-Grid network during the SAC to
+permanently seal the Montauk-Phi-Ex/Falcon Wormhole and the Phoenix
+Wormhole, while activating the Face of Man LPIN system and the Great
+White Lion, Golden Eagle and Blue Oxen APINs. Success in these
+objectives would prevent further Fallen Angelic invasion, setting in motion a
+Free World Order of Emerald Covenant interstellar co-evolution on Earth.
+  From 1994-1998 Pleiadian-Nibiruian Anunnaki, Galactic Federation
+and Emerald Covenant inﬂuence gained dominance within many Illuminati
+factions. Preparations were being made among cooperating Illuminati
+alliances to begin non-threatening, progressive public release of ''ET-
+           Angelic Presence Confirmation'' via Official Global Proclamation. As part
+           of the Pleiadian-Sirian Agreements, Emerald Covenant races had agreed to
+        wait until humanity had dealt with the initial revelation of the reality and
+        immediacy of ''Visitor Contact'' before releasing the full historical data  
+                  
+                   382                                             
+
+                                              
+                                                 
+                                           Temporary Cap on the Montauk Phi-Ex Wormhole 1994-1998
+concerning Anunnaki infiltration via the Atlantian Conspiracy Luciferian
+Covenant agenda. 
+    Without use of the earthly NDC-Grid installation and natural
+realignment of Solar Star Gate-4, Emerald Covenant races would be unable
+to prevent pole shift, nor would they be able to seal the Montauk-Phi-Ex/
+Falcon Wormhole, without launching immediate physical on-planet
+presence of fleets capable of advanced Photo-sonic scalar pulse
+transmission. If Guardian ﬂeets attempted to deploy direct physical presence
+on Earth, they would be intercepted by Necromiton-Andromie, Rigelian-
+Zeta, Drakonian and Reptilian fleets, setting in motion a literal ''Star Wars''
+drama within and surrounding D-3 Earth territories. Such a Star Wars drama,
+utilizing the Photo-sonic and Photo-radionic technologies possessed by all
+interstellar races, would not only decimate large portions of Earth
+populations, but would also guarantee pole shift by further disrupting the EM
+balances in Earth’s grids during the 2000-20l7 SAC. An easy, peaceful
+victory on Earth over the pending Fallen Angelic/Illuminati OWO Final
+Conﬂict drama depended upon the Anunnaki races honoring their
+promises of Emerald Covenant support and cooperation with Guardian
+nations—promises that were made in the 1992 Pleiadian-Sirian
+Agreements.  
+        The 1994    capping   of     the    Phi-Ex Wormhole  gave   the  Anunnaki   races
+opportunity to once again advance their influence among the Illuminati
+races of the World Management Team. If they had been honoring their 1992
+Agreements, this “inﬂuence” would have progressed in representation of the
+Emerald Covenant. The Anunnaki and Emerald Covenant races continued
+to initiate a slow but steady “wake-up call” among their respective civilian
+Sleepers. The Anunnaki released the message among some of their channels
+that “the Zeta races had left Earth and there was nothing now to fear.” The
+originally sinister intentions of the Anunnaki-orchestrated aspects of the
+“New Age Movement” brieﬂy became upgraded to support the Emerald
+Covenant peace treaty and freedom teachings, creating a renewed solidarity
+between once-competing ideological factions in the New Age arena. 
+    In 1997 Guardian races began the “wake-up call” to their Emerald
+Covenant Speakers and Indigo Children, in preparation for the scheduled
+release of the Emerald Covenant teachings pertaining to Masters Planetary
+Templar Mechanics, which were to be given once consummation of the
+2000-2017 SAC was confirmed. Plans were made among Anunnaki loyal
+Illuminati and Human members of the World Management Team to begin
+“Official Disclosure” of “Visitor Race Presence.” Official Disclosure was
+intended to prepare human populations to make a united, peaceful stand in
+protecting Earth’s territories from further advancement of the several
+competing Fallen Angelic OWO invasion agendas, using the natural,
+spiritual-science based tools of Masters Planetary Templar Mechanics. 
+    Guardian races intended to release the Emerald Covenant Masters
+Templar Mechanics teachings into the public forum, to educate Humanity
+in the methodologies required to orchestrate Planetary Shields Clinics,
+through which Earth’s EM grids could be rapidly healed to prevent pole
+shift from occurring should the 2000-2017 SAC commence as anticipated. If
+the 2000-2017 SAC commenced, Guardian races intended rapid   
+383  
+                                                                                                                                              
+
+  
+                    
+                        The Hidden Game-board Final Conﬂict Drama
+dispensation of information pertaining to humanity’s invitation into the
+Lyran-Sirian Founders Emerald Covenant Co-Evolution Peace Treaty, and
+the awakening and training of the Amenti Planetary Templar Security
+Team was to immediately commence. The Amenti Security Team was
+intended to be trained to assist Guardian nations in using the NDC-Grid
+installation to permanently sever the link between Earth and the
+Montauk-Phi-Ex/Falcon and Phoenix Wormhole, preventing further Fallen
+Angelic infiltration. Once the Montauk-Phi-Ex/Falcon and Phoenix
+Wormholes were permanently shut, Fallen Angelic races would be unable to
+send in larger ﬂeets to intercept and initiate “Star Wars” with Guardian ﬂeets
+as they made their inevitable ''First Contact'' mission. As 1998 approached,
+all appeared to be going relatively well within the delicate political balances
+of the 1992 Pleiadian-Sirian Agreements. 
+                
+         ANUNNAKI DEFECTION, FALCON UN-CAPPED, INDIGO 
+                     HUNTING AND EDICT OF WAR 1998-2001
+ 
+   When it became clear in June 1998 that the SAC would commence in
+2000, the Pleiadian-Samjase-Luciferian, Nibiruian-Enlil-Odedicron,
+Thoth-Enki-Zephelium and Galactic Federation Anunnaki collectives
+immediately defected from the Pleiadian-Sirian Agreements, seizing this
+opportunity to continue activation of the Phoenix and Serpent APIN
+systems for Earth conquest. They made deals with the Jehovian “Dove” and
+Necromiton-Andromie “White Eagle” to interface their NET/NDC-Grid
+and APIN systems with the Zeta-Rigelian/Andromie Montauk/Phi-Ex
+facility in order to undo the access to Earth’s Templar that Emerald
+Covenant nations had recently gained. They rapidly began to “set the stage”
+for “Lowering the NET” into the D-3 Frequency bands via interface with
+earthly electrical-grid technologies to create the 2004 ''Frequency Fence''
+mass-mind-control network. 
+    The Alpha-Omega Nephilim Annu-Melchizedeks began an aggressive,
+sweetly rendered “Indigo Child Hunting” campaign within the New Age
+Movement, hoping to locate as many Indigo people (especially Type-3
+Human-Anunnaki hybrids) for astral Tagging and DNA bonding-bio-field
+possession. Great efforts were applied to directing the “Channeling”
+movement via the NET/Phi-EX transmitting station, through which a
+progressively growing number of infiltrated Illuminati and Human “Greeting
+Teams” were assembled among Earth populations¹¹ 
+    As the Anunnaki Greeting Teams advanced in the New Age movement,
+many Anunnaki legions that had remained loyal to the 1992 Pleiadian-Sirian
+Agreements finally defected under growing pressure from the Galactic
+Federation and the Nibiruian Thoth-Enki Anunnaki collectives. Numerous
+popular ''Energy/Spiritual Healing Systems'' were infiltrated and
+progressively used to orchestrate astral Tagging in New Age populations.
+ 
+ 
+                         _____________________
+ 
+ 
+ 
+                             11.      Check out the Galactic Federation, “Archangel Michael” and several other very popular
+ 
+ 
+               New Age and UFO Contact movement representatives and you’ll get an idea of how well  
+ 
+ 
+               the Fallen Angelic “Greeting Team” effort is going.
+                             384 
+                           
+
+                                        Anunnaki Defection, Falcon Un-Capped, Indigos, Edict of War. 
+Meanwhile, many un-awakened Indigo Children and Humans became
+infiltrated with Anunnaki implantation, possession and ''pseudo spiritual''
+indoctrination, and the “Michael Matrix,” Zeta-Rigelian and Dracos stepped
+up their own interest in the ''Body-Snatching game.'' This caused a
+progression of disputes among Anunnaki factions and between Anunnaki
+and Drakonian agenda forces. 
+  Between 1998-1999, the Zeta Rigelian and Necromiton-Andromie
+Falcon-White Eagle force, with the assistance of their ''Montauk Boys''
+Illuminati, successfully removed the partial cap on the Falcon wormhole and
+partially ripped through the Montauk-Phi-Ex wormhole cap. “Un-capping
+the Falcon” allowed them to reactivate portions of their global Montauk-
+Phi-Ex-Falcon/White Eagle APIN system, through which Psychotronic and
+sub-space Sonic Scalar Pulse transmissions capacity was restored. Since this
+1998-1999 fiasco began, Emerald Covenant nations have used their once-
+again limited access to NET transmission to ''poke holes'' in the NET, by
+which their Indigo Children Types-1 and 2 could receive a rapid emergency
+“wake-up call.¹² Expedited Emerald Covenant CDT-Plate translations
+began in late 1999, after the original May 1999 simultaneous publication of
+the Voyagers I and II. 
+  Throughout 1999-2000, Emerald Covenant races have continued
+negotiations in attempts to resurrect the Pleiadian-Sirian Agreements with
+Anunnaki races, temporarily securing the July 5, 2000, Treaty of Altair
+with the Anunnaki and several renegade races, due to the continuing
+disputes between Anunnaki and Drakonian agenda factions. Between
+September 7-12, 2000, the Andromie-Necromitons settled several pending
+Anunnaki/Drakonian disputes over intended distribution of captured Inner
+Earth territories, the UIR was formed and their War Edict was issued on
+September 12, 2000. 
+___________________________________________________________
+Since September 12, 2000, Emerald Covenant nations and awakening Indigo
+Children and Humans who have not yet succumbed to Fallen Angelic astral
+ tagging, etc., have been working with progressively more advanced Masters
+                   Planetary Templar Mechanics to secure Earth’s Templar
+                                       under a critical-mass 12-Code Pulse before the 2003 deadline.  
+                            
+                        ____________________________________________________________
+                             
+                             
+                             ____________________________
+                                 12. Scalar transmissions to activate dormant portions of the DNA Template.
+                              385 
+                                                                                                                                           
+                           
+
+                                                     
+                                                  
+                                             19  
+                                                                    
+                                                                                                                  
+                                     
+ 
+                                           The Wall in Time
+                and Atlantian Secrets of the
+                   Phoenix and the Falcon
+              
+                                     DIMENSIONAL BLEND EXPERIMENT, WALL IN TIME,
+                                              AND THE ILLUMINATI MASTER PLAN 2003
+            
+   The contemporary United Intruder Resistance (UIR) Illuminati One
+World Order (OWO) Master Plan is an amalgamation of key components
+of the previously disclosed competing fallen Angelic/Intruder ET OWO
+agendas. The UIR has adopted the long-planned ''2003 Dimensional Blend
+Experiment'' and “2004 Frequency Fence” plan originally of the Zeta-
+Rigelian Agenda. The Zeta-Rigelians originally got their idea for the
+Frequency Fence from the Annunaki NET plan, in which the Annunaki had
+long planned to “Lower the NET into D-3” to create a Frequency Fence
+during the 2000-2017 SAC. 
+    The Nibiruian Council mandate of Human Genocide has been adopted,
+and its orchestration is intended to occur through the ''Instigation of War
+Among Human Nations'' agenda that has been key to most OWO creeds
+since their inception. Advancement of the UIR Illuminati OWO Master
+Plan depends upon their preventing Earth’s Templar from reaching a critical
+mass 12-Code Pulse. If the Guardian agenda of activating the Four Faces of
+Man LPIN system to create the Trion/Meajhé Field before 2003 is
+successful, the 12-Code Pulse will reach critical mass in Earth’s Planetary
+Shields, blocking the Dimensional Blend Experiment and Frequency
+Fence. The DNA Templates of Indigo Children and Humans are now
+beginning mass activation, despite the Fallen Angelic astral Tagging
+interference; the biology of these races will automatically and progressively
+run higher dimensional frequencies into Earth’s grids. A critical mass of
+Indigo Children Types-1 and 2¹ have now cleared sufficient amounts of
+NDC-Grid distortions from their DNA Templates and set sufficient
+amounts of the 12-Code Pulse in Earth’s Templar. These events will begin
+triggering spontaneous DNA clearing and activation in mass Human/
+Indigo populations. If these populations continue cleared DNA Template
+  
+ 
+ 
+ 
+ 
+ 
+ 
+                              ___________________________________
+                              1.     48- and 24-Strand DNA Templates, respectively.
+                                
+                            386
+                
+
+                                                                                  
+                                                                     Dimensional Blend Experiment, Wall in Time, ...
+activation, they will unknowingly transmit a critical mass 12-Code Pulse
+into the Planetary Shields by 2003, preventing fulfillment of the
+Illuminati Dimensional Blend Experiment. 
+   The “2003 Dimensional Blend Experiment” was intended to directly
+link Earth’s Planetary Shields into the Planetary Shields of a counterpart of
+Earth, called Phantom Earth, that was drawn into the Phantom Matrix
+Black Hole Sub-Time Distortion Cycle during the ''Electric Wars,'' which
+ended Human Seeding-l on Earth, 5,500,000 years ago. Since the Electric
+Wars there has been a ''Wall in Time''—a frequency Cap between Earth’s
+Planetary Shields and the chaotic Planetary Shields of Phantom Earth in the
+Black Hole Phantom Matrix. This Cap was kept in place by the Emerald
+Covenant Founders, in hopes that eventually our Earth would evolve to a
+sufficient frequency accretion level through which the ''Wall in Time''
+could be “Uncapped,” without our Earth and its life field potentially being
+rapidly drawn into the Phantom Matrix. This Cap allows the races in
+Phantom Earth an opportunity to have DNA Bio-Regenesis, and the
+Phantom Earth to receive Planetary Shields repair, so people and planet
+could be retrieved from the “perpetual chaotic time loop” of the Phantom
+             Matrix to restore natural evolution. 
+           Since the end of Human Seeding-1, Earth has been a literal
+“battleground” between the Emerald Covenant Founders races and the
+Fallen Angelic/Intruder ET races of the Phantom Matrix. Each group has
+fought to attain a critical mass of frequency in the Planetary Shields of
+Earth and its Phantom. If Phantom Earth accretes greater frequency holding
+than our Earth, our Earth, its peoples and the Halls of Amenti in the Inner
+Earth Time Cycle will be sucked into the Phantom Matrix black hole. If this
+occurs, 11 dimensions of our 15-dimensional Time Matrix will become fully
+trapped within the Phantom Matrix Sub-Time Distortion Cycle, cut off
+from interaction with the Founders of D-12 and up, under Fallen Angelic
+race dominion, completely incapable of natural Ascension out of density.
+Such an event would provide sufficient energy fuel to feed and artificially
+sustain the dying Phantom Matrix for many eons to come. 
+    Since the 25,500 BC Lucifer Rebellion, the Anunnaki races of the
+Phantom Matrix have been progressively draining frequency from our Earth
+and transmitting it into the Phantom Earth Shields via the ''relay station''
+of the NET, NDC-Grid, the Reverse-orbit Planet Nibiru and the
+artificial Nibiruian Battlestar ''Wormwood.''² In the SAC of 22,326 BC,
+the Anunnaki almost succeeded in fulfilling the Dimensional Blend
+Experiment, through which the ''Cap on the Wall in Time'' would have
+been shattered and our Earth and the Halls of Amenti Star Gates would
+have become fully trapped in the Phantom Matrix. The Eieyani Founders
+races stopped the 22,326 BC SAC just in time to prevent this travesty from
+occurring. When the Zetas uncapped the Falcon Wormhole in the early
+1900s and launched the 1943 Philadelphia Experiment, the first full link
+between the Planetary Shields of Zeta-controlled Phantom Earth and our
+Earth was made in our contemporary times. 
+  
+ 
+                               ____________________________
+                                
+                                      2.     Yes, for the Biblical reference.
+                                    387
+
+         
+                        The Wall in Time and Atlantian Secrets of the Phoenix and the Falcon
+    A “hole was punched in the Wall in Time” by uncapping the Falcon
+wormhole and creating the Phi-Ex Wormhole Port Interface Network
+(PIN) Atlantian Pylon Implant Network (APIN) System. Our
+contemporary problems mounted when the Pleiadian-Nibiruians uncapped
+the neighboring Phoenix wormhole, and they escalated again when the
+“Hole in the Time Wall” was further expanded through the Falcon
+wormhole during the 1983 Montauk Project. If the contemporary UIR
+succeeds in orchestrating the 2003 Dimensional Blend Experiment, Earth
+will fulfill the Jehovian-contrived ''Biblical Revelations Prophecies,''
+experience pole shift and be drawn into “the Pit” of the Phantom Matrix
+black hole3 The potentiality of Earth entering the Phantom Matrix is both
+spiritually and scientifically devastating. Regardless of whether these
+events are interpreted in terms of physics or spirituality, they are real “on
+both counts.” 
+    Originally, Emerald Covenant races, Humans and Indigo Children entered
+repeated Earth incarnations on “rescue missions,” in attempts to save the
+mentally and biologically mutated races of the Phantom Matrix from their
+return to undifferentiated units of “space dust” at the eventual, inevitable,
+implosion of the Phantom Matrix. Now, due to the anti-Christiac applications of
+the NET/NDC-Grid/Montauk-Phi-EX/Phoenix Project and Fallen Angelic
+APIN technologies, the “Cap on the Wall in Time” must be permanently
+closed. 
+ 
+      
+    If the Cap on the Time Wall is not closed, Earth, Inner Earth, the Halls of
+Amenti and the many universes within the lower 11 dimensions of our l5-
+dimensional Time Matrix will implode during and shortly after the 2000-2017
+SAC. The imploded systems would then chaotically reorganize their matter-
+pattern within the Time Loop of the Phantom Matrix black hole. The
+Founders races must do everything in their power to prevent this event from
+occurring, or other neighboring Time Matrix systems will be unfairly placed in
+similarly grave jeopardy. 
+    The present “Final Conﬂict” drama on Earth will be the deciding factor of
+destiny for many civilizations within our Time Matrix system, as well as for Earth
+and the Human race. If the Emerald Covenant Masters Planetary Stewardship
+Initiative and Bridge Zone Project are successful, only a portion of Earth’s matter
+base and consciousness fields will be drawn into the Phantom Matrix Time
+Track during the Three-Day Particle Conversion Period of our present SAC
+(see page 223). The rest of Earth’s Planetary Shields and life-forms with sufficient
+DNA Template activation will experience a progression of linear time events
+that will lead to a future in which Earth and her peoples discover the reality of
+the Inner Earth Time Cycle. In this future, Earth becomes a free (ascended)
+planet within the Interdimensional Association of Free Worlds and great
+Universal Emerald Covenant communities—the ''heavenly Earth'' so often
+promised but never “deliverable” by the many oblivious religious dog mas. 
+ 
+. . 
+ 
+        
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+      If the GA Bridge Zone Project is not successful, and the UIR’s 2003
+Dimensional Blend Experiment is not prevented by 12-Code Pulse re-coding of
+                       
+                        
+                        __________________________
+                      
+                        3.     Not a “pretty sight” in terms of scientific physics and even more unsavory in terms of con-   
+ 
+ 
+ 
+                                         scious spirit.
+                            388 
+
+                        
+                                The WTC/ Pentagon Disaster and the “Secrets of the Phoenix and Falcon”
+the 24 Nibiruian Crystal Temple Networks and setting of the Trion/Meajhé
+Fields, the Guardians cannot prevent Earth from “joining its Phantom Shadow.”
+This is not a decision of Guardian preference, but merely an unavoidable
+condition of the natural Laws of Creation Physics that govern the
+manifestation processes of matter and consciousness. 
+    Presently, great progress has been made in the Emerald Covenant freedom
+agenda. The DNA Templates of Indigos and Humans are now slowly, but
+definitely, clearing and activating. Progressive 12-Code Human DNA Template
+activation will culminate in Earth’s 12-Code Pulse critical mass re-coding by
+2003, if a critical number of Masters Planetary Templar Mechanics “Rainbow
+Roundtables” (RRTs) are conducted by Earth populations. The Emerald
+Covenant RRTs are the advanced Biotronic technologies of the Christos
+Founders races. RRTs are the only technologies by which the “Four Faces of
+Man,” “Great White Lion” and “Golden Eagle” PIN Systems can be rapidly
+activated to anchor the needed Trion/Meajhé Fields in Earth’s Planetary
+shields. 
+                           THE WTC/PENTAGON DISASTER
+        AND THE “SECRETS OF THE PHOENIX AND FALCON”
+     •Phantom Matrix. •The 5.5 million-year-old Wall in Time. •The
+Atlantian Conspiracy and Luciferian Covenant. •The Falcon and Phoenix
+Wormholes. •The 1943-1983 Montauk/Phi-Ex Port Interface Network.
+•Atlantian Pylon Implant Networks. •The 2003 Dimensional Blend
+Experiment. •The NET (Nibiruian Electro-static Transduction field).
+•The Nibiruian Crystal Temple Network. •UIR Illuminati OWO Master
+Plans. •The September 12, 2000, UIR Edict of War. •RITs (Remote
+Interactive Teams) and Astral Tagging •The “UFO and New Age
+Movements.” •Fallen Angelic conquest for dominion of the Halls of
+Amenti Star Gates. So what do all of these seemingly “far out sci-fi subjects” have to do
+with the very real 9/11/2001 WTC/Pentagon Disaster, the contemporary
+concern over the threat of International Terrorism and the “War On
+Terrorism”? 
+  Absolutely Everything! I personally did not fully understand the
+connections between the “Big Picture Drama” and our present global terrorist
+issue until the GA/Eieyani “filled in the missing pieces” as I began to prepare
+this final update for Voyagers II 2e. The well-hidden connections between
+these ancient and contemporary realities is not remote or vague—it is direct
+and scathing; this connection becomes much more obvious when we
+understand the “Secrets of the Phoenix and the Falcon” and their
+relationship to ''ancient'' Atlantis. The whole story of the Phoenix and the
+Falcon could fill several books; I will simply summarize here the most
+immediately pertinent aspects of this historical saga. 
+    Previous to the 9558 BC “cataclysm” of Atlantis, life was quite different
+than it is now on planet Earth. In 28,000 BC, a major cataclysm ripped apart
+the large Atlantic continent upon which Atlantis stood, reducing it to
+several smaller Atlantian Island Nations. The three Primary Atlantian
+         nations were Ulta-Lohas-Ur, in what had been the Northeast of the
+                          
+                            389 
+                                                                                                                                               

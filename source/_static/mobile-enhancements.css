@@ -1,0 +1,159 @@
+/**
+ * Mobile responsive enhancements for Voyagers site
+ */
+
+/* Mobile breakpoints */
+@media (max-width: 768px) {
+  /* Reduce heading glow on mobile for better readability */
+  h1, h2, h3, h4, h5, h6 {
+    text-shadow: 0 0 10px rgba(126, 217, 146, 0.2);
+  }
+  
+  /* Stack PDF download buttons vertically on mobile */
+  .pdf-download {
+    display: block;
+    width: 100%;
+    text-align: center;
+    margin: 10px 0;
+  }
+  
+  /* Improve touch targets */
+  .sidebar-tree .reference {
+    padding: 12px 16px;
+    min-height: 44px;
+  }
+  
+  /* Better spacing for mobile reading */
+  .content {
+    padding: 1.5em 1em;
+  }
+  
+  /* Adjust font sizes for mobile */
+  body {
+    font-size: 16px;
+    line-height: 1.6;
+  }
+  
+  h1 {
+    font-size: 1.8em;
+  }
+  
+  h2 {
+    font-size: 1.5em;
+  }
+  
+  /* Make search input larger on mobile */
+  .search-input {
+    font-size: 16px;
+    padding: 12px;
+  }
+  
+  /* Continue reading button full width on mobile */
+  [href*="Continue Reading"] {
+    display: block !important;
+    width: 100%;
+    text-align: center;
+    box-sizing: border-box;
+  }
+}
+
+/* Tablet breakpoint */
+@media (min-width: 769px) and (max-width: 1024px) {
+  /* Slightly reduce glow effects on tablets */
+  h1, h2, h3 {
+    text-shadow: 0 0 15px rgba(126, 217, 146, 0.25);
+  }
+  
+  .content {
+    padding: 2em 1.5em;
+  }
+}
+
+/* Improve readability for smaller screens */
+@media (max-width: 640px) {
+  /* Remove fixed background attachment on mobile for better performance */
+  body {
+    background-attachment: scroll;
+  }
+  
+  /* Disable backdrop filter on older mobile browsers */
+  @supports not (backdrop-filter: blur(10px)) {
+    .content {
+      background-color: rgba(26, 15, 46, 1);
+      backdrop-filter: none;
+    }
+  }
+  
+  /* Simpler scrollbars on mobile */
+  ::-webkit-scrollbar {
+    width: 6px;
+  }
+}
+
+/* Landscape mobile optimization */
+@media (max-width: 896px) and (orientation: landscape) {
+  /* Reduce vertical padding in landscape mode */
+  .content {
+    padding: 1em;
+  }
+  
+  h1 {
+    margin-top: 0.5em;
+    margin-bottom: 0.5em;
+  }
+}
+
+/* High DPI screens */
+@media (-webkit-min-device-pixel-ratio: 2), (min-resolution: 192dpi) {
+  /* Sharper text rendering on retina displays */
+  body {
+    -webkit-font-smoothing: antialiased;
+    -moz-osx-font-smoothing: grayscale;
+  }
+}
+
+/* Accessibility: Respect user's motion preferences */
+@media (prefers-reduced-motion: reduce) {
+  * {
+    animation: none !important;
+    transition: none !important;
+  }
+  
+  body::before {
+    animation: none;
+  }
+}
+
+/* Dark mode preference (though we're always dark) */
+@media (prefers-color-scheme: dark) {
+  /* Enhance contrast for pure dark mode users */
+  :root {
+    --color-foreground-primary: #f0e8ff;
+  }
+}
+
+/* Print styles */
+@media print {
+  /* Remove background effects for printing */
+  body, body::before {
+    background: white !important;
+    color: black !important;
+  }
+  
+  h1, h2, h3, h4, h5, h6 {
+    color: black !important;
+    text-shadow: none !important;
+  }
+  
+  a {
+    color: black !important;
+    text-decoration: underline !important;
+  }
+  
+  /* Hide navigation for print */
+  .sidebar-drawer,
+  .mobile-header,
+  .pdf-download {
+    display: none !important;
+  }
+}
